@@ -1,36 +1,46 @@
 ---
 outputs: meta
 slug: book
-
-languageCode: en-US
+contentType: prose
+languageCode: en
 meta:
-  title: "Next-book Boilerplate"
-  author: "Author Name"
-  publisher: mkp
-  published: 2020
-  keywords: []
-  edition: beletrie
-chapters:
-  - where-i-lived-and-what-i-lived-for.html
-  - reading.html
-  - sounds.html
-  - solitude.html
+  title: Za Alpami
+  identifier: urn:uuid:296c0919-9963-415a-a386-6c26c077b931
+  author: David Zábranský
+  publisher: Městská knihovna v Praze
+  modified: '2021-06-02T00:00:00.000Z'
+readingOrder:
+  - promo.html
+  - za_alpami_001.html
+  - za_alpami_002.html
+  - za_alpami_003.html
+  - za_alpami_004.html
+  - za_alpami_005.html
+  - za_alpami_006.html
+  - za_alpami_007.html
+  - za_alpami_008.html
+  - za_alpami_009.html
+  - za_alpami_010.html
+  - za_alpami_011.html
+  - za_alpami_012.html
+  - za_alpami_013.html
+  - za_alpami_014.html
+  - za_alpami_015.html
+  - za_alpami_016.html
+  - za_alpami_017.html
+  - za_alpami_018.html
+  - za_alpami_019.html
+  - za_alpami_020.html
 tocBase:
-  - link: where-i-lived-and-what-i-lived-for.html
-    title: Where-i-lived-and-what-i-lived-for
-    numberedChildren: true;
-    children:
-      - link: reading.html
-        title: Reading
-      - link: sounds.html
-        title: Sounds
-  - link: solitude.html
-    title: Solitude
+  - id: section-1
+    children: []
+    isSection: true
 static:
   - style
   - scripts
+  - title
   - fonts
-  - images
+  - resources
   - template-images
   - favicon.png
 ---
