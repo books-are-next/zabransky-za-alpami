@@ -1,0 +1,467 @@
+{
+  "@context": "https://readium.org/webpub-manifest/context.jsonld",
+  "metadata": {
+    "@type": "http://schema.org/Book",
+    "title": "Za Alpami",
+    "identifier": "urn:uuid:296c0919-9963-415a-a386-6c26c077b931",
+    "author": "David Zábranský",
+    "publisher": "Městská knihovna v Praze",
+    "language": "cs-CZ",
+    "modified": "2021-06-02T00:00:00.000Z",
+    "published": "2021-05-31T06:50:17.000Z",
+    "description": "Městská knihovna v Praze",
+    "subject": "subject",
+    "generator": "Adobe InDesign 15.1.1",
+    "Sigil version": "0.9.9"
+  },
+  "readingOrder": [
+    {
+      "type": "application/xhtml+xml",
+      "href": "OEBPS/Text/za_alpami_001.xhtml"
+    },
+    {
+      "type": "application/xhtml+xml",
+      "href": "OEBPS/Text/za_alpami_002.xhtml"
+    },
+    {
+      "type": "application/xhtml+xml",
+      "href": "OEBPS/Text/za_alpami_003.xhtml"
+    },
+    {
+      "type": "application/xhtml+xml",
+      "href": "OEBPS/Text/za_alpami_004.xhtml"
+    },
+    {
+      "type": "application/xhtml+xml",
+      "href": "OEBPS/Text/za_alpami_005.xhtml"
+    },
+    {
+      "type": "application/xhtml+xml",
+      "href": "OEBPS/Text/za_alpami_006.xhtml"
+    },
+    {
+      "type": "application/xhtml+xml",
+      "href": "OEBPS/Text/za_alpami_007.xhtml"
+    },
+    {
+      "type": "application/xhtml+xml",
+      "href": "OEBPS/Text/za_alpami_008.xhtml"
+    },
+    {
+      "type": "application/xhtml+xml",
+      "href": "OEBPS/Text/za_alpami_009.xhtml"
+    },
+    {
+      "type": "application/xhtml+xml",
+      "href": "OEBPS/Text/za_alpami_010.xhtml"
+    },
+    {
+      "type": "application/xhtml+xml",
+      "href": "OEBPS/Text/za_alpami_011.xhtml"
+    },
+    {
+      "type": "application/xhtml+xml",
+      "href": "OEBPS/Text/za_alpami_012.xhtml"
+    },
+    {
+      "type": "application/xhtml+xml",
+      "href": "OEBPS/Text/za_alpami_013.xhtml"
+    },
+    {
+      "type": "application/xhtml+xml",
+      "href": "OEBPS/Text/za_alpami_014.xhtml"
+    },
+    {
+      "type": "application/xhtml+xml",
+      "href": "OEBPS/Text/za_alpami_015.xhtml"
+    },
+    {
+      "type": "application/xhtml+xml",
+      "href": "OEBPS/Text/za_alpami_016.xhtml"
+    },
+    {
+      "type": "application/xhtml+xml",
+      "href": "OEBPS/Text/za_alpami_017.xhtml"
+    },
+    {
+      "type": "application/xhtml+xml",
+      "href": "OEBPS/Text/za_alpami_018.xhtml"
+    },
+    {
+      "type": "application/xhtml+xml",
+      "href": "OEBPS/Text/za_alpami_019.xhtml"
+    },
+    {
+      "type": "application/xhtml+xml",
+      "href": "OEBPS/Text/za_alpami_020.xhtml"
+    }
+  ],
+  "resources": [
+    {
+      "type": "application/x-dtbncx+xml",
+      "href": "OEBPS/toc.ncx"
+    },
+    {
+      "type": "text/css",
+      "href": "OEBPS/Styles/idGeneratedStyles.css"
+    },
+    {
+      "type": "image/jpeg",
+      "href": "OEBPS/Images/image001.jpg"
+    },
+    {
+      "type": "image/jpeg",
+      "href": "OEBPS/Images/image002.jpg"
+    },
+    {
+      "type": "image/jpeg",
+      "href": "OEBPS/Images/obalka_za_alpami.jpg"
+    },
+    {
+      "type": "image/jpeg",
+      "href": "OEBPS/Images/obrazek_1.jpg"
+    },
+    {
+      "type": "image/jpeg",
+      "href": "OEBPS/Images/obrazek_2.jpg"
+    },
+    {
+      "type": "image/jpeg",
+      "href": "OEBPS/Images/obrazek_21.jpg"
+    },
+    {
+      "type": "image/jpeg",
+      "href": "OEBPS/Images/obrazek_22.jpg"
+    },
+    {
+      "type": "image/jpeg",
+      "href": "OEBPS/Images/obrazek_3.jpg"
+    },
+    {
+      "type": "image/jpeg",
+      "href": "OEBPS/Images/obrazek_4.jpg"
+    },
+    {
+      "type": "image/jpeg",
+      "href": "OEBPS/Images/obrazek_5.jpg"
+    },
+    {
+      "type": "image/jpeg",
+      "href": "OEBPS/Images/obrazek_6.jpg"
+    },
+    {
+      "type": "image/jpeg",
+      "href": "OEBPS/Images/obrazek_7.jpg"
+    },
+    {
+      "type": "image/jpeg",
+      "href": "OEBPS/Images/upoutavka_eknihy.jpg"
+    }
+  ],
+  "toc": [
+    {
+      "title": "Prolog",
+      "href": "OEBPS/Text/za_alpami_007.xhtml#_idParaDest-1"
+    },
+    {
+      "title": "DÍL PRVNÍ",
+      "children": [
+        {
+          "title": "I. Mathias a Dominika",
+          "children": [
+            {
+              "title": "1.",
+              "href": "OEBPS/Text/za_alpami_009.xhtml#_idParaDest-4"
+            },
+            {
+              "title": "2.",
+              "href": "OEBPS/Text/za_alpami_009.xhtml#_idParaDest-5"
+            },
+            {
+              "title": "3.",
+              "href": "OEBPS/Text/za_alpami_009.xhtml#_idParaDest-6"
+            },
+            {
+              "title": "4.",
+              "href": "OEBPS/Text/za_alpami_009.xhtml#_idParaDest-7"
+            },
+            {
+              "title": "5.",
+              "href": "OEBPS/Text/za_alpami_009.xhtml#_idParaDest-8"
+            },
+            {
+              "title": "6.",
+              "href": "OEBPS/Text/za_alpami_009.xhtml#_idParaDest-9"
+            }
+          ],
+          "href": "OEBPS/Text/za_alpami_009.xhtml#_idParaDest-3"
+        },
+        {
+          "title": "II. Kateřina a Jan",
+          "href": "OEBPS/Text/za_alpami_010.xhtml#_idParaDest-10"
+        },
+        {
+          "title": "III. Katharina a Clemens",
+          "children": [
+            {
+              "title": "1.",
+              "href": "OEBPS/Text/za_alpami_011.xhtml#_idParaDest-12"
+            },
+            {
+              "title": "2.",
+              "href": "OEBPS/Text/za_alpami_011.xhtml#_idParaDest-13"
+            },
+            {
+              "title": "3.",
+              "href": "OEBPS/Text/za_alpami_011.xhtml#_idParaDest-14"
+            },
+            {
+              "title": "4.",
+              "href": "OEBPS/Text/za_alpami_011.xhtml#_idParaDest-15"
+            },
+            {
+              "title": "5.",
+              "href": "OEBPS/Text/za_alpami_011.xhtml#_idParaDest-16"
+            },
+            {
+              "title": "6.",
+              "href": "OEBPS/Text/za_alpami_011.xhtml#_idParaDest-17"
+            },
+            {
+              "title": "Intermezzo – Michel Jouvet a sny",
+              "href": "OEBPS/Text/za_alpami_011.xhtml#_idParaDest-18"
+            },
+            {
+              "title": "7.",
+              "href": "OEBPS/Text/za_alpami_011.xhtml#_idParaDest-19"
+            },
+            {
+              "title": "8.",
+              "href": "OEBPS/Text/za_alpami_011.xhtml#_idParaDest-20"
+            },
+            {
+              "title": "Z K. knihy",
+              "href": "OEBPS/Text/za_alpami_011.xhtml#_idParaDest-21"
+            },
+            {
+              "title": "10.",
+              "href": "OEBPS/Text/za_alpami_011.xhtml#_idParaDest-22"
+            },
+            {
+              "title": "11.",
+              "href": "OEBPS/Text/za_alpami_011.xhtml#_idParaDest-23"
+            },
+            {
+              "title": "12.",
+              "href": "OEBPS/Text/za_alpami_011.xhtml#_idParaDest-24"
+            },
+            {
+              "title": "Z K. knihy",
+              "href": "OEBPS/Text/za_alpami_011.xhtml#_idParaDest-25"
+            },
+            {
+              "title": "14.",
+              "href": "OEBPS/Text/za_alpami_011.xhtml#_idParaDest-26"
+            },
+            {
+              "title": "15.",
+              "href": "OEBPS/Text/za_alpami_011.xhtml#_idParaDest-27"
+            },
+            {
+              "title": "Z K. knihy",
+              "href": "OEBPS/Text/za_alpami_011.xhtml#_idParaDest-28"
+            },
+            {
+              "title": "17",
+              "href": "OEBPS/Text/za_alpami_011.xhtml#_idParaDest-29"
+            }
+          ],
+          "href": "OEBPS/Text/za_alpami_011.xhtml#_idParaDest-11"
+        }
+      ],
+      "href": "OEBPS/Text/za_alpami_008.xhtml#_idParaDest-2"
+    },
+    {
+      "title": "DÍL DRUHÝ",
+      "children": [
+        {
+          "title": "1.",
+          "children": [
+            {
+              "title": "Z K. knihy",
+              "href": "OEBPS/Text/za_alpami_013.xhtml#_idParaDest-32"
+            },
+            {
+              "title": "3.",
+              "href": "OEBPS/Text/za_alpami_013.xhtml#_idParaDest-33"
+            },
+            {
+              "title": "Z K. knihy",
+              "href": "OEBPS/Text/za_alpami_013.xhtml#_idParaDest-34"
+            },
+            {
+              "title": "5.",
+              "href": "OEBPS/Text/za_alpami_013.xhtml#_idParaDest-35"
+            },
+            {
+              "title": "6.",
+              "href": "OEBPS/Text/za_alpami_013.xhtml#_idParaDest-36"
+            },
+            {
+              "title": "7.",
+              "href": "OEBPS/Text/za_alpami_013.xhtml#_idParaDest-37"
+            },
+            {
+              "title": "8.",
+              "href": "OEBPS/Text/za_alpami_013.xhtml#_idParaDest-38"
+            },
+            {
+              "title": "9.",
+              "href": "OEBPS/Text/za_alpami_013.xhtml#_idParaDest-39"
+            },
+            {
+              "title": "Z K. knihy",
+              "href": "OEBPS/Text/za_alpami_013.xhtml#_idParaDest-40"
+            },
+            {
+              "title": "11.",
+              "href": "OEBPS/Text/za_alpami_013.xhtml#_idParaDest-41"
+            },
+            {
+              "title": "12.",
+              "href": "OEBPS/Text/za_alpami_013.xhtml#_idParaDest-42"
+            }
+          ],
+          "href": "OEBPS/Text/za_alpami_013.xhtml#_idParaDest-31"
+        }
+      ],
+      "href": "OEBPS/Text/za_alpami_012.xhtml#_idParaDest-30"
+    },
+    {
+      "title": "DÍL TŘETÍ",
+      "children": [
+        {
+          "title": "I. Kolonie",
+          "children": [
+            {
+              "title": "Z M. deníku",
+              "href": "OEBPS/Text/za_alpami_015.xhtml#_idParaDest-45"
+            }
+          ],
+          "href": "OEBPS/Text/za_alpami_015.xhtml#_idParaDest-44"
+        },
+        {
+          "title": "II. Hauptstadt",
+          "children": [
+            {
+              "title": "1.",
+              "href": "OEBPS/Text/za_alpami_016.xhtml#_idParaDest-47"
+            },
+            {
+              "title": "2.",
+              "href": "OEBPS/Text/za_alpami_016.xhtml#_idParaDest-48"
+            },
+            {
+              "title": "Z M. deníku",
+              "href": "OEBPS/Text/za_alpami_016.xhtml#_idParaDest-49"
+            },
+            {
+              "title": "4.",
+              "href": "OEBPS/Text/za_alpami_016.xhtml#_idParaDest-50"
+            },
+            {
+              "title": "5.",
+              "href": "OEBPS/Text/za_alpami_016.xhtml#_idParaDest-51"
+            }
+          ],
+          "href": "OEBPS/Text/za_alpami_016.xhtml#_idParaDest-46"
+        },
+        {
+          "title": "III. Periferie",
+          "children": [
+            {
+              "title": "1.",
+              "href": "OEBPS/Text/za_alpami_017.xhtml#_idParaDest-53"
+            },
+            {
+              "title": "2.",
+              "href": "OEBPS/Text/za_alpami_017.xhtml#_idParaDest-54"
+            },
+            {
+              "title": "Z M. deníku",
+              "href": "OEBPS/Text/za_alpami_017.xhtml#_idParaDest-55"
+            },
+            {
+              "title": "4.",
+              "href": "OEBPS/Text/za_alpami_017.xhtml#_idParaDest-56"
+            },
+            {
+              "title": "Z M. deníku",
+              "href": "OEBPS/Text/za_alpami_017.xhtml#_idParaDest-57"
+            }
+          ],
+          "href": "OEBPS/Text/za_alpami_017.xhtml#_idParaDest-52"
+        },
+        {
+          "title": "IV. Krize",
+          "children": [
+            {
+              "title": "Z M. deníku",
+              "href": "OEBPS/Text/za_alpami_018.xhtml#_idParaDest-59"
+            },
+            {
+              "title": "2.",
+              "href": "OEBPS/Text/za_alpami_018.xhtml#_idParaDest-60"
+            },
+            {
+              "title": "Z M. deníku",
+              "href": "OEBPS/Text/za_alpami_018.xhtml#_idParaDest-61"
+            },
+            {
+              "title": "4.",
+              "href": "OEBPS/Text/za_alpami_018.xhtml#_idParaDest-62"
+            },
+            {
+              "title": "5.",
+              "href": "OEBPS/Text/za_alpami_018.xhtml#_idParaDest-63"
+            },
+            {
+              "title": "6.",
+              "href": "OEBPS/Text/za_alpami_018.xhtml#_idParaDest-64"
+            },
+            {
+              "title": "Z M. deníku",
+              "href": "OEBPS/Text/za_alpami_018.xhtml#_idParaDest-65"
+            },
+            {
+              "title": "8.",
+              "href": "OEBPS/Text/za_alpami_018.xhtml#_idParaDest-66"
+            },
+            {
+              "title": "9.",
+              "href": "OEBPS/Text/za_alpami_018.xhtml#_idParaDest-67"
+            },
+            {
+              "title": "10.",
+              "href": "OEBPS/Text/za_alpami_018.xhtml#_idParaDest-68"
+            },
+            {
+              "title": "11.",
+              "href": "OEBPS/Text/za_alpami_018.xhtml#_idParaDest-69"
+            },
+            {
+              "title": "12.",
+              "href": "OEBPS/Text/za_alpami_018.xhtml#_idParaDest-70"
+            }
+          ],
+          "href": "OEBPS/Text/za_alpami_018.xhtml#_idParaDest-58"
+        }
+      ],
+      "href": "OEBPS/Text/za_alpami_014.xhtml#_idParaDest-43"
+    },
+    {
+      "title": "Epilog",
+      "href": "OEBPS/Text/za_alpami_019.xhtml#_idParaDest-71"
+    }
+  ]
+}
