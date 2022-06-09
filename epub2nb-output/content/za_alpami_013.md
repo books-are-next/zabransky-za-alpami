@@ -5,17 +5,13 @@ contentType: prose
 
 ## 1.
 
-  
-
 Mathias odjel studovat do Berlína. Z provinčního západoněmeckého Wiesbadenu ve staré spolkové zemi, kde se všechno točilo kolem cen pozemků a finančnictví, do velkoměsta, které fakticky bylo na druhé straně, na Východě, a kde byl šev mezi jedním a druhým Německem víc než symbolický; v Berlíně šlo o šev doslovný, citelný, hmatatelný. Nikde v Německu ho nešlo nahmatat lépe.
 
 Život i pozemky v Berlíně měly zcela jiný význam, náplň a hodnotu. Friedrichshain, kde měl Mathias kolej, jedna ze čtvrtí, které během války při bombardováních utrpěly největší ztráty, byl jakýmsi Frankfurtem naruby; město zde nerostlo do výšky, protože nemuselo. Ve Friedrichshainu a dál v půlce Berlína na rozdíl od Frankfurtu nešlo o to, jak na omezeném městském prostoru získat víc prostoru pro město, tedy jak do města nacpat ještě o trochu víc vypulírovaného města, nýbrž o situaci opačnou: město zde leželo ladem a při zemi. Polorozpadlé průmyslové haly, jakýsi náčrt města; přibližné město na pomezí minulosti a budoucnosti.
 
 V roce 1997 to ještě stále bylo město mužů, hlavně východní části Berlína. Nosili vojenské kalhoty, bombery, vlasy nakrátko. Pro dívky tehdy Berlín neměl moc přitažlivosti. V berlínských klubech připadalo běžně na jednu holku deset patnáct kluků. Na ulicích člověk potkal spíše fašizující neonacisty než čistokrevné fashionistas; ti se do Berlína nastěhovali až o patnáct let později. Nešlo říct, kde končí oslava svobody a sjednocení a kde začíná fašistická bojůvka. Berlín Mathiasovi mohl nabídnout přesně to, co Wiesbaden postrádal: kvas a syrovost. Hudbu a styl, které vůbec neznal. Jako by sem z Wiesbadenu spadl přímo z měsíce. A přesto chtěl studovat právě tady; chtěl Berlín poznat, nešlo jen o to, že medicína na Humboldtově univerzitě měla dobrou pověst. Zároveň s Berlínem chtěl poznat i bydlení na koleji, přestože si bez problémů mohl pronajmout pokoj v soukromí.
 
-\* \* \*
-
-  
+* * *
 
 O hudbu se nikdy moc nezajímal. Jeho znalosti končily u populárních projektů, jako byly Modern Talking, Falco, Scooter či Culture Beat. Nic z toho nepůsobilo ani trochu subverzivně, šlo o nevzrušivé projekty, které jako by do jednoho byly protažením nějaké wiesbadenské _Biergarten_. Tatíci z pivních zahrádek by sice třeba agresivní hudbu projektu Scooter nesnesli, což ale nic neměnilo na tom, že to v zásadě byla jejich hudba.
 
@@ -25,9 +21,7 @@ Především techno přitom nešlo smést ze stolu coby pomíjivou a bezobsažn
 
 Mathias nic z toho nebral příliš vážně, ale vnímal to. V jeho hierarchii umění bezpochyby nejvýše stála medicína, a Berlín z pohledu studenta fakulty medicíny klidně mohl vypadat stejně spořádaně jako Wiesbaden. Člověk si vlastně ani nemusel všimnout, že žije v prostředku světa, který je v kvasu, syrový, nehotový, pokud chtěl jen ležet v knihách a stát před tabulí nebo na operačních sálech. Na ty dva dny v mezičase mezi otcovou smrtí a svým odjezdem na pohřeb se však Mathias instinktivně ponořil právě do té části Berlína, která byla syrová a nehotová.
 
-\* \* \*
-
-  
+* * *
 
 S Frauke se seznámil ještě předtím, než se jeho otec dověděl diagnózu. Někdy v říjnu, hned začátkem semestru. Byl tehdy na škole úplným nováčkem.
 
@@ -45,9 +39,7 @@ Frauke ale náhodou – samozřejmě – skupinu Radiohead milovala. Tehdy v 
 
 Od té doby však uběhly skoro tři měsíce. Mathiasovi zemřel otec, a když se Mathias po jeho smrti vracel na otočku vlakem z Wiesbadenu do Berlína, byla to z nouze právě Frauke, na kterou při tom ve vlaku na záchodě myslel. Při tom i potom. To bylo dobré znamení.
 
-\* \* \*
-
-  
+* * *
 
 Bydlela na stejné koleji. Zašel za ní hned po příjezdu z Wiesbadenu, jen se skočil rychle převléct. Vzal si na sebe úplně nové věci, ty, které si koupil v Berlíně, ale dosud se je neodvážil vytáhnout ze skříně.
 
@@ -75,9 +67,7 @@ I slepec by musel vidět, jak ta holka najednou taje. Nikdy v životě se nese
 
 Pak už šlo všechno rychle. Bylo úterý, ale rozhodli se, že přinesou oběť technu. Zítra ve škole holt budou trochu unavení. Otec ale člověku přece jenom neumírá každý den.
 
-\* \* \*
-
-  
+* * *
 
 Co na tom všem nakonec bylo úplně nejpozoruhodnější, nebylo těch sedm nebo osm piv značky Clausthaler, která spolu vypili, a dokonce ani sex na záchodku, nýbrž fakt, že Mathiase neznechutila hudba, kterou v tom malém studentském klubu hráli.
 
@@ -105,9 +95,7 @@ Mathias přitom Frauke nijak nešetřil. V podstatě ještě dlouho předtím, 
 
 O tom jejím dvojoboru vůbec nemohla být řeč, ten si Frauke samozřejmě sbalila a vytahovala ho jenom ve chvílích, kdy byla sama zabarikádovaná ve svém pokoji. Trochu se při tom styděla. A Mathias zapomněl, jaký dvojobor Frauke vlastně studuje.
 
-\* \* \*
-
-  
+* * *
 
 Jeho život se tehdy dělil mezi medicínu, chůzi, celkové zlepšování fyzičky, techno a Frauke. Samozřejmě velmi nerovným dílem a s velmi různými předznamenáními. Medicínu, chůzi, svoji fyzičku a techno bral velmi vážně. Byly to věci, na kterých mu záleželo, oblasti, ve kterých se plně angažoval a s nimiž se cítil být za jedno. Frauke na druhé straně vnímal jako pobavení a kuriozitu, u které se zastavil, když už bylo všechno důležité vyřízeno. V jejích záležitostech ani v samotném jejich vztahu se neangažoval, tuhle činnost přenechal Frauke; něco jako starost o domácnost.
 
@@ -115,9 +103,7 @@ Měl dar dělat si svět jasným, přehledným. Zatímco Fraučina skripta, jak 
 
 Když si pak někdy v té době přečetl ve skriptech Jouvetovu teorii a popis jeho experimentů na kočkách, ta teorie ho nadchla a plynule ji zasadil do svého už tak velmi hezky uspořádaného světa. Jouvet svým pokusným kočkám odstranil _locus coeruleus_ a zjistil, že kočičí sny s velkou pravděpodobností plní jistou kompenzační úlohu; v podstatě šlo o potvrzení teorie o panu Jekyllovi a panu Hydovi. Tomu Mathias rozuměl. Zatímco on byl den, pan Hyde, Frauke byla jeho noční můra. A ještě na jednu oblast se Jouvetova teorie dala velmi dobře aplikovat: na tanec a na techno.
 
-\* \* \*
-
-  
+* * *
 
 Techno a svižná nepřerušovaná chůze, miloval obojí. Pokud by se v letech 1998 až 2002, kdy se s Frauke po čtyřech letech vztahu rozešel, měl vzdát byť i jen jedné z těch dvou činností, nebo Frauke, volil by bez váhání Frauke, přestože i ji svým způsobem chtěl a potřeboval. Techno a chůze se mu ale staly drogou, chůze dokonce každodenní. Ta pravidelnost člověka až zarážela. Vstával každý den v šest hodin, aby před školou stihl ujít svých pět a půl kilometru do Treptowského parku a zpátky.
 
@@ -131,9 +117,7 @@ Tou odvrácenou stranou nakonec asi skutečně byl spíše vztah s Frauke. Prá
 
 Téměř ihned ji přerostl, a to ve všech ohledech. Pokud pro jejich vztah bylo něco typické, pak to bylo Fraučino nestíhání, její dezorientace a pomalost. Vláčel ji za sebou jako kouli u nohy. Zatímco Mathias během těch prvních měsíců poznával Berlín po kilometrech, po celých čtvrtích, ohromnými kusanci, Frauke se pořád motala na místě u školy a u kolejí. Zatímco on dál hubl a nabíral svaly, ona si držela svoji nadváhu. A k té největší absurditě pak došlo na konci roku 1998, když spolu byli asi jedenáct měsíců. Mathias ji tehdy předhonil i na jejím vlastním hřišti! A dokonce tím zabil dvě mouchy jednou ranou.
 
-\* \* \*
-
-  
+* * *
 
 Jeho matka psala, to byl fakt, to nešlo zpochybnit. Vycházely jí knížky, jedna z nich zrovna koncem roku 1998. Autorka Katharina Walter se v ní po svém vypořádávala s nemocí a smrtí svého manžela.
 
@@ -151,9 +135,7 @@ Fraučin názor na Katharinu znal, byl téměř totožný s tím jeho, vždyť 
 
 Pak ale vydal své básně. Byly tři, dohromady něco kolem pouhých čtyř set slov, ani ne, a vyšly začátkem prosince 1998 v literárním obtýdeníku s názvem _TEXT minus KRITIK_.
 
-\* \* \*
-
-  
+* * *
 
 K té možnosti se dostal přes techno. Mezi scénou, na které se tančilo, a scénou, na které se psalo a vydávaly se černobílé literární časopisy, nebyla až tak velká propast; fungovaly zde spojky, věční hledači.
 
@@ -161,15 +143,13 @@ Ze skupinky, která vydávala _TEXT minus KRITIK_, nikdo neměl rád knížky Ka
 
 Mathias dlouho neváhal. Na nabídku přitom nekývl ani tak kvůli matce nebo kvůli lidem z časopisu, nýbrž kvůli své Frauke. Přišlo mu to jako dobrý vtip: on, aspirant medicíny, kterého by ani ve snu nenapadlo, že by kdy v životě mohl mít k dispozici byť i jen jeden zbylý den, který by mohl obětovat takovým malichernostem, jako je popisování papíru, zničehonic sedne a obětuje se. Napíše text a literární časopis ho otiskne. On, člověk, který se připravuje na zachraňování lidských životů, on, dospělý člověk, který dávno rozeznal skutečné hodnoty, on to tomu děťátku, které stále dokola studuje svůj humanitně založený dvojobor, nandá na jejím vlastním hřišti. Frauke roky cosi sepisuje, jako každý, kdo studuje humanitní vědy, a pak přijde Mathias a – veni, vidi, vici!
 
-\* \* \*
-
-  
+* * *
 
 Zabralo mu to asi tři hodiny. Nakonec se rozhodl, že se vyhne tématu matka. Místo toho básnil o ženské kráse, mládí a svěžesti:
 
-její kůže byla vypnutá  
+_její kůže byla vypnutá  
 jako plachty  
-do nichž se opírá příroda
+do nichž se opírá příroda_
 
 Pokud by měl říct, do jaké míry to všechno bral vážně, odpovídalo by se mu kupodivu docela těžko. Na jedné straně to samozřejmě byl jen ohromný vtip, který měl zároveň ilustrovat Mathiasovu genialitu; doktor s nulovými literárními zkušenostmi a ambicemi bez problému píše a tiskne docela povedené básně.
 
@@ -187,9 +167,7 @@ Byla to pravda. Týkalo se to jedné mizerné zkoušky na kulturo­logii, ale st
 
 Jakmile ho Frauke začala v posteli kouřit, nikdy ji při tom nenechal déle než pár desítek vteřin. Místo toho sám převzal aktivitu a „Fraučin blowjob“ se v rámci nějaké vyšší logiky ihned začal proměňovat v Mathiasovo líné zasunování penisu do Fraučina obličeje.
 
-\* \* \*
-
-  
+* * *
 
 Vánoce 1998 se nakonec rozhodli strávit ve Wiesbadenu, Mathias se před matkou chtěl ukázat s literárním časopisem. Vyrazili vlakem s batohy na zádech. Mathias doma nebyl víc než půl roku a za tu dobu se na Nerotalu hodně změnilo.
 
@@ -209,29 +187,25 @@ Věděl, že tu poslední větu si měl odpustit. Zněla až příliš připrave
 
 ## Z K. knihy
 
-  
+> Co taky jiného. Chudáček. Mathiasovi tehdy bylo teprve devatenáct let, na to nesmíme zapomínat.
 
-Co taky jiného. Chudáček. Mathiasovi tehdy bylo teprve devatenáct let, na to nesmíme zapomínat.
+> „Frauke vypadá mile,“ řekla jsem rychle.
 
-„Frauke vypadá mile,“ řekla jsem rychle.
+> Pak jsem si od něj vzala ten časopis a nalistovala jsem jeho básničky. Přečetla jsem si je a řekla jsem mu, že se mi líbí. Přečkali jsme to bez úhony. K té menší tragédii došlo až třiadvacátého večer čili až druhého dne. To v našem případě vůbec nebyl špatný výkon.
 
-Pak jsem si od něj vzala ten časopis a nalistovala jsem jeho básničky. Přečetla jsem si je a řekla jsem mu, že se mi líbí. Přečkali jsme to bez úhony. K té menší tragédii došlo až třiadvacátého večer čili až druhého dne. To v našem případě vůbec nebyl špatný výkon.
+> Pravda je taková, že s Tobiasem jsem tehdy ještě nic neměla. Byli jsme přátelé, pracoval pro mého nakladatele jako editor na volné noze. Na mé poslední knížce jsme spolupracovali úplně poprvé, předtím jsem ho neznala. Když jsme spolu mluvili o mém textu, nemyslela jsem si na něj, ani mě to nenapadlo. Fakt, že se slovo od slova musel probírat mým složitým vztahem ke Clemensovi a v posledních kapitolách pak i jeho smrtí, Tobiase v mých očích absolutně vylučoval byť i z toho úplně nejširšího okruhu, na který jsem kdy byly schopná hledět jako na své potenciální partnery nebo na muže vůbec. Byl o rok mladší než já. Vystudoval germanistiku na mnichovské univerzitě, obstojný odborník na Hofmannsthala. Sám občas publikoval, byť převážně jen časopisecky.
 
-Pravda je taková, že s Tobiasem jsem tehdy ještě nic neměla. Byli jsme přátelé, pracoval pro mého nakladatele jako editor na volné noze. Na mé poslední knížce jsme spolupracovali úplně poprvé, předtím jsem ho neznala. Když jsme spolu mluvili o mém textu, nemyslela jsem si na něj, ani mě to nenapadlo. Fakt, že se slovo od slova musel probírat mým složitým vztahem ke Clemensovi a v posledních kapitolách pak i jeho smrtí, Tobiase v mých očích absolutně vylučoval byť i z toho úplně nejširšího okruhu, na který jsem kdy byly schopná hledět jako na své potenciální partnery nebo na muže vůbec. Byl o rok mladší než já. Vystudoval germanistiku na mnichovské univerzitě, obstojný odborník na Hofmannsthala. Sám občas publikoval, byť převážně jen časopisecky.
+> Nevím, jestli ve mně Tobias viděl hvězdu. Pokud ano, nedával to najevo. Moje pozice na německém trhu tehdy přitom byla docela solidní. V porovnání s ním jsem na tom byla přímo skvěle. Pravda, měla jsem rok náskok, když byl o rok mladší, ale jen těžko šlo předpokládat, že mě za ten rok stihne dohnat nebo předehnat. Pokud bych ho měla vystihnout jedním slovem, řekla bych: korektní. Pokud jednou větou, pak bych řekla, že ještě tak úplně neznal své možnosti, takže byl pro jistotu korektní, aby se pak nemusel omlouvat a žehlit si to u půlky národa. Po fyzické stránce hezký muž, nijak vysoký, ale štíhlý, sportovní typ. Vždy byl upravený a nosil pěkné kostěné brýle. Rozvedený, tři roky, prý kvůli ní, dvě děti. Se ženou bydleli v Bonnu, do Frankfurtu se kvůli práci přestěhoval teprve před dvěma lety. Oba jsme byli sami, samozřejmě jsme se k tomu tématu dostali, vždyť to přímo souviselo s námětem mé knihy.
 
-Nevím, jestli ve mně Tobias viděl hvězdu. Pokud ano, nedával to najevo. Moje pozice na německém trhu tehdy přitom byla docela solidní. V porovnání s ním jsem na tom byla přímo skvěle. Pravda, měla jsem rok náskok, když byl o rok mladší, ale jen těžko šlo předpokládat, že mě za ten rok stihne dohnat nebo předehnat. Pokud bych ho měla vystihnout jedním slovem, řekla bych: korektní. Pokud jednou větou, pak bych řekla, že ještě tak úplně neznal své možnosti, takže byl pro jistotu korektní, aby se pak nemusel omlouvat a žehlit si to u půlky národa. Po fyzické stránce hezký muž, nijak vysoký, ale štíhlý, sportovní typ. Vždy byl upravený a nosil pěkné kostěné brýle. Rozvedený, tři roky, prý kvůli ní, dvě děti. Se ženou bydleli v Bonnu, do Frankfurtu se kvůli práci přestěhoval teprve před dvěma lety. Oba jsme byli sami, samozřejmě jsme se k tomu tématu dostali, vždyť to přímo souviselo s námětem mé knihy.
+> Věděla jsem, že pozvat Tobiase na večeři zrovna o Štědrém dni byl hodně odvážný krok. Ale rozhodla jsem se, že za nás za všechny ten krok udělám: pozvala jsem ho, děj se vůle boží! Bylo mi čtyřiačtyřicet. Od Clemensovy smrti jsem se nikoho ani nedotkla, a to už byl rok. Kdo mi může vyčítat, že jsem měla prostou lidskou potřebu? Dobře, to načasování, dobře, Mathiasovo lpění na otci a jeho památce. Dobře, kvůli tomu všemu jsem si možná ten nápad měla rozmyslet. Měla jsem být taktní. Možná jsem si ale myslela, že taktní bude Tobias a že to stačí, co já vím.
 
-Věděla jsem, že pozvat Tobiase na večeři zrovna o Štědrém dni byl hodně odvážný krok. Ale rozhodla jsem se, že za nás za všechny ten krok udělám: pozvala jsem ho, děj se vůle boží! Bylo mi čtyřiačtyřicet. Od Clemensovy smrti jsem se nikoho ani nedotkla, a to už byl rok. Kdo mi může vyčítat, že jsem měla prostou lidskou potřebu? Dobře, to načasování, dobře, Mathiasovo lpění na otci a jeho památce. Dobře, kvůli tomu všemu jsem si možná ten nápad měla rozmyslet. Měla jsem být taktní. Možná jsem si ale myslela, že taktní bude Tobias a že to stačí, co já vím.
+> V každém případě jsem to Mathiasovi a Frauke řekla nad miskou bulguru se zeleninou smaženou jen na trošce olivového oleje. Bylo třiadvacátého večer a pánev opravdu byla skoro úplně suchá; vzala jsem pak ještě ubrousek a setřela jsem ji, než jsem tam hodila zeleninu. Tehdy bohužel ještě nebyl v obchodech ke koupi ten postmileniální vynález, kuchyňský olej ve spreji. Pokud by byl, pánev bych jenom posprejovala, hlavně abych synáčkovi vyšla vstříc, hlavně aby nevyváděl jako onehdy nad kachnou.
 
-V každém případě jsem to Mathiasovi a Frauke řekla nad miskou bulguru se zeleninou smaženou jen na trošce olivového oleje. Bylo třiadvacátého večer a pánev opravdu byla skoro úplně suchá; vzala jsem pak ještě ubrousek a setřela jsem ji, než jsem tam hodila zeleninu. Tehdy bohužel ještě nebyl v obchodech ke koupi ten postmileniální vynález, kuchyňský olej ve spreji. Pokud by byl, pánev bych jenom posprejovala, hlavně abych synáčkovi vyšla vstříc, hlavně aby nevyváděl jako onehdy nad kachnou.
+> „Na večeři zítra přijde jeden můj známý,“ řekla jsem a klovla jsem do zrní, jako by o nic nešlo. „Tobias, můj editor, moc milý člověk,“ dodala jsem.
 
-„Na večeři zítra přijde jeden můj známý,“ řekla jsem a klovla jsem do zrní, jako by o nic nešlo. „Tobias, můj editor, moc milý člověk,“ dodala jsem.
-
-Ta jeho Frauke okamžitě sklopila hlavu. Jako při náletu, pomyslela jsem si.
+> Ta jeho Frauke okamžitě sklopila hlavu. Jako při náletu, pomyslela jsem si.
 
 ## 3.
-
-  
 
 Sbalili se a za velkého humbuku z Nerotalu zmizeli ještě toho večera. Do Berlína jim samozřejmě nic nejelo, nakonec si museli najít nějakou ubytovnu ve Frankfurtu, dál na Berlín složitě pokračovali o Štědrém dni.
 
@@ -243,33 +217,29 @@ Sotva se s ní Tobias rozešel, Katharina o tuposti mileniálního davu napsal
 
 ## Z K. knihy
 
-  
+> Seděla jsem tehdy jednatřicátého prosince roku 1999 ve své vile a přemýšlela jsem, co se vlastně toho dne slaví. Můj pes už byl po smrti a silvestr byl jedním z těch dnů, kdy jsem za to byla docela ráda; pro oba naše psy a pro jejich citlivé uši bylo vítání nového roku doslova utrpením.
 
-Seděla jsem tehdy jednatřicátého prosince roku 1999 ve své vile a přemýšlela jsem, co se vlastně toho dne slaví. Můj pes už byl po smrti a silvestr byl jedním z těch dnů, kdy jsem za to byla docela ráda; pro oba naše psy a pro jejich citlivé uši bylo vítání nového roku doslova utrpením.
+> Stejně tak jsem toho dne byla moc vděčná za Nerotal. V našem bezprostředním sousedství bydlí jen vyšší střední třída, většinou lidé nad padesát, kteří si umějí získat pozornost jinak než děláním rámusu. Od města se ale už někdy od třetí hodiny odpoledne občas ozvala zábavní pyrotechnika.
 
-Stejně tak jsem toho dne byla moc vděčná za Nerotal. V našem bezprostředním sousedství bydlí jen vyšší střední třída, většinou lidé nad padesát, kteří si umějí získat pozornost jinak než děláním rámusu. Od města se ale už někdy od třetí hodiny odpoledne občas ozvala zábavní pyrotechnika.
+> Po obědě jsem po telefonu mluvila se svojí polskou přítelkyní Gosiou. Původně jsem ji zvala na silvestra k sobě, ale nemohla přijít, zůstala doma s Hansem. Bydleli jen asi tři sta metrů od nás. Až později jsem se dověděla, že Hans tehdy už byl těžce nemocný, zemřel brzy po Novém roce.
 
-Po obědě jsem po telefonu mluvila se svojí polskou přítelkyní Gosiou. Původně jsem ji zvala na silvestra k sobě, ale nemohla přijít, zůstala doma s Hansem. Bydleli jen asi tři sta metrů od nás. Až později jsem se dověděla, že Hans tehdy už byl těžce nemocný, zemřel brzy po Novém roce.
+> Když jsem jí volala, mohlo být tak půl páté. Rány přicházející od města se stupňovaly, ale na Nerotalu byl stále klid. Děkovaly jsme s Gosiou bohu, jaké máme štěstí.
 
-Když jsem jí volala, mohlo být tak půl páté. Rány přicházející od města se stupňovaly, ale na Nerotalu byl stále klid. Děkovaly jsme s Gosiou bohu, jaké máme štěstí.
+> Telefonovala jsem s ní snad dvacet minut. Vzpomínaly jsme na své začátky v Německu, na naše tenisové zápasy, na ty docela šťastné chvíle na přelomu sedmdesátých a osmdesátých let, kdy jsme se cítily být na koni.
 
-Telefonovala jsem s ní snad dvacet minut. Vzpomínaly jsme na své začátky v Německu, na naše tenisové zápasy, na ty docela šťastné chvíle na přelomu sedmdesátých a osmdesátých let, kdy jsme se cítily být na koni.
+> „Ty naše drinky u kurtu,“ řekla Gosia do telefonu. Zněla posmutněle, důvody jsem pochopila až později, po Hansově úmrtí.
 
-„Ty naše drinky u kurtu,“ řekla Gosia do telefonu. Zněla posmutněle, důvody jsem pochopila až později, po Hansově úmrtí.
+> „No jasně,“ odvětila jsem. Snažila jsem se jí dodat trochu energie. „Lovily jsme olivy a pecky jsme pak střílely pusou do keřů. A když už jsme u střílení,“ pokračovala jsem co nej­energičtěji, „tak si říkám… Kde mají všichni ti naši sousedi děti? Víš co… Jsme tady zas jako dvě královny, žhavíme linky, žijeme si na kopci, v suchu a ve vatě, pod námi město plné Němců. My odtamtud z těch komunistických sraček, a přesto jsme nakonec tady na kopci. Devadesát procent Němců někde v mlze pod námi… Ale co to ticho, Gosio? To je přece divný, ne, co říkáš?“ zeptala jsem se a podívala jsem se při té otázce k oknu, za kterým byl v dálce vidět Wiesbaden.
 
-„No jasně,“ odvětila jsem. Snažila jsem se jí dodat trochu energie. „Lovily jsme olivy a pecky jsme pak střílely pusou do keřů. A když už jsme u střílení,“ pokračovala jsem co nej­energičtěji, „tak si říkám… Kde mají všichni ti naši sousedi děti? Víš co… Jsme tady zas jako dvě královny, žhavíme linky, žijeme si na kopci, v suchu a ve vatě, pod námi město plné Němců. My odtamtud z těch komunistických sraček, a přesto jsme nakonec tady na kopci. Devadesát procent Němců někde v mlze pod námi… Ale co to ticho, Gosio? To je přece divný, ne, co říkáš?“ zeptala jsem se a podívala jsem se při té otázce k oknu, za kterým byl v dálce vidět Wiesbaden.
+> „Kurva, kde ti naši sousedi mají děti!“ zopakovala jsem. To už jsem se hystericky smála. Zatímco všude kolem dál bylo absolutní ticho.
 
-„Kurva, kde ti naši sousedi mají děti!“ zopakovala jsem. To už jsem se hystericky smála. Zatímco všude kolem dál bylo absolutní ticho.
+> „Ticho. Chápeš mě, Gosio? Jasně že naše generace už má jiné starosti než dělat bordel, díkybohu. Ale tihle lidi tady kolem, ti přeci mají děti. A kde ty děti dneska jsou? Vypadly z domu, řekly svým zaprděným maloměšťáckým rodičům _fuck off_, a odjely slavit někam do Frankfurtu…? Nebo jsou doma a nezajímá je to, nějaké rachejtle…? To mi neříkej, Gosio, že nějakýho šestnáctiletýho fakana nezajímá, že nějaká rachejtle umí udělat bum, ne, tomu nevěřím, že by to ve čtyři hodiny odpoledne aspoň nezkusili… Nevěřím, že rodičovský prachy ze zdejších fakanů udělaly jenom kandidáty na Nobelovy ceny, konec barbarství…“
 
-„Ticho. Chápeš mě, Gosio? Jasně že naše generace už má jiné starosti než dělat bordel, díkybohu. Ale tihle lidi tady kolem, ti přeci mají děti. A kde ty děti dneska jsou? Vypadly z domu, řekly svým zaprděným maloměšťáckým rodičům _fuck off_, a odjely slavit někam do Frankfurtu…? Nebo jsou doma a nezajímá je to, nějaké rachejtle…? To mi neříkej, Gosio, že nějakýho šestnáctiletýho fakana nezajímá, že nějaká rachejtle umí udělat bum, ne, tomu nevěřím, že by to ve čtyři hodiny odpoledne aspoň nezkusili… Nevěřím, že rodičovský prachy ze zdejších fakanů udělaly jenom kandidáty na Nobelovy ceny, konec barbarství…“
+> Neudržela jsem se. Celá ta situace mi přišla přízračná. Teprve teď, když se naše civilizace vydrápala k mileniálnímu vrcholu, který z pohledu rozumu nebyl žádným vrcholem (protože všechno to byla jenom čísla, nejen 1999 a 2000 čili ty dvě cifry, které se lidem líbily a kvůli kterým se rozhodli oslavu uspořádat v chybném roce, o rok dřív, ale i 2001, i to je pouhé číslo, tedy žádný skutečný vrchol), teprve v té chvíli jsem si uvědomila, jak vysoko jsem se za ty poslední dvě dekády vydrápala já sama.
 
-Neudržela jsem se. Celá ta situace mi přišla přízračná. Teprve teď, když se naše civilizace vydrápala k mileniálnímu vrcholu, který z pohledu rozumu nebyl žádným vrcholem (protože všechno to byla jenom čísla, nejen 1999 a 2000 čili ty dvě cifry, které se lidem líbily a kvůli kterým se rozhodli oslavu uspořádat v chybném roce, o rok dřív, ale i 2001, i to je pouhé číslo, tedy žádný skutečný vrchol), teprve v té chvíli jsem si uvědomila, jak vysoko jsem se za ty poslední dvě dekády vydrápala já sama.
-
-Od absolutní nejistoty k absolutní jistotě!
+> Od absolutní nejistoty k absolutní jistotě!
 
 ## 5.
-
-  
 
 Později toho dne Katharina ještě zkusila zavolat Mathiasovi, ale nesehnala ho. Přesněji řečeno, Mathias ihned zavěsil, sotva se na druhé straně ozvala Katharina. A stejně tomu mělo být po další čtyři roky až do Mathiasovy svatby, kdy se matka se synem aspoň trochu udobřili.
 
@@ -279,9 +249,7 @@ Podnikání v těchto dvou oblastech ho skutečně vzrušovalo. Medicína a te
 
 Stejnou nikdy nekončící novost by pravděpodobně člověk mohl najít i v Evě Weber; i ta se jistě každé ráno vedle Mathiase probouzela vždy o kousek jiná, i v ní by šlo bez ustání nalézat nová vzrušující překvapení, odhalovat drobné změny, sta tisíce a miliony nových úhlů pohledu, nové hry světla a stínu. I s Evou by šlo podnikat vzrušivé výpravy do jejího nitra, kde by člověk mohl s úžasem hledět na ty čím dál hlouběji zasuté fasety její duše, nebo třeba žasnout nad čím dál většími možnostmi jejího análního otvoru. Eva Weber prostě byla na roveň medicíny a techna, a Mathias byl vůl, že si toho nevšiml nebo že toho odmítal využívat. Ne, vlastně zde přece jen byl jeden rozdíl.
 
-\* \* \*
-
-  
+* * *
 
 V létě 2003, to už spolu byli rok, Mathias s Evou znovu odjeli do Řecka. Jejich vztah tehdy byl dvěma slovy docela profesionální. Vlastně je to oba permanentně překvapovalo, ale nedávali to najevo; když jeden nic neříkal a dělal, že je vše v naprostém pořádku, ani druhý nic neříkal a dělal, že je vše v naprostém pořádku. Přistoupili na to, že jsou po dvanácti měsících vztahu jacísi mladičcí čtyřiadvacetiletí manželé, kteří mají tu smůlu nebo to štěstí, že pocházejí z nejbohatší části Evropy, a navíc mají oba docela bohaté rodiče, což je holt vede k tomu, že musejí po světě chodit poněkud velkopansky a dávat při tom na odiv svoji zděděnou vyspělost. Takoví lidé, jako tehdy byli Eva s Mathiasem, ti, když přijeli kamkoli mimo západní Německo, jejich život se prakticky okamžitě změnil v život poskládaný z řešení jen úplně drobných starostí a z užívání si ohromných ekonomických bonusů. Nefungující klimatizace a hodně výhodné ceny míchaných nápojů. Nádherná pláž, ale autobus, který k ní jezdil, nikdy nepřijel na čas, takže si to několikrát po čtvrt hodině čekání rozmysleli a šli na pláž u jejich hotelu.
 
@@ -299,9 +267,7 @@ V celku asi nešlo očekávat, že ta situace na Evině zadku někdy bude lepš
 
 Právě v tom byl rozdíl mezi medicínou a technem na jedné straně a Evou Weber na straně druhé.
 
-\* \* \*
-
-  
+* * *
 
 Mathiase v té době asi skutečně přitahovalo mládí a především až absolutní neporušenost; taková, jaká může zůstat snad jen na papíře. Láska k barevným dámským časopisům a k jejich modelkám mu zůstala. Dál si lesklé časopisy kupoval, nestyděl se za to; svým způsobem měl dojem, že zájem o ně patří k jeho profesi.
 
@@ -311,9 +277,7 @@ Na druhé straně však platí, že lékaři, tito oceánografové lidství, maj
 
 Ani tím ale není ta složitá otázka konečně zodpovězena. Není tomu prostě tak, že medicína a její cíl jsou nepovrchní, zatímco medici a lékaři jsou v rámci nějaké kompenzace povrchní. Ještě je k tomu všemu třeba připočítat jeden aspekt, a to ten, že zdraví samo o sobě nemá příliš smyslu, pokud není funkční. A funkční v moderním světě evropského Západu na přelomu milénia znamenalo především pěkné. Zdraví, pokud nebylo pěkné, prostě bylo k ničemu.
 
-\* \* \*
-
-  
+* * *
 
 Mathias Walter byl v době, kdy v dubnu 2004 promoval na fakultě medicíny Humboldtovy univerzity v Berlíně, posedlý svým tělem. Krom toho stále miloval techno. Byla to integrální součást jeho osobnosti. Tvrdil, že je to jeho životní láska, a měl pravdu.
 
@@ -329,15 +293,11 @@ Byli to spíše šťastlivci než sobci. A rozhodně o nich nelze mluvit jako 
 
 ## 6.
 
-  
-
 Prvního května 2004 do Evropské unie spolu s dalšími devíti zeměmi vstoupila i Česká republika. Pro Mathiasův další život to nakonec měla být zásadní událost, tehdy si ale Mathias změny málem ani nevšiml. Zeď mezi Západem a Východem v podstatě stála dál; staré členské státy neumožnily občanům nových členských zemí volný vstup na svůj pracovní trh.
 
 Mathias sám měl navíc tisíc a jednu starost. O měsíc dříve promoval. V květnu se právě stěhoval do Erlangenu, kde poté měl už o měsíc později nastoupit na svoji první full-time lékařskou pozici v tamní univerzitní nemocnici.
 
-\* \* \*
-
-  
+* * *
 
 Erlangen tehdy byl se svými sto tisíci obyvateli nejmenším z celkem osmi velkoměst svobodného státu Bavorsko. Spolu s Norimberkem a Fürthem tvořil souměstí, takzvaný Metropolitní region Norimberk, jeden z jedenácti regionů tohoto typu v Německu. Nemocnice Charité, Mathiasova berlínská fakultní klinika, už asi tři roky v mnoha oblastech spolupracovala s rychle rostoucí a stále významnější Univerzitou Friedricha Alexandera v Erlangenu a Norimberku, jak zněl její plný název, ať už se to týkalo výměnných programů, či společných výzkumných projektů. Erlangenská univerzita těžila z bavorské prosperity a chuti stavět prosperitu na odiv. Co se týkalo medicíny, Erlangen to o pár let později dotáhl tak daleko, že se mu začalo říkat „Spolkové hlavní město medicíny“.
 
@@ -347,9 +307,7 @@ Souměstí Erlangen–Norimberk na tom samozřejmě v tomto ohledu bylo ještě
 
 Co naopak Mathiasovi vyhovovalo, byla zdejší zacílenost na výkon a na přesnost, která se odehrávala na oněch ultramoderních pontonech plovoucích v moři zelí. V Metropolitním regionu Norimberk měl své četné pobočky koncern Siemens AG, v bavorském Mnichově pak sídlila a vyráběla na špičkových robotických linkách automobilka BMW. Právě tak nějak si Mathias představoval medicínu: jako sterilní a robotickou výrobnu. Velkým bonusem byl v rámci rozhodování fakt, že se jednalo o nemocnici na Západě. Studium v Berlíně Mathiasovi stačilo, pokud šlo o zkušenosti s východním Německem.
 
-\* \* \*
-
-  
+* * *
 
 V Berlíně střídavě chodil do klubů na Východě i na Západě, do těch špi­navých i do těch vypulírovaných, do těch, do kterých se chodilo v černé od hlavy až k patě, i do těch, kde se nosila jeho oblíbená trička s límečkem, klidně i růžová či bílá. K vidění často byla ta od značky Lacoste – na Východě něco nemyslitelného. A stejná mnohost se původně týkala i hudby. V Berlíně poslouchal jak špinavé techno, analogové, plné ruchů a disonancí, svým způsobem hledačské a ambi­ciózní, tak to úplně nejčistší, kompletně digitální, minimalistické. V pětadvaceti, když dostudoval, se jednoznačně přiklonil na stranu límečků a čistoty. Skončilo to, čemu říkal „Ausflüge in den Osten“.
 
@@ -357,23 +315,17 @@ Těmi „výlety na Východ“ přitom Mathias nemyslel jen utržená prkýnka n
 
 V době, kdy se stěhoval do Erlangenu, byl prostě Mathias jednoznačně na straně principů, které v technu naplňoval styl zvaný minimal, v průmyslu pak firmy typu Bayerische Motoren Werke. Vše, co vycházelo z jiného ideového zázemí, z „Prinzip Ost“, pro Mathiase bylo dětské a naivní. Ambiciózní, cílevědomý a svým způsobem brutální byl na druhé straně bez ustání se opakující techno beat či „klik“ hudebního syntezátoru Moog Modular, jak o něm o mnoho let později v písni skupiny Daft Punk mluvil skladatel Giorgio Moroder. Klik je brutální i uklidňující. Zapadá do času, s robotickou pravidelností, kliky ale zároveň zapadají jeden do druhého. Jde o formu lidského řetězu, jen bez lidí. Klik je družba pro samotáře, víra těch, kdo se rádi spoléhají sami na sebe, ale kdo zároveň mají úzkost ze smrti a strach z osamění, které by mělo být absolutní; klik je stěna, která má schopnost bez ustání potvrzovat, že za stěnou je další život. Klik je ideální míra, bezpečná či soukromá zóna. Klik je loket, jímž si držíme druhé v ideální vzdálenosti od těla.
 
-\* \* \*
-
-  
+* * *
 
 Mathias v době, kdy si na dálku z Berlína sháněl ubytování v Erlangenu, měl tu výhodu, že v Berlíně nikoho neopouštěl nebo nemusel řešit ještě cizí stěhování. Eva se s ním rozešla před devíti měsíci, od té doby měl jen náhodné známosti. Ani jedna z těch dívek, z nichž opět všechny byly v Mathiasově věku, ho nepřiměla k tomu, aby vystoupil ze svého pravidelného rytmu a dal byť i jen na chvíli přednost „Prinzip Ost“.
 
 Medicína navíc řádnost vyžadovala. Se studenty žádného jiného oboru nebylo spojeno tolik očekávání. Berlínským medikům a medičkám bylo kolem pětadvaceti, v podstatě ještě mladá ucha, ale celá německá veřejná i soukromá sféra se k nim chovala jako k učencům, kteří do Berlína léta páně 2004 přicestovali odněkud z devatenáctého století. V celkově korektním německém prostředí se medikům dostávalo až ultra korektnosti. Obstupovala je nábožná bázeň. Farmaceutické firmy si je už teď předcházely sponzoringem, pozvánkami na vědecké kongresy v luxusních přímořských rezidencích či online předplatnými vědeckých časopisů. Výsledný pocit pak byl pocit zatěžkanosti a nepoměru. Medici a medičky nesli na hrbu až příliš; a skoro všechno, co nesli, je násobně přesahovalo. Pokud šlo o jejich mladická nitra, mladí muži a ženy na jejich rozvoj nutně rezignovali. Dušičky zaostávaly a sesychaly, zatímco navenek jejich životy vypadaly ještě vitálněji a velkolepěji; uvnitř seschlý zanedbaný ořech, navenek záplava barev a plodnosti.
 
-\* \* \*
-
-  
+* * *
 
 Mathiasova budoucí manželka byla přesně taková: zaneprázdněná, velmi schopná, orientovaná na cíl a na výkon.
 
-\* \* \*
-
-  
+* * *
 
 Jmenovala se Maria Caiazzo a v době jejich seznámení jí bylo šestadvacet, tedy o rok víc než Mathiasovi. Pocházela ze Stuttgartu. Italské jméno zdědila po otci, italském průmyslovém designérovi, který v polovině sedmdesátých let přišel z Turína pracovat pro stuttgartskou automobilku Mercedes. V roce 1978 si Sebastiano vzal rodilou Němku ze Stuttgartu. Ještě toho roku se jim narodilo jejich jediné dítě, dcera, které dali jméno Maria; mysleli si, že takto i po Mariině svatbě někdy v budoucnosti v jejím jméně zůstane aspoň stopa Itálie v podobě onoho „a“ na konci jejího křestního jména.
 
@@ -383,9 +335,7 @@ Jistou nevýhodou alespoň v začátku bylo, že tahle krásná postava měřil
 
 Podnětné otázky, možná ale ne až tak podstatné. Ta skutečně zásadní otázka totiž zní, zda v onom krásném italském těle byl i nějaký italský obsah a zda Mariini rodiče nakonec neměli pravdu, když se obávali, že Maria svoji italskou stopu postupně ztratí. Právě tohle se totiž Mathiasovi na Marii tolik líbilo a právě kvůli tomu opakovaně překonával svoji počáteční nejistotu, plynoucí mimo jiné i z Mariiny výšky: Maria byla do morku kostí německá lékařka. Z jejího chování a z jejích názorů vyzařovala poučenost. Maria Caiazzo pro Mathiase Waltera byla nejen holkou jako ze žurnálu, nýbrž i někým, kdo v jeho vnímání stál na samém vrcholku pyramidy lidství: německý princip v italském těle.
 
-\* \* \*
-
-  
+* * *
 
 Seznámili se v nemocnici. Šlo o špičkově zařízenou trojpatrovou novostavbu s fasádou z eloxovaného hliníku pročleněnou velkými okny. Vstupní hala i další společné prostory byly vzdušné a přehledné. Na vnitřním dvoře rostla zeleň, na střeše se nacházel heliport.
 
@@ -395,9 +345,7 @@ I v záležitostech kolem stěhování se spolehl na asistenci. Sám se o nic
 
 Jako úplně nový měl přitom působit celý jeho život. Výhody, že do Erlangenu může přijet jako člověk bez jiné minulosti než té, kterou lze vyčíst ze studijních záznamů, se Mathias nehodlal vzdát. Erlangen měl být nový start, nová scéna pro jeho osobnost, a především pro jeho tělo, které teď bylo v nejlepší formě za ony dvě a půl dekády jeho života. Přísné diety a trénink se začaly vyplácet.
 
-\* \* \*
-
-  
+* * *
 
 Měřil metr třiasedmdesát centimetrů, byl tedy spíše nižší postavy. Ještě o něm nešlo říct, že je malý, se svojí výškou byl přesně na hranici, ale s každou novou generací, která byla vždy o trochu vytáhlejší, byl Mathias objektivně zas o trochu menší. Vnímal to; úspěšně však toto vědomí zaháněl svojí perfektní formou a výjimečnými pracovními výsledky. Netrpěl kvůli svým centimetrům komplexem méněcennosti, spíše lítostí, že není vyšší; jen v tomhle případě byl ochotný připustit, že to, co už je špičkové, lze ještě o trochu stupňovat.
 
@@ -411,17 +359,13 @@ Když se poprvé přiblížil k Marii Caiazzo a když si pak vedle ní sedl, n
 
 O tom, že by si ji netroufl oslovit, však nemohla být řeč. Pokud Mathias něco chtěl, šel si za tím. A Maria byla v Mathiasově životě tou úplně první ženou, o které by neváhal říct, že se do ní zamiloval na první pohled. Jakmile ji uviděl, rozestoupil se kolem ní svět. Jako by přišla odněkud odjinud.
 
-\* \* \*
-
-  
+* * *
 
 Maria v Erlangenu žila už rok, přišla sem ze stejného důvodu a v podstatě za stejných okolností jako Mathias. Bydlela v pronajatém bytě v centru Norimberku, sama, už půl roku ale měla přítele, třicetiletého svobodného lékaře z jiného oddělení téže kliniky, jmenoval se Adrian Becker. Stejně jako Mathias, i ona se v rámci studií specializovala na dětskou nefrologii, diagnózu a léčbu ledvin. Vystudovala v Heidelbergu, na nejstarší univerzitě v Německu a na fakultě, která se ve srovnávacích žebříčcích stabilně umisťovala ze všech německých fakult medicíny na prvním místě. I v tomto Mathiase velmi pravděpodobně převyšovala.
 
 Byla spokojená jak v osobním, tak v pracovním životě. Kariéra pro ni v té době stála na prvním místě a dětská nefrologie v tomto ohledu byla docela příjemným oborem; rakoviny ledvin byly u dětí jen zcela výjimečné; většina problémů byla léčitelná pouhou medikací a s dobrými výhledy do budoucna. Dětských úmrtí a všeobecně prostoru pro cynismus v jejím oboru bylo jen málo.
 
-\* \* \*
-
-  
+* * *
 
 Poprvé Mathiase uviděla na setkání zaměstnanců nefrologického oddělení, na kterém vůbec neměl být. Oficiálně na oddělení nastupoval až za dva týdny. Před tím ho v nemocnici nikdo nečekal a upřímně řečeno ani nechtěl vidět. Někdo z administrativy s ním po jeho příjezdu do Erlangenu mluvil po telefonu; věděli, že už si našel byt, zběžně ho znali z občasných vizitací z dob studií. Nikdo z oddělení si o něm nemyslel nic špatného, nikdo ho zároveň ale nevnímal jako člověka, kterého chce potkat hned po jeho příjezdu do města. Prostě přijel, našel si byt a zabydloval se. Víc v tu chvíli nikdo nepotřeboval znát. Na oddělení měl poprvé přijít za čtrnáct dní; to pro něj plánovali přátelské uvítání, dokonce už byla zarezervovaná restaurace ve městě.
 
@@ -503,8 +447,6 @@ Co nakonec během těch šťastných i náročných let v Heidelbergu vytvoři
 
 ## 7.
 
-  
-
 Mathias své budoucí ženě nikdy neřekl, že za všechna jeho extempore z toho dne mohl dojezd z předchozí noci. Nebyl v Erlangenu doma a nevěděl, jak kvalitní MDMA si kupuje.
 
 Večer předtím si zajel do Norimberku, najedl se tam, vypil dvě piva. Složitě se doptal na hudební klub, kde údajně měli hrát taneční hudbu. Nakonec tam ale hráli alternativní rock. Byl čtvrtek a nijak pozdě. U stolků sedělo u piva jen pár lidí, třicátníků a starších. Hrála se Nirvana, Pearl Jam, Smashing Pumpkins, Radiohead… Byl to zkurvenej rockovej klub, viděl jich za posledních pět dní snad už stovky…! Jako by se tady zastavil čas…! Potřeboval cokoli, co by mu pomohlo zapomenout na to, do jaké díry se dostal.
@@ -517,9 +459,7 @@ Mathias v malém papírovém psaníčku dostal, co si podle vidláka zasloužil
 
 Příště už si prostě dal pozor.
 
-\* \* \*
-
-  
+* * *
 
 Marii znovu viděl až po čtrnácti dnech při svém oficiálním příchodu na kliniku. Teď už ji viděl realističtěji. Supr kost, pomyslel si. Ale – absolutně mimo moji ligu.
 
@@ -527,9 +467,7 @@ Zatímco jedním uchem poslouchal, jak ho vedoucí lékař představuje budoucí
 
 Líbila se mu. Z těch sedmi lidí, s nimiž měl od teď trávit většinu svého času, byla suverénně na prvním místě, co se týkalo jeho zájmu.
 
-\* \* \*
-
-  
+* * *
 
 Chodit s ní začal za necelý měsíc, za rok a půl si ji bral. Úvaha o čistotě a svěžesti její vagíny, kterou v duchu vedl při svém prvním dnu na oddělení, to bylo jen vnitřní rétorické cvičení.
 
@@ -547,8 +485,6 @@ Snažil se. A pak najednou ze dne na den obrátil. Buď ho to přestalo bavit, 
 
 ## 8.
 
-  
-
 Ty první tři nebo čtyři týdny od jejich seznámení do chvíle, kdy spolu začali chodit, později na oba z nich působily přízračně a odpuzovaly je. Později se už nic takového neopakovalo; od chvíle, kdy si spolu začali, měli situaci pevně pod kontrolou a celý jejich další harmonický vztah byl v jistém smyslu jen přebíjením těchto několika neharmonických týdnů, které poté působily jako odstrašující příklad a představovaly jedinou velkou turbulenci, luxus, který si už později nemohli dovolit.
 
 Chodit spolu začali někdy v polovině května. Rozchod s Adrianem Beckerem proběhl během několika minut. Maria to okomentovala tak, že šlo jen o servisní vztah na pár hodin dvakrát či třikrát do týdne. O měsíc později už se s Mathiasem stěhovala do dvoupokojového bytu v centru Norimberku, jen o dům vedle, než kde až doteď skoro po dva roky sama bydlela. Interiér světlého bytu ve třetím patře si sami zařídili, vybrali si a nechali dovézt nábytek. Rádi se sem po práci vraceli.
@@ -563,9 +499,7 @@ Tohle vysvětlení neobstojí. Maria vždy musela mít to nejlepší, ať už se
 
 S Mathiasem ale jako by na ni po všech arogantních scénách vždy padala únava. Sotva vyšli z obchodu, kde se rozpálila doběla, zaklesla se do Mathiasovy paže a pohladila ho po tváři jako ta nejoddanější gejša. Své rodiče a Mathiase, jen tyto lidi nikdy nesekýrovala. K téhle trojici se naopak chovala velmi láskyplně. Milovala je, říkala to a vypadalo to tak. Jako by otevřela branku a pustila Mathiase dovnitř k tomu exkluzivnímu stuttgartskému italsko-německému mixu. Jakmile tam jednou byl, v té opečovávané ohrádce, mohl si užívat Mariiny sebelásky.
 
-\* \* \*
-
-  
+* * *
 
 Jednou mu řekla, to už spolu byli téměř půl roku:
 
@@ -617,9 +551,7 @@ Těch věcí, které před Marií skrýval, bylo čím dál víc. Tehdy při jej
 
 Pak ještě dodala: „Moje zlatíčka doma ve Stuttgartu by nesnesla, kdybys svoji matku takhle zaživa pohřbil, víš? My máme v rodině krásné vztahy. A pokud se máme pohnout někam dál, my dva, Mathiasi, pak v tom bude muset figurovat i tvoje matka. Smiř se s tím.“
 
-\* \* \*
-
-  
+* * *
 
 Pracovali někdy i třináct hodin denně. Z ostatního měli čas jen na to skutečně důležité, kupříkladu na návštěvu u Mariiných rodičů ve Stuttgartu.
 
@@ -627,9 +559,7 @@ Ta dopadla na jedničku. Mathias v těch krásně oblečených lidech ihned na�
 
 Jako by do sebe zas něco zapadlo, další dílek v jeho bezvadně rozehraném puzzle. K jeho čistě bílému doktorskému plášti si tentokrát jako zadek na hrnec sedl drahý černý oblek od firmy Hugo Boss.
 
-\* \* \*
-
-  
+* * *
 
 Neměli čas na hádky, pracovali jako dobře sestavený stroj. Dokonale do sebe zapadali. Bylo to jako sen či život ve vakuu. Nebyla snad jediná oblast, kde by se nedokázali potkat a vyjít si vstříc… Klik! I v posteli. Jejich sex by oba označili za nejlepší sex v životě. V řadě další mystérium: jako by oba věděli, co udělat, aby ten druhý rychle došel uspokojení. Pořídili si malý vibrátor v decentním stříbrném provedení, tím byla hotova a vyřízena Maria. Mathiasovi pak stačilo, když mu Maria lízala varlata, zatímco on si to dělal rukou, druhou jí jezdil po kundě.
 
@@ -645,9 +575,7 @@ Svatbu nakonec stanovili na červen 2005. To spolu měli být teprve rok a něc
 
 Žili rychlý, technologický život.
 
-\* \* \*
-
-  
+* * *
 
 Strávili spolu Vánoce i Nový rok. Maria v březnu 2005 složila první atestaci, přece jen měla náskok.
 
@@ -656,8 +584,6 @@ Jak se blížil termín svatby, před Mathiasem vyvstával ten velmi nepříjemn
 Před Mathiasem se tento úkol tyčil jako ohromné pohoří, které musí přelézt. Jakmile to však učiní, otevře se mu marš ke svatbě. A po svatbě nastane ráj na zemi.
 
 ## 9.
-
-  
 
 Katharina Walter v květnu 2005 oslavila už jednapadesáté narozeniny. Se synem nebyla v kontaktu déle než šest let. Za tu dobu stihla vydat tři knihy včetně té dosud zdaleka nejúspěšnější jak z pohledu čtenářů a prodejnosti, tak z pohledu kritiky; v roce 2002 přešla k prestižnímu nakladatelskému domu Hanser a úspěšná kniha vyšla pod titulem _Porno Heute_.
 
@@ -669,9 +595,7 @@ Tobias se s ní rozešel o Vánocích v roce 2000, v jejích šestačtyřice
 
 Od teď tedy měla Vulvu a volvo po Clemensovi. Toho se přitom rozhodne nechtěla zbavit. Už to byl veterán a stihl jí přirůst k srdci.
 
-\* \* \*
-
-  
+* * *
 
 Pořídila si mobilní telefon a stolní počítač. Později k němu přidala i notebook IBM, na tom pak také psala své knihy; začínala v roce 2001 s modelem ThinkPad X40, v roce 2006 přešla na nový model X60. Tyto stroje se brzy staly jejími skutečnými láskami. Ukládala do thinkpadů své texty, trávila s těmi stroji většinu svého času. Buď psala, nebo brouzdala na internetu. Četla si noviny on-line, hledala, jestli někdo nenapsal něco o jejích knížkách. Tehdy však ještě zdaleka neplatilo to, co o deset později. Pokud o sobě člověk v roce 2003 nenašel článek na internetu, ještě to neznamenalo, že takový článek neexistuje. V té době ještě stále bylo třeba kontrolovat oba světy, jak ten virtuální, tak ten druhý.
 
@@ -683,97 +607,83 @@ Ještě někoho na internetu našla. Tentokrát spíše náhodou. Jednalo se o 
 
 Mathiase nekontaktovala. Janovi ale ihned napsala e-mail. Psala česky:
 
-  
+> „Milý Jene!
 
-„Milý Jene!
+> Gratuluji k úspěchu v Čechách a doufám, že volby vyhrajete. Natřete jim to…! _Game, set… totální unie svobody_…! Ale ty to znáš, však jsi tady žil.
 
-  
+> Řeknu ti, občas vzpomínám na tu naši slavnou noc L. P. 1988. Je to čtrnáct let, Honzo! Omlouvám se ti, že jsem tehdy odešla bez placení, haha… Ale víš, jak to bylo… Takovou kocovinu jsem od tý doby snad neměla.
 
-Gratuluji k úspěchu v Čechách a doufám, že volby vyhrajete. Natřete jim to…! _Game, set… totální unie svobody_…! Ale ty to znáš, však jsi tady žil.
+> Pokud chceš vědět něco o mně – ale proto ti nepíšu –, tak věz, že jsem sama. Clemens zemřel před čtyřmi lety. Možná jsi ale v Německu nebo Čechách narazil na nějaké mé knížky. I za to se omluvám. Ale víš co… I já chtěla udělat _game, set, match__!_
 
-Řeknu ti, občas vzpomínám na tu naši slavnou noc L. P. 1988. Je to čtrnáct let, Honzo! Omlouvám se ti, že jsem tehdy odešla bez placení, haha… Ale víš, jak to bylo… Takovou kocovinu jsem od tý doby snad neměla.
+> Zrovna teď dopisuju knížku o pornu. Vlastně je to ten hlavní důvod, proč se ozývám. Uvědomila jsem si při psaní spoustu věcí i o nás dvou, o našem rozchodu a mé touze po Clemensovi… Když jsem s ním spala poprvé, šukali jsme… _ficken_, _verstehen sie?_ To jsem do tý doby nikdy nezažila čili s tebou. Myslela jsem si tehdy, že za to můžeš ty, za to, že to nebylo nic moc, a snad i proto jsem pak šla jako čubka za Clemensem. Teď už to ale vidím jinak a v duchu jsem se ti už kolikrát omluvila. Stručně: ty za to nemůžeš, že náš sex nebyl nic moc. Když jsme spolu začali spát, ani v nejmenším jsem nebyla nepopsanou deskou, tabula rasa. Docela naopak, byla jsem celá popsaná neznalostí, strachem a především zbytky pubertální jalovosti. Stála jsem, kde mě postavili. Nohy jsem roztahovala a pusu otevírala na tvůj signál. Na ničem mi nezáleželo, tak bych to asi řekla. Nebo možná ještě jinak… Nezáleželo mi na ničem věcném, ale o to víc mi záleželo na pentlích, na detailech, které jsem si sama navěsila na to fundamentální prázdno… Spala jsem s tebou často, ale špatně. Neměla jsem v té době ještě jedinou příležitost vzít houbu a smazat tu popsanou tabuli; od matčina prsu jsem šla rovnou k tobě, do tvého bezpečí, ke tvým slovům, ke tvým dotekům, k tvému pohlaví… Ať už to byl můj úkol, nebo ať už mi někdo tu houbu měl do ruky dát, faktem je, že jsem tu houbu v ruce nedržela až do chvíle, kdy jsem se v červnu 1978 ocitla sama ve Wiesbadenu na Nerobergu a když jsem si řekla, že se obejdu i bez tebe. Rozešli jsme se a muselo to tak být. Pokud by se to nestalo v červnu 1978, stalo by se to o rok nebo o dva později.
 
-Pokud chceš vědět něco o mně – ale proto ti nepíšu –, tak věz, že jsem sama. Clemens zemřel před čtyřmi lety. Možná jsi ale v Německu nebo Čechách narazil na nějaké mé knížky. I za to se omluvám. Ale víš co… I já chtěla udělat _game, set, match__!_
+> Doufám, že má slova pochopíš mimo jiné i jako omluvu. Doufám, že se máš dobře, Honzo, a že máš šťastnou rodinu. Už je ti pětapadesát, viď?
 
-Zrovna teď dopisuju knížku o pornu. Vlastně je to ten hlavní důvod, proč se ozývám. Uvědomila jsem si při psaní spoustu věcí i o nás dvou, o našem rozchodu a mé touze po Clemensovi… Když jsem s ním spala poprvé, šukali jsme… _ficken_, _verstehen sie?_ To jsem do tý doby nikdy nezažila čili s tebou. Myslela jsem si tehdy, že za to můžeš ty, za to, že to nebylo nic moc, a snad i proto jsem pak šla jako čubka za Clemensem. Teď už to ale vidím jinak a v duchu jsem se ti už kolikrát omluvila. Stručně: ty za to nemůžeš, že náš sex nebyl nic moc. Když jsme spolu začali spát, ani v nejmenším jsem nebyla nepopsanou deskou, tabula rasa. Docela naopak, byla jsem celá popsaná neznalostí, strachem a především zbytky pubertální jalovosti. Stála jsem, kde mě postavili. Nohy jsem roztahovala a pusu otevírala na tvůj signál. Na ničem mi nezáleželo, tak bych to asi řekla. Nebo možná ještě jinak… Nezáleželo mi na ničem věcném, ale o to víc mi záleželo na pentlích, na detailech, které jsem si sama navěsila na to fundamentální prázdno… Spala jsem s tebou často, ale špatně. Neměla jsem v té době ještě jedinou příležitost vzít houbu a smazat tu popsanou tabuli; od matčina prsu jsem šla rovnou k tobě, do tvého bezpečí, ke tvým slovům, ke tvým dotekům, k tvému pohlaví… Ať už to byl můj úkol, nebo ať už mi někdo tu houbu měl do ruky dát, faktem je, že jsem tu houbu v ruce nedržela až do chvíle, kdy jsem se v červnu 1978 ocitla sama ve Wiesbadenu na Nerobergu a když jsem si řekla, že se obejdu i bez tebe. Rozešli jsme se a muselo to tak být. Pokud by se to nestalo v červnu 1978, stalo by se to o rok nebo o dva později.
+> Budu moc ráda, když vyhrajete a když mi napíšeš!
 
-Doufám, že má slova pochopíš mimo jiné i jako omluvu. Doufám, že se máš dobře, Honzo, a že máš šťastnou rodinu. Už je ti pětapadesát, viď?
+> Viva la revolución, vila la US-DEU, viva la Olomouc, viva la _game, set, match__!_
 
-Budu moc ráda, když vyhrajete a když mi napíšeš!
-
-Viva la revolución, vila la US-DEU, viva la Olomouc, viva la _game, set, match__!_
-
-Katharina W.“
+> Katharina W.“
 
 Odepsal jí až skoro po čtvrt roce, po červnových volbách do české Poslanecké sněmovny, v nichž koalice křesťanských demokratů s US-DEU získala čtrnáct procent. Jan Rabas v Olomouci kandidoval ze čtvrtého místa tamní kandidátky US-DEU a do parlamentu se nedostal:
 
-  
+> „Milá Kateřino, Katharino. Jo, znám pár tvých knížek, takže znám a chápu i tón tvého e-mailu. Nemůžeš si pomoct. Musíš pořád do někoho bodat. Jsi tak povýšená, až to hezké není. Tvoje věc, já jsem v každém případě rád, že to mezi nám skončilo dřív, než se v tobě všechna ta zloba probrala. Za všechna přání a informace ti děkuji a jdi k čertu.
 
-„Milá Kateřino, Katharino. Jo, znám pár tvých knížek, takže znám a chápu i tón tvého e-mailu. Nemůžeš si pomoct. Musíš pořád do někoho bodat. Jsi tak povýšená, až to hezké není. Tvoje věc, já jsem v každém případě rád, že to mezi nám skončilo dřív, než se v tobě všechna ta zloba probrala. Za všechna přání a informace ti děkuji a jdi k čertu.
-
-JR“
+> JR“
 
 Odepsala mu obratem:
 
-  
+> „OMG, ty jsi ale vůl!
 
-„OMG, ty jsi ale vůl!
-
-KW“
+> KW“
 
 Od Jana přišel další e-mail opět až asi po měsíci:
 
-  
+> „Kateřino, ahoj, promiň mi. Ty volby tady. Ujelo mi to.
 
-„Kateřino, ahoj, promiň mi. Ty volby tady. Ujelo mi to.
+> Čechy jsou úkol, jde to tady vodou dolů.
 
-Čechy jsou úkol, jde to tady vodou dolů.
+> Hned po revoluci jsem se sem pomalu začal nastěhovávat, pronajal jsem si byt v Holešovicích hned u Libeňského mostu. (Pamatuješ?) Z německé gáže se to dalo utáhnout. Havel na Hradě, dole ve městě stovky mladých kluků a holek z Ameriky, otevřeli si tam bary, pořádali koncerty. Všichni psali básničky nebo romány. Já sám jsem hodně psal do novin, do Literárek, do Prostoru, do Listů. Jezdil jsem sem pravidelně, alespoň jednou do měsíce, později častěji… Mluvilo se tady o tom, že se bude dohánět Německo, ale to se tak jenom říkalo, aby se oblbnuli lidi. Naše vize ve skutečnosti byla jiná – předehnat Německo, a to ihned a skokem. Ekonomická situace tehdy nikoho z nás nezajímala, a v jistém smyslu dokonce platilo, čím hůř, tím líp. Třeba těm kluků a holkám z Ameriky to úplně vyhovovalo, ten stav český ekonomiky, a spousta lidí s nimi v duchu nebo i veřejně držela za jedno. TA EKONOMICKÁ KATASTROFA MĚLA BÝT VÝHODA! Rozumíš mi? Tohle bylo naše tajemství, tohle byl šém toho českýho golema, kterýho jsme chtěli uvést do chodu.
 
-Hned po revoluci jsem se sem pomalu začal nastěhovávat, pronajal jsem si byt v Holešovicích hned u Libeňského mostu. (Pamatuješ?) Z německé gáže se to dalo utáhnout. Havel na Hradě, dole ve městě stovky mladých kluků a holek z Ameriky, otevřeli si tam bary, pořádali koncerty. Všichni psali básničky nebo romány. Já sám jsem hodně psal do novin, do Literárek, do Prostoru, do Listů. Jezdil jsem sem pravidelně, alespoň jednou do měsíce, později častěji… Mluvilo se tady o tom, že se bude dohánět Německo, ale to se tak jenom říkalo, aby se oblbnuli lidi. Naše vize ve skutečnosti byla jiná – předehnat Německo, a to ihned a skokem. Ekonomická situace tehdy nikoho z nás nezajímala, a v jistém smyslu dokonce platilo, čím hůř, tím líp. Třeba těm kluků a holkám z Ameriky to úplně vyhovovalo, ten stav český ekonomiky, a spousta lidí s nimi v duchu nebo i veřejně držela za jedno. TA EKONOMICKÁ KATASTROFA MĚLA BÝT VÝHODA! Rozumíš mi? Tohle bylo naše tajemství, tohle byl šém toho českýho golema, kterýho jsme chtěli uvést do chodu.
+> Prachy? Ne. Ekologie. Literární revue. Dramata. Básně. Na Německo, který se údajně a oficiálně mělo dohánět, jsme se DÍVALI SVRCHU. Prachy a nacisti, pěkný auta, to jo, ale AUTO SI MŮŽEŠ NAPSAT…! Mysleli jsme si, že si můžeme napsat úplně všechno.
 
-Prachy? Ne. Ekologie. Literární revue. Dramata. Básně. Na Německo, který se údajně a oficiálně mělo dohánět, jsme se DÍVALI SVRCHU. Prachy a nacisti, pěkný auta, to jo, ale AUTO SI MŮŽEŠ NAPSAT…! Mysleli jsme si, že si můžeme napsat úplně všechno.
+> Je to tak, Kateřino, my dva jsme tehdy došli ve svých postojích do stejného hodu. Asi to máme jako Češi v genech. Co vím, začalo to už dávno, možná už u husitů, určitě v tom pak pokračoval Masaryk (mesianismus!), určitě v tom pokračoval Beneš s tím svým mostem mezi Východem a Západem… Havel do té linie nádherně zapadá. Prostě extra země s extra buřtama. Nikdy nám nevoněl ani Východ, ani Západ, ani kapitalismus, ani komunismus, ani parlament, ani politické strany, ani autokrat. Vždycky jsme protestovali, nic nám nebylo dost nóbl. Stát básníků… Všechno bylo nezávislé, alternativní, samé bloudění po třetích, čtvrtých, dvacátých pátých cestách. Nová vlna, bigbít, Psí vojáci, Už jsme doma, Krásný nový stroje, Dybbuk a Zuby nehty… Zpívali: _Tak jen se neboj, jedu v tom taky, vždyť všichni jsme takoví malí sráči, jediná jistota je, že já nerozumím tobě a ty mně_… A bylo v tom tolik přezíravosti. Chlastalo se, lidi neměli žádnej korektiv. Doteď se tady o té uplynulé dekádě mluví jako o nejkrásnějších letech svobody. Doteď chlastají, doteď nemají korektiv. V českejch dějinách možná nebyla odpudivější doba, než byly devadesátý léta, ale spousta lidí to tady vidí jinak. Nosí dlouhý vlasy a v padesáti chodí po městě jako pážata. V těch volbách, co teď byly, většina z těchdle lidí asi volila Unii svobody nebo Stranu zelených (2,3 %).
 
-Je to tak, Kateřino, my dva jsme tehdy došli ve svých postojích do stejného hodu. Asi to máme jako Češi v genech. Co vím, začalo to už dávno, možná už u husitů, určitě v tom pak pokračoval Masaryk (mesianismus!), určitě v tom pokračoval Beneš s tím svým mostem mezi Východem a Západem… Havel do té linie nádherně zapadá. Prostě extra země s extra buřtama. Nikdy nám nevoněl ani Východ, ani Západ, ani kapitalismus, ani komunismus, ani parlament, ani politické strany, ani autokrat. Vždycky jsme protestovali, nic nám nebylo dost nóbl. Stát básníků… Všechno bylo nezávislé, alternativní, samé bloudění po třetích, čtvrtých, dvacátých pátých cestách. Nová vlna, bigbít, Psí vojáci, Už jsme doma, Krásný nový stroje, Dybbuk a Zuby nehty… Zpívali: _Tak jen se neboj, jedu v tom taky, vždyť všichni jsme takoví malí sráči, jediná jistota je, že já nerozumím tobě a ty mně_… A bylo v tom tolik přezíravosti. Chlastalo se, lidi neměli žádnej korektiv. Doteď se tady o té uplynulé dekádě mluví jako o nejkrásnějších letech svobody. Doteď chlastají, doteď nemají korektiv. V českejch dějinách možná nebyla odpudivější doba, než byly devadesátý léta, ale spousta lidí to tady vidí jinak. Nosí dlouhý vlasy a v padesáti chodí po městě jako pážata. V těch volbách, co teď byly, většina z těchdle lidí asi volila Unii svobody nebo Stranu zelených (2,3 %).
+> V roce 1993 jsem začal podnikat. Shodou okolností v tom oboru, co Clemens. Žaluzie a stínicí technika, dodávali jsme i jeho motory. Tehdy to tady zažívalo boom, každej chtěl zastiňovat. Ne že by tady do tý doby nesvítilo slunce, ale prostě to tady nebylo, byl po tom hlad. K tomu jsem pak asi za rok přidal mycí techniku KÄRCHER. Vysokotlaké čističe, průmyslové vysavače, podlahové mycí stroje… Stínění a čištění, to byla trefa… Pět let mi to jelo, vydělal jsem si slušný peníze, koupil jsem si byt nahoře na Vinohradech a bavoráka. Vzal jsem si úvěry, dal jsem se do party s jedním zdejším podnikatelem. Jeli jsme napůl, nakonec mě z firmy vyštípal. To byl rok 1997.
 
-V roce 1993 jsem začal podnikat. Shodou okolností v tom oboru, co Clemens. Žaluzie a stínicí technika, dodávali jsme i jeho motory. Tehdy to tady zažívalo boom, každej chtěl zastiňovat. Ne že by tady do tý doby nesvítilo slunce, ale prostě to tady nebylo, byl po tom hlad. K tomu jsem pak asi za rok přidal mycí techniku KÄRCHER. Vysokotlaké čističe, průmyslové vysavače, podlahové mycí stroje… Stínění a čištění, to byla trefa… Pět let mi to jelo, vydělal jsem si slušný peníze, koupil jsem si byt nahoře na Vinohradech a bavoráka. Vzal jsem si úvěry, dal jsem se do party s jedním zdejším podnikatelem. Jeli jsme napůl, nakonec mě z firmy vyštípal. To byl rok 1997.
+> Už to řeknu stručně. Zatímco ta první parta byla úplně mimo realitu, ti lidi od pera, ta druhá parta, třeba ten typ, se kterým jsem dal dohromady tu firmu, ta zas byla až moc v realitě. Jinak to tady asi nejde: jedni úplně mimo, další úplně chladnokrevně. A nikdo mezi tím. Jedni s holou prdelí chrání velryby, další po tunách nakupujou a přeprodávají velrybí tuk.
 
-Už to řeknu stručně. Zatímco ta první parta byla úplně mimo realitu, ti lidi od pera, ta druhá parta, třeba ten typ, se kterým jsem dal dohromady tu firmu, ta zas byla až moc v realitě. Jinak to tady asi nejde: jedni úplně mimo, další úplně chladnokrevně. A nikdo mezi tím. Jedni s holou prdelí chrání velryby, další po tunách nakupujou a přeprodávají velrybí tuk.
+> K té tvé pasáži o pornu a o našem milování nemám co říct, promiň. Ale vážím si tvé upřímnosti.
 
-K té tvé pasáži o pornu a o našem milování nemám co říct, promiň. Ale vážím si tvé upřímnosti.
+> Klidně ještě napiš, budu rád. A přijeď mě navštívit do Prahy.
 
-Klidně ještě napiš, budu rád. A přijeď mě navštívit do Prahy.
-
-Jan“
+> Jan“
 
 Katharina opět odpověděla obratem:
 
-  
+> „Milý Jene.
 
-„Milý Jene.
+> Děkuji.
 
-Děkuji.
+> Mrzí mě, že jsi neuspěl ve volbách. Trochu mě mrzí i to, že se ti nechce reagovat na to, co PŘIJDE PODSTATNÉ MNĚ… Ale dobře, my už jsme minulost, máš pravdu.
 
-Mrzí mě, že jsi neuspěl ve volbách. Trochu mě mrzí i to, že se ti nechce reagovat na to, co PŘIJDE PODSTATNÉ MNĚ… Ale dobře, my už jsme minulost, máš pravdu.
+> Hodně z toho, co píšeš, mi není jasné. Hlavně jde o pasáž o českých genech, kde mě podle všeho házíš do jednoho pytle – s kým? S americkými hovádky, co tam po roce 90 přijeli pět ódy na socialismus, což bylo bohužel sakra vedle, a přitom takovej kousek vedle, pouhej rok? Nebo mě házíš do jednoho pytle s tebou? Nebo s Havlem?
 
-Hodně z toho, co píšeš, mi není jasné. Hlavně jde o pasáž o českých genech, kde mě podle všeho házíš do jednoho pytle – s kým? S americkými hovádky, co tam po roce 90 přijeli pět ódy na socialismus, což bylo bohužel sakra vedle, a přitom takovej kousek vedle, pouhej rok? Nebo mě házíš do jednoho pytle s tebou? Nebo s Havlem?
+> Já mám Německo ráda, aby bylo jasno. Nedívám se na něj svrchu. Rozhodla jsem se kdysi, že sem půjdu, a jsem tady. Jsem v tom docela konzistentní, jsem Německu věrná. Přijde mi, že si pleteš dvě věci a že sis je pletl už tehdy v osmdesátých letech a asi i dřív: vývoj a hysterii. Je fakt, že někdy ty principy můžou na první pohled působit podobně, je fakt, že jak díky vývoji, tak díky hysterii se můžeš někam posunout, pokročit do další životní fáze, ale… Není to totéž, Jene. Ve skutečnosti ty principy jsou protichůdné.
 
-Já mám Německo ráda, aby bylo jasno. Nedívám se na něj svrchu. Rozhodla jsem se kdysi, že sem půjdu, a jsem tady. Jsem v tom docela konzistentní, jsem Německu věrná. Přijde mi, že si pleteš dvě věci a že sis je pletl už tehdy v osmdesátých letech a asi i dřív: vývoj a hysterii. Je fakt, že někdy ty principy můžou na první pohled působit podobně, je fakt, že jak díky vývoji, tak díky hysterii se můžeš někam posunout, pokročit do další životní fáze, ale… Není to totéž, Jene. Ve skutečnosti ty principy jsou protichůdné.
+> V hysterickém záchvatu třeba můžeš zrušit trvalý příkaz, na jehož základě z tvého účtu každý měsíc odcházelo 10 euro na účet hnutí Greenpeace a jeho velryby. Druhý den budeš na první pohled úplně jiný člověk: Jan Rabas, který už nepodporuje Greenpeace a velryby, protože prozřel. Skutečnost ale bude opačná. Bude to ten samý Honza Rabas jako včera, nepohnul ses ani o milimetr. Rozumíš mi? Tohle není vývoj, to, co děláš ty. Kritika Čech, socialismus se nelíbí, tak tedy léta Páně 1978 Německo, pak ale zas Čechy, pak zas kritika Čechů.
 
-V hysterickém záchvatu třeba můžeš zrušit trvalý příkaz, na jehož základě z tvého účtu každý měsíc odcházelo 10 euro na účet hnutí Greenpeace a jeho velryby. Druhý den budeš na první pohled úplně jiný člověk: Jan Rabas, který už nepodporuje Greenpeace a velryby, protože prozřel. Skutečnost ale bude opačná. Bude to ten samý Honza Rabas jako včera, nepohnul ses ani o milimetr. Rozumíš mi? Tohle není vývoj, to, co děláš ty. Kritika Čech, socialismus se nelíbí, tak tedy léta Páně 1978 Německo, pak ale zas Čechy, pak zas kritika Čechů.
+> A ty tvoje vlasy? Pochopila jsem to správně? Vlasy tedy už taky nenosíš dlouhé? Tehdy jsem se tomu v duchu smála, když jsem tě viděla na nádraží ve Frankfurtu s tím copem, to nemůže slušet snad nikomu. Ale pokud jsi ty vlasy teď zas zkrátil a poučil se z krizového vývoje, pak mi promiň, ale to už se směju docela nahlas.
 
-A ty tvoje vlasy? Pochopila jsem to správně? Vlasy tedy už taky nenosíš dlouhé? Tehdy jsem se tomu v duchu smála, když jsem tě viděla na nádraží ve Frankfurtu s tím copem, to nemůže slušet snad nikomu. Ale pokud jsi ty vlasy teď zas zkrátil a poučil se z krizového vývoje, pak mi promiň, ale to už se směju docela nahlas.
+> Navíc mi není jasný, proč tam jsi, když to vidíš tahle. A není mi jasný, proč mě zveš do Prahy… Bydlíš tam snad? A ta Olomouc tedy, ta karikatura tam, promiň, překlep, ta kandidatura tam? To mělo znamenat co…? Jakože Německo pro tebe bylo příliš velký sousto, tak jsi po roce 90 šel radši na menší hřiště do Prahy, ale pak se ukázalo, že i Praha je pro tebe moc velká, tak ses radši nechal nominovat v nějaký díře?
 
-Navíc mi není jasný, proč tam jsi, když to vidíš tahle. A není mi jasný, proč mě zveš do Prahy… Bydlíš tam snad? A ta Olomouc tedy, ta karikatura tam, promiň, překlep, ta kandidatura tam? To mělo znamenat co…? Jakože Německo pro tebe bylo příliš velký sousto, tak jsi po roce 90 šel radši na menší hřiště do Prahy, ale pak se ukázalo, že i Praha je pro tebe moc velká, tak ses radši nechal nominovat v nějaký díře?
+> Omlouvám se. Tohle asi bude poslední e-mail, co si vyměníme, viď. Ale ta tvoje svinskost, ta nevěrnost, ta TVOJE POVÝŠENOST, a hlavně ta ohromná podlost, s jakou ses se mnou snažil tím svým e-mailem uzavřít pakt proti Čechám, z Čech, to mi otevírá kudlu kapse. Věř tomu, že jsem nikdy neměla větší chuť zajet do Čech a políbit tam zem.
 
-Omlouvám se. Tohle asi bude poslední e-mail, co si vyměníme, viď. Ale ta tvoje svinskost, ta nevěrnost, ta TVOJE POVÝŠENOST, a hlavně ta ohromná podlost, s jakou ses se mnou snažil tím svým e-mailem uzavřít pakt proti Čechám, z Čech, to mi otevírá kudlu kapse. Věř tomu, že jsem nikdy neměla větší chuť zajet do Čech a políbit tam zem.
+> Sorry.
 
-Sorry.
+> KW“
 
-KW“
-
-\* \* \*
-
-  
+* * *
 
 Skutečně se pak do Česka jela podívat, po letech poprvé. Český nakladatel ji sice po vydání její první knihy v češtině zval na čtení a na diskusi, tehdy ale odmítla a ani nakladatel příliš nenaléhal. I to Katharina odhadla docela správně. Nepatřila k autorům, na které by kdekoli byli příliš zvědaví. Nebyla milá, její knihy tak nepůsobily, zároveň však nebyly natolik zlé a skandální, aby to stálo za ten risk. Katharininy knihy byly pouze nepříjemné.
 
@@ -799,147 +709,139 @@ Jazyk často opravdu je jenom fasáda, za kterou se něco může skrývat. Odhal
 
 ## Z K. knihy
 
-  
+> Doufala jsem, že si Mathias třeba tenhle text ve _FAZ_ přečte a ozve se mi. Psala jsem ho vlastně právě pro něj. Nakonec ale musely uplynout ještě skoro tři roky, než mi zavolal. Jeho důvod přitom byl jasný a docela pragmatický, jak jsem později zjistila. Dostal nůž na krk, že bez mojí účasti svatba nebude. Rodiče jeho nastávající byli natolik spořádaní, že by nejraději kvůli svatbě povolali z hrobu i Clemense, protože na svatbě mají být z každé strany dva rodiče, slovy dva… Ale ne, omlouvám se, oba mi nakonec byli sympatičtí, hlavně tatínek.
 
-Doufala jsem, že si Mathias třeba tenhle text ve _FAZ_ přečte a ozve se mi. Psala jsem ho vlastně právě pro něj. Nakonec ale musely uplynout ještě skoro tři roky, než mi zavolal. Jeho důvod přitom byl jasný a docela pragmatický, jak jsem později zjistila. Dostal nůž na krk, že bez mojí účasti svatba nebude. Rodiče jeho nastávající byli natolik spořádaní, že by nejraději kvůli svatbě povolali z hrobu i Clemense, protože na svatbě mají být z každé strany dva rodiče, slovy dva… Ale ne, omlouvám se, oba mi nakonec byli sympatičtí, hlavně tatínek.
+> Mathias byl do telefonu odměřený, že už to víc nešlo. Zároveň ale musel plnit misi, takže z toho v konečné fázi vylézal jakýsi kočkopes mezi prosbou a agresivním resentimentem:
 
-Mathias byl do telefonu odměřený, že už to víc nešlo. Zároveň ale musel plnit misi, takže z toho v konečné fázi vylézal jakýsi kočkopes mezi prosbou a agresivním resentimentem:
+> „Budu se ženit, rád bych tě viděl na svatbě. Doufám, že se máš dobře, mami. Nejlepší asi bude, když k tobě ještě před svatbou přijedeme a probereme to, co říkáš.“ Pak se odmlčel, přikryl rukou mluvítko, někdo mu něco šeptal. Slyšela jsem, jak říká: „Jojo, řeknu.“ Pak mluvítko odkryl a pověděl mi, že mi gratuluje k úspěchu s knížkou: „To je super, mami, máme radost.“
 
-„Budu se ženit, rád bych tě viděl na svatbě. Doufám, že se máš dobře, mami. Nejlepší asi bude, když k tobě ještě před svatbou přijedeme a probereme to, co říkáš.“ Pak se odmlčel, přikryl rukou mluvítko, někdo mu něco šeptal. Slyšela jsem, jak říká: „Jojo, řeknu.“ Pak mluvítko odkryl a pověděl mi, že mi gratuluje k úspěchu s knížkou: „To je super, mami, máme radost.“
+> Řekla jsem mu, aby určitě přijeli, že jsem skoro pořád doma, což byla pravda. Byl to rok, kdy jsem poprvé začala psát s gustem, od srdce a s přesvědčením, že vznikne první knížka, pod kterou se s radostí podepíšu. Vulva běhala po zahradě, bylo mi čerstvě jednapadesát. Milovala jsem svůj ThinkPad!
 
-Řekla jsem mu, aby určitě přijeli, že jsem skoro pořád doma, což byla pravda. Byl to rok, kdy jsem poprvé začala psát s gustem, od srdce a s přesvědčením, že vznikne první knížka, pod kterou se s radostí podepíšu. Vulva běhala po zahradě, bylo mi čerstvě jednapadesát. Milovala jsem svůj ThinkPad!
+> „Přijeďte klidně teď o víkendu, Mathiasi. Vím, že pracuješ v nemocnici v Erlangenu, to není tak daleko. Slečna je taky lékařka?“ troufla jsem se zeptat a Mathias mi to potvrdil.
 
-„Přijeďte klidně teď o víkendu, Mathiasi. Vím, že pracuješ v nemocnici v Erlangenu, to není tak daleko. Slečna je taky lékařka?“ troufla jsem se zeptat a Mathias mi to potvrdil.
+> „Tak si budete rozumět,“ řekla jsem. „Mám z tebe radost. Chyběl jsi mi.“
 
-„Tak si budete rozumět,“ řekla jsem. „Mám z tebe radost. Chyběl jsi mi.“
+> Ta poslední slova podle něj už zacházela příliš daleko, urči­tě to vnímal jako zradu. Jako bych já šelma někudy ze strany obešla tyč, s jejíž pomocí si krotitel drží šelmu od těla. Ale snesl to. Asi na Mariin popud a s její podporou.
 
-Ta poslední slova podle něj už zacházela příliš daleko, urči­tě to vnímal jako zradu. Jako bych já šelma někudy ze strany obešla tyč, s jejíž pomocí si krotitel drží šelmu od těla. Ale snesl to. Asi na Mariin popud a s její podporou.
+> „Dobře,“ řekl. „Uvažovali jsme, že přijedeme za čtrnáct dní. V sobotu a v neděli zpátky. Hodí se ti to? Spát budeme někde ve městě. Máme už své zvyky. Neuraz se.“
 
-„Dobře,“ řekl. „Uvažovali jsme, že přijedeme za čtrnáct dní. V sobotu a v neděli zpátky. Hodí se ti to? Spát budeme někde ve městě. Máme už své zvyky. Neuraz se.“
+> „Jak chceš… Určitě… Budu vás čekat a těším se.“
 
-„Jak chceš… Určitě… Budu vás čekat a těším se.“
+* * *
 
-\* \* \*
+> Když pak za čtrnáct dní skutečně přijeli, málem jsem Mathiase nepoznala. Už to, že vysedal z auta! S maličkou Frauke před šesti lety přijeli vlakem a s batohy na zádech. Teď se na Nerotal přiřítil v novém Volvu S40. Později jsem zjistila, že si ho koupil jen asi měsíc před touhle návštěvou, dřív měl nějaké starší audi. Samozřejmě si nemyslím, že se celý jeho svět točil kolem mě. Zároveň by to ale byla moc velká náhoda, pokud by si pořídil nové auto zrovna před cestou do Wiesbadenu. A že by si pořídil právě volvo? Chtěl mi ukázat, kdo je tady pánem. Dobře, proč ne.
 
-  
+> Hodně zhubl. Slušelo mu to. Vypadal důležitě, uspěchaně, na sobě měl kvalitní oblek a černý vlněný kabát. Na první pohled bylo zřejmé, že nepřijel na návštěvu, nýbrž za vyřizováním.
 
-Když pak za čtrnáct dní skutečně přijeli, málem jsem Mathiase nepoznala. Už to, že vysedal z auta! S maličkou Frauke před šesti lety přijeli vlakem a s batohy na zádech. Teď se na Nerotal přiřítil v novém Volvu S40. Později jsem zjistila, že si ho koupil jen asi měsíc před touhle návštěvou, dřív měl nějaké starší audi. Samozřejmě si nemyslím, že se celý jeho svět točil kolem mě. Zároveň by to ale byla moc velká náhoda, pokud by si pořídil nové auto zrovna před cestou do Wiesbadenu. A že by si pořídil právě volvo? Chtěl mi ukázat, kdo je tady pánem. Dobře, proč ne.
+> „Jako bys měl službu, chlapče,“ řekla jsem mu. „Doufám, že nezačneš houkat. Tady tě ještě naštěstí není potřeba.“
 
-Hodně zhubl. Slušelo mu to. Vypadal důležitě, uspěchaně, na sobě měl kvalitní oblek a černý vlněný kabát. Na první pohled bylo zřejmé, že nepřijel na návštěvu, nýbrž za vyřizováním.
+> Myslela jsem to dobře. Koneckonců zrovna v poslední době skutečně nikdo neumřel. Nemělo smysl se od začátku tvářit jako na pohřbu.
 
-„Jako bys měl službu, chlapče,“ řekla jsem mu. „Doufám, že nezačneš houkat. Tady tě ještě naštěstí není potřeba.“
+> „Tohle je Maria,“ pověděl stručně. Můj návrh ignoroval.
 
-Myslela jsem to dobře. Koneckonců zrovna v poslední době skutečně nikdo neumřel. Nemělo smysl se od začátku tvářit jako na pohřbu.
+> Spadla mi čelist. Čekala jsem někoho, jako byla maličká Frauke. Někoho, na koho by si mohl troufat, ponižovat ji. Tahle mladá dáma ale byla o hlavu vyšší než já, a pokud bych ji neviděla na vlastní oči, myslela bych si, že takové holky jsou jenom v časopisech. Nechci tady být za hlupačku, ale první, co mě napadlo: prvotřídní klisna.
 
-„Tohle je Maria,“ pověděl stručně. Můj návrh ignoroval.
+> Pokud bych ji neviděla a pokud by mi o ní někdo řekl, že je krásná a že vystudovala medicínu, pak bych si určitě pomyslela, že to byla medicína na nějaké podprůměrné fakultě. Předsudky. Krásná, ale hloupá. Máme to v sobě, nestydím se za to. Když jsem ale viděla, že je skutečně velmi krásná, pak mi hned přišlo nevyhnutelné, že má titul z Heidelbergu nebo z nějaké jiné suprové školy. A ani na vteřinu by mě nenapadlo, že k němu přišla nějak bůhvíjak, že někde roztáhla nohy a podobně.
 
-Spadla mi čelist. Čekala jsem někoho, jako byla maličká Frauke. Někoho, na koho by si mohl troufat, ponižovat ji. Tahle mladá dáma ale byla o hlavu vyšší než já, a pokud bych ji neviděla na vlastní oči, myslela bych si, že takové holky jsou jenom v časopisech. Nechci tady být za hlupačku, ale první, co mě napadlo: prvotřídní klisna.
+> Nejsem věřící, ale nikdy jsem nepochybovala o tom, že lidé jako Maria Caiazzo jsou důkazem boží existence. Člověk se od počátku věků snaží vytvořit krásnou vázu, epos, obraz, rytinu, brož. Nikdy by mu to nepřišlo na mysl, pokud by s ním od počátku věků po stejné zemi nechodily tyto zcela výjimečné úkazy, tyto eposy, vázy, rytiny a brože v lidské podobě. Jsme děti boží a lidé jako Maria Caiazzo jsou v jistém smyslu našimi rodiči; božími nápověďmi, kde hledat místo, z něhož všechno vychází a ke kterému všechno směřuje, finální průsečík, logos.
 
-Pokud bych ji neviděla a pokud by mi o ní někdo řekl, že je krásná a že vystudovala medicínu, pak bych si určitě pomyslela, že to byla medicína na nějaké podprůměrné fakultě. Předsudky. Krásná, ale hloupá. Máme to v sobě, nestydím se za to. Když jsem ale viděla, že je skutečně velmi krásná, pak mi hned přišlo nevyhnutelné, že má titul z Heidelbergu nebo z nějaké jiné suprové školy. A ani na vteřinu by mě nenapadlo, že k němu přišla nějak bůhvíjak, že někde roztáhla nohy a podobně.
+> Vyzní to zle, ale můj syn v tomhle neměl žádné místo. Tak to prostě je. O sobě bych řekla totéž, třeba i jen kvůli svému českému původu. Naše české geny se s těmi Mariinými prostě nemohou poměřovat. Čechy krásné, Čechy mé. Po Itálii však těch finálních průsečíků přece jen běhá o dost víc. Českým maximem je Alfons Mucha. Alfons Mucha ale není maximem malby.
 
-Nejsem věřící, ale nikdy jsem nepochybovala o tom, že lidé jako Maria Caiazzo jsou důkazem boží existence. Člověk se od počátku věků snaží vytvořit krásnou vázu, epos, obraz, rytinu, brož. Nikdy by mu to nepřišlo na mysl, pokud by s ním od počátku věků po stejné zemi nechodily tyto zcela výjimečné úkazy, tyto eposy, vázy, rytiny a brože v lidské podobě. Jsme děti boží a lidé jako Maria Caiazzo jsou v jistém smyslu našimi rodiči; božími nápověďmi, kde hledat místo, z něhož všechno vychází a ke kterému všechno směřuje, finální průsečík, logos.
+* * *
 
-Vyzní to zle, ale můj syn v tomhle neměl žádné místo. Tak to prostě je. O sobě bych řekla totéž, třeba i jen kvůli svému českému původu. Naše české geny se s těmi Mariinými prostě nemohou poměřovat. Čechy krásné, Čechy mé. Po Itálii však těch finálních průsečíků přece jen běhá o dost víc. Českým maximem je Alfons Mucha. Alfons Mucha ale není maximem malby.
+> „Konečně se to nějakému Němci podařilo, konečně holport,“ řekla jsem jim, když jsme seděli v hale a pili kávu. Kvůli slečně jsem koupila i sušenky.
 
-\* \* \*
+> „Mohli jsme se potkat ve městě, pokud jste chtěli,“ pokračovala jsem. „Nebo vám Mathias chtěl ukázat, kde trávil dětství?“ obrátila jsem se k tomu důkazu boží existence.
 
-  
+> „Musela jsem ho nutit!“ odvětila Maria. „Jak to víte? Radši by se opravdu sešel v restauraci, viď, Mathiasi.“
 
-„Konečně se to nějakému Němci podařilo, konečně holport,“ řekla jsem jim, když jsme seděli v hale a pili kávu. Kvůli slečně jsem koupila i sušenky.
+> Pak se na chvíli odmlčela, a když nikdo nic neříkal, pověděla: „A jak to myslíte s tím holportem, paní Walterová? Promiňte, nepochopila jsem to…“
 
-„Mohli jsme se potkat ve městě, pokud jste chtěli,“ pokračovala jsem. „Nebo vám Mathias chtěl ukázat, kde trávil dětství?“ obrátila jsem se k tomu důkazu boží existence.
+> „No… Hitler a Mussolini. To nebyla náhoda,“ řekla jsem. Mathias samozřejmě chtěl vystartovat, ale důkaz boží existence ho zastavil:
 
-„Musela jsem ho nutit!“ odvětila Maria. „Jak to víte? Radši by se opravdu sešel v restauraci, viď, Mathiasi.“
+> „Pokračujte,“ řekla a nechala svoji krásnou ruku pod stolem ležet na té Mathiasově.
 
-Pak se na chvíli odmlčela, a když nikdo nic neříkal, pověděla: „A jak to myslíte s tím holportem, paní Walterová? Promiňte, nepochopila jsem to…“
+> Když mě tak mile vyzvala, nemohla jsem mlčet: „Nechci vás tím ani jednoho urazit,“ řekla jsem. „Ale jen úplně na okraj podotýkám, že Ital je lepší Němec. Že Němec je _schmutzig_.“
 
-„No… Hitler a Mussolini. To nebyla náhoda,“ řekla jsem. Mathias samozřejmě chtěl vystartovat, ale důkaz boží existence ho zastavil:
+> „Matku nesmíš brát vážně, Marie,“ řekl na to. „Matka je nie­tzscheán­ka. Paní Zarathustrová. Viď, maminečko. Dostává literární ceny za to, jak je nenávistná… Ne, promiň, tys ještě žádnou literární cenu nedostala, viď. Ale na cenách přece nezáleží, důležité je dílo… Maria žádné tvé knížky ještě nečetla, nemá na to čas, mami. Pracuje, zachraňuje dětem ledviny a životy.“
 
-„Pokračujte,“ řekla a nechala svoji krásnou ruku pod stolem ležet na té Mathiasově.
+> „Ano? A jak jsi na tom vlastně ty?“ zeptala jsem se s upřímným zájmem.
 
-Když mě tak mile vyzvala, nemohla jsem mlčet: „Nechci vás tím ani jednoho urazit,“ řekla jsem. „Ale jen úplně na okraj podotýkám, že Ital je lepší Němec. Že Němec je _schmutzig_.“
+> Co říkal, mě neuráželo. Navíc jsem si za to mohla sama. Jan měl samozřejmě v těch svých e-mailech pravdu. Od jisté chvíle jsem lidi ráda popichovala.
 
-„Matku nesmíš brát vážně, Marie,“ řekl na to. „Matka je nie­tzscheán­ka. Paní Zarathustrová. Viď, maminečko. Dostává literární ceny za to, jak je nenávistná… Ne, promiň, tys ještě žádnou literární cenu nedostala, viď. Ale na cenách přece nezáleží, důležité je dílo… Maria žádné tvé knížky ještě nečetla, nemá na to čas, mami. Pracuje, zachraňuje dětem ledviny a životy.“
+> „Chodíš s ledvinami na kontroly?“ zeptala jsem se.
 
-„Ano? A jak jsi na tom vlastně ty?“ zeptala jsem se s upřímným zájmem.
+> Ani ve snu by mě nenapadlo, že můžu způsobit nepříjemnost zrovna tímhle. A ani ve snu, musím dodat, by mě nenapadlo, že Mathias před nastávající bude zatajovat své problémy s ledvinami.
 
-Co říkal, mě neuráželo. Navíc jsem si za to mohla sama. Jan měl samozřejmě v těch svých e-mailech pravdu. Od jisté chvíle jsem lidi ráda popichovala.
+> Co ale bylo horší, až v tu chvíli mi došlo, že si vzal příliš velké sousto. Nejen s ní. I sám se sebou. Vypadal dobře, zhubl, měla jsem ho před očima, _byl to on_. Ale nebyl. Byla to maska, divadlo. Mohl se zrovna v té chvíli postavit na váhu, vážil by něco kolem sedmdesáti kilo, fakt. Fakt, ale zároveň úplná lež. Nevím, jak může být objektivně určená váha člověka lží, ale vím, že by to byla lež.
 
-„Chodíš s ledvinami na kontroly?“ zeptala jsem se.
+> „Omlouvám se,“ řekla jsem. „Neměla jsem tušení… Není to nic vážného, viď, Mathiasi… Ale co já vám budu vysvětlovat ledviny…“
 
-Ani ve snu by mě nenapadlo, že můžu způsobit nepříjemnost zrovna tímhle. A ani ve snu, musím dodat, by mě nenapadlo, že Mathias před nastávající bude zatajovat své problémy s ledvinami.
+> Zasmála jsem se. Bylo to trapné.
 
-Co ale bylo horší, až v tu chvíli mi došlo, že si vzal příliš velké sousto. Nejen s ní. I sám se sebou. Vypadal dobře, zhubl, měla jsem ho před očima, _byl to on_. Ale nebyl. Byla to maska, divadlo. Mohl se zrovna v té chvíli postavit na váhu, vážil by něco kolem sedmdesáti kilo, fakt. Fakt, ale zároveň úplná lež. Nevím, jak může být objektivně určená váha člověka lží, ale vím, že by to byla lež.
+> „Slabá glomerulonefritida,“ řekl. „V remisi, vůbec o nic nejde. Patnáct let mi nic nebylo, skoro jsem na to zapomněl.“
 
-„Omlouvám se,“ řekla jsem. „Neměla jsem tušení… Není to nic vážného, viď, Mathiasi… Ale co já vám budu vysvětlovat ledviny…“
+> Přede mnou to dál neřešili. Bylo na ní vidět, že se hodně diví. Doufám, že jí to pak vysvětlil, když byli sami… I když… Jak? Jde takovou věc vysvětlit? Přestože je to docela drobnost… Nebo právě proto, že je to docela drobnost?
 
-Zasmála jsem se. Bylo to trapné.
+> Zeptala jsem se, kde a kdy bude svatba.
 
-„Slabá glomerulonefritida,“ řekl. „V remisi, vůbec o nic nejde. Patnáct let mi nic nebylo, skoro jsem na to zapomněl.“
+> Maria sice určitě dál v duchu řešila Mathiasovy ledviny, teď se ale usmála, znovu se dotkla Mathiasovy ruky a řekla mu:
 
-Přede mnou to dál neřešili. Bylo na ní vidět, že se hodně diví. Doufám, že jí to pak vysvětlil, když byli sami… I když… Jak? Jde takovou věc vysvětlit? Přestože je to docela drobnost… Nebo právě proto, že je to docela drobnost?
+> „No povídej. Tohle je otázka jenom na tebe.“
 
-Zeptala jsem se, kde a kdy bude svatba.
+> Byla v tom dobrosrdečnost. Ano, v té holce byla dobrosrdečnost. Za dlouhé roky mě nic nešokovalo tolik jako toto zjištění. Ta holka je dobrosrdečná a má ho ráda. Vysvětlí jí ty ledviny a ona to pochopí. Jak říkám, za dlouhé roky…
 
-Maria sice určitě dál v duchu řešila Mathiasovy ledviny, teď se ale usmála, znovu se dotkla Mathiasovy ruky a řekla mu:
+> „Svatbu jsme naplánovali v tom… Je to takovej experiment, ale Mariini rodiče souhlasí.“
 
-„No povídej. Tohle je otázka jenom na tebe.“
+> Mathias nebyl ve své kůži. Určitě čekal, že na tuhle otázku bude odpovídat v kulisách, které si sám vybere. Jeho vlastní prolhanost bohužel postavila kulisy za něj.
 
-Byla v tom dobrosrdečnost. Ano, v té holce byla dobrosrdečnost. Za dlouhé roky mě nic nešokovalo tolik jako toto zjištění. Ta holka je dobrosrdečná a má ho ráda. Vysvětlí jí ty ledviny a ona to pochopí. Jak říkám, za dlouhé roky…
+> „No tak. Řekni jí to.“
 
-„Svatbu jsme naplánovali v tom… Je to takovej experiment, ale Mariini rodiče souhlasí.“
+> „Ou kej, ou kej… Svatba bude tady v Offenbachu,“ řekl stručně.
 
-Mathias nebyl ve své kůži. Určitě čekal, že na tuhle otázku bude odpovídat v kulisách, které si sám vybere. Jeho vlastní prolhanost bohužel postavila kulisy za něj.
+> „V jednom paneláku u řeky,“ doplnila ho Maria a nezdálo se, že by jí to místo nějak zvlášť vadilo.
 
-„No tak. Řekni jí to.“
+> „Není to přísně vzato panelák,“ řekl Mathias. „Prostě klub, kde to mám rád. Domluvil jsem se s nima, jsou to kamarádi.“
 
-„Ou kej, ou kej… Svatba bude tady v Offenbachu,“ řekl stručně.
+> „Techno klub,“ znovu ho doplnila Maria. „Teď cestou k vám jsme se tam zastavili. Mathias mi to místo ukázal. Jezdí tam pravidelně, viď, Mathiasi,“ řekla a pohladila ho po ruce; v tu chvíli jako by na něj padla celá její výška.
 
-„V jednom paneláku u řeky,“ doplnila ho Maria a nezdálo se, že by jí to místo nějak zvlášť vadilo.
+> „Je to… No prostě docela malý klub,“ pokračovala.
 
-„Není to přísně vzato panelák,“ řekl Mathias. „Prostě klub, kde to mám rád. Domluvil jsem se s nima, jsou to kamarádi.“
+> „Alternativní místo, hodně netradiční, už podle fotek. Poslala jsem samozřejmě e-mailem fotky i rodičům. Nakonec se jim ten nápad moc líbí. Mathias je přesvědčil.“
 
-„Techno klub,“ znovu ho doplnila Maria. „Teď cestou k vám jsme se tam zastavili. Mathias mi to místo ukázal. Jezdí tam pravidelně, viď, Mathiasi,“ řekla a pohladila ho po ruce; v tu chvíli jako by na něj padla celá její výška.
+> Pokrčila jsem rameny. Žili jsme v době, kdy se dělaly svatby v letadlech, v podzemí, v balónech.
 
-„Je to… No prostě docela malý klub,“ pokračovala.
+> „Slyšela jsem, že někdo teď uspořádal svatbu na lanech toho bungee jumpingu,“ řekla jsem. „Asi tím chtěli naznačit, že skočili po hlavě do manželství, ne?“
 
-„Alternativní místo, hodně netradiční, už podle fotek. Poslala jsem samozřejmě e-mailem fotky i rodičům. Nakonec se jim ten nápad moc líbí. Mathias je přesvědčil.“
+> „Jo,“ řekla Maria a krásně se u toho usmála. „Mathias tím svým klubem asi chce říct, že nám to bude klapat, viď, cos tak zmiňoval? Klik, klik, duc, duc… Já teda techno zrovna neposlouchám, paní Walterová, docela to nenávidím. Rodiče to taky neposlouchají, ale opravdu jim to nakonec přišlo _cool_. Tak mi to doslova řekli. Nejsou to žádní snobové,“ dodala.
 
-Pokrčila jsem rameny. Žili jsme v době, kdy se dělaly svatby v letadlech, v podzemí, v balónech.
+> Kývla jsem. Přemýšlela jsem u toho, jak asi o věci uvažoval můj syn a proč se do toho podniku pouštěl. Nebyl zas takový hlupák, aby cokoli riskoval kvůli svému rozmaru. Na té holce mu miliónkrát záleželo, neudělal by nic, co by i jen hypoteticky mohlo pošramotit jeho vztah s Mariinými rodiči. Navíc to přece celé byla komedie; seděli přede mnou dva ambiciózní lékaři, žádní _teenagers_. Tohle všechno, možná včetně svatby, pro ně byl jen víkend, kuriozita, sami nad tím v duchu museli povytahovat obočí. Byli velmi mladí, to ano, ale u lidí jejich typu a s jejich zaměstnáním věk musí jít stranou.
 
-„Slyšela jsem, že někdo teď uspořádal svatbu na lanech toho bungee jumpingu,“ řekla jsem. „Asi tím chtěli naznačit, že skočili po hlavě do manželství, ne?“
+> Házím je do jednoho pytle, to ale samozřejmě není přesné. Mathiasova situace totiž ve skutečnosti byla o trochu komplikovanější: musel pracovat na dvou frontách. Zatímco Maria byla mladou lékařkou a krom toho jí stačilo jen být, Mathias byl mladým lékařem, který ale krom toho musí dvacet čtyři hodin denně pracovat i na své kariéře manžela nádherné lékařky; bez toho by se totiž pravděpodobně zhroutila i ta první kariéra. Někde v těchto vodách bylo třeba hledat odpověď na bláznivinu s rockovým klubem v periferním dělnickém Offenbachu.
 
-„Jo,“ řekla Maria a krásně se u toho usmála. „Mathias tím svým klubem asi chce říct, že nám to bude klapat, viď, cos tak zmiňoval? Klik, klik, duc, duc… Já teda techno zrovna neposlouchám, paní Walterová, docela to nenávidím. Rodiče to taky neposlouchají, ale opravdu jim to nakonec přišlo _cool_. Tak mi to doslova řekli. Nejsou to žádní snobové,“ dodala.
+> „Ukázkový arivismus, jen v postmileniální verzi,“ řekla jsem. „No ne? Stendhal? _Červený a černý_? Julien Sorel…? Ale vy mladí už dneska nečtete, že ne.“
 
-Kývla jsem. Přemýšlela jsem u toho, jak asi o věci uvažoval můj syn a proč se do toho podniku pouštěl. Nebyl zas takový hlupák, aby cokoli riskoval kvůli svému rozmaru. Na té holce mu miliónkrát záleželo, neudělal by nic, co by i jen hypoteticky mohlo pošramotit jeho vztah s Mariinými rodiči. Navíc to přece celé byla komedie; seděli přede mnou dva ambiciózní lékaři, žádní _teenagers_. Tohle všechno, možná včetně svatby, pro ně byl jen víkend, kuriozita, sami nad tím v duchu museli povytahovat obočí. Byli velmi mladí, to ano, ale u lidí jejich typu a s jejich zaměstnáním věk musí jít stranou.
+> „Myslím, že Mathias a já jsme z podobné společenské vrstvy,“ řekla Maria a rozhlédla se po hale.
 
-Házím je do jednoho pytle, to ale samozřejmě není přesné. Mathiasova situace totiž ve skutečnosti byla o trochu komplikovanější: musel pracovat na dvou frontách. Zatímco Maria byla mladou lékařkou a krom toho jí stačilo jen být, Mathias byl mladým lékařem, který ale krom toho musí dvacet čtyři hodin denně pracovat i na své kariéře manžela nádherné lékařky; bez toho by se totiž pravděpodobně zhroutila i ta první kariéra. Někde v těchto vodách bylo třeba hledat odpověď na bláznivinu s rockovým klubem v periferním dělnickém Offenbachu.
+> „Takže na Heidelbergu podle všeho Stendhala učili. A dokonce i mediky,“ řekla jsem. „Abyste pak věděli, na co si máte dávat pozor, je to tak? Aby se k vám pak někdo nepřilepil a nechtěl si vás brát, a vy byste nepoznali, o co mu jde… Nepředpokládám, že by vás to učili jen tak z plezíru, určitě to mělo nějakou funkci, ne?“
 
-„Ukázkový arivismus, jen v postmileniální verzi,“ řekla jsem. „No ne? Stendhal? _Červený a černý_? Julien Sorel…? Ale vy mladí už dneska nečtete, že ne.“
+> Neurazilo ji to. Podivila se nad mojí neomaleností. Měla šlechtickou krev.
 
-„Myslím, že Mathias a já jsme z podobné společenské vrstvy,“ řekla Maria a rozhlédla se po hale.
+> „Četla jsem Stendhala sama od sebe, když dovolíte,“ odvětila.
 
-„Takže na Heidelbergu podle všeho Stendhala učili. A dokonce i mediky,“ řekla jsem. „Abyste pak věděli, na co si máte dávat pozor, je to tak? Aby se k vám pak někdo nepřilepil a nechtěl si vás brát, a vy byste nepoznali, o co mu jde… Nepředpokládám, že by vás to učili jen tak z plezíru, určitě to mělo nějakou funkci, ne?“
+> „A tahle společenská vrstva,“ řekl Mathias a ukázal rukou kolem sebe. „To je spíš otcova vrstva. Matka ji zdědila.“
 
-Neurazilo ji to. Podivila se nad mojí neomaleností. Měla šlechtickou krev.
+> „No ano. A moje poslední knížka vydělala sedmdesát tisíc eur.“
 
-„Četla jsem Stendhala sama od sebe, když dovolíte,“ odvětila.
+> Věděla jsem, co na to chce Mathias říct. Ta boží existence ho naštěstí zastavila.
 
-„A tahle společenská vrstva,“ řekl Mathias a ukázal rukou kolem sebe. „To je spíš otcova vrstva. Matka ji zdědila.“
+> „Musím si konečně nějakou tu vaši knihu přečíst,“ řekla místo toho ochotně.
 
-„No ano. A moje poslední knížka vydělala sedmdesát tisíc eur.“
+> „To je od vás milé… Vy budete _super power couple_. To jsem teď někde zaslechla. Možná od těch lidí na té bungee jumping šňůře.“
 
-Věděla jsem, co na to chce Mathias říct. Ta boží existence ho naštěstí zastavila.
-
-„Musím si konečně nějakou tu vaši knihu přečíst,“ řekla místo toho ochotně.
-
-„To je od vás milé… Vy budete _super power couple_. To jsem teď někde zaslechla. Možná od těch lidí na té bungee jumping šňůře.“
-
-Zulíbala bych ji. Chtěla bych ji vidět nahou, a pokud by to šlo zařídit tak, aby o tom nevěděla a nikdy se o tom nedověděla, skutečně bych její tělo s radostí líbala od palce na noze po ucho. Sama bych při tom svýma ušima naslouchala, co úžasného se v tom korpusu děje.
+> Zulíbala bych ji. Chtěla bych ji vidět nahou, a pokud by to šlo zařídit tak, aby o tom nevěděla a nikdy se o tom nedověděla, skutečně bych její tělo s radostí líbala od palce na noze po ucho. Sama bych při tom svýma ušima naslouchala, co úžasného se v tom korpusu děje.
 
 ## 11.
-
-  
 
 Svatba se konala za necelé dva měsíce, v sobotu šestnáctého června 2005. Mathias krom Kathariny pozval i Clemensovu první ženu Hannu. Bylo jí dvaasedmdesát a přišla se svým manželem, byli svoji asi dva roky. S Katharinou se dál nenáviděly, na čemž se už do Hanniny smrti v roce 2013 nemělo nic změnit. Hanna vypadala spokojeně. Její jen o pár let starší manžel ji podle všeho měl upřímně a nekomplikovaně rád.
 
@@ -951,9 +853,7 @@ Snoubenci pozvali především kolegy z nemocnice. Jejich svatba byla už dva m
 
 Dorazil mladičký Christos, než pak odjel na měsíc domů do Řecka. Přijel i primář a ještě čtyři další kolegové. Byli v Erlangenu dohromady docela mladým týmem; průměrný věk na jejich oddělení byl 37 let, což se vědělo zcela přesně, stejně jako se to spolu s dalšími údaji vědělo o každém jiném oddělení a o nemocnici v celku. Klinika zaměstnávala hned několik lidí jen kvůli tomu, aby o takových a podobných datech měli přehled a aby z nich následně vykouzlili _něco_, co mělo následně dokazovat _něco pozitivního_.
 
-\* \* \*
-
-  
+* * *
 
 Co většinu svatebních hostů překvapilo, nebyl ani tak interiér klubu Robert Johnson, jako spíše počet Mathiasových kamarádů.
 
@@ -967,17 +867,13 @@ Nikoho z nich sice nepoznávala, to by byla velká náhoda, Maria ale dobře v�
 
 Až teď, když viděla Mathiase v okruhu jeho známých, napadlo ji, jak si jsou s Jensem v jistém smyslu podobní.
 
-\* \* \*
-
-  
+* * *
 
 Mathias to všechno zorganizoval především kvůli Mariiným rodičům, to bylo vidět ihned. Neustále Sebastiana s Martou kontroloval pohledem a chtěl, aby se dobře bavili. Na sobě měl pěkný oblek, těsně po obřadu si k němu nasadil kovbojský klobouk. Svítilo slunce, často pak měl na očích své sluneční brýle.
 
 Hostina byla netradiční, odehrávala se na pontonech a na staré rezavé lodi přistavených u řeky za klubem. Neměla žádný jasný řád ani zasedací pořádek. Na pontonech stálo jen pár židlí a starých křesel. Pro občerstvení se chodilo ke dvěma _food-truckům_, pojízdným stánkům s jídlem; food-truck byla móda, která tehdy do Německa přišla ze Spojených států. V jednom food-trucku se vydávala thajská, v druhém eklektická _fusion_ vegetariánská kuchyně. Byla to nálada rautu, nikoli svatební hostiny. Lidé proudili do klubu a z klubu, potkávali se na pontonech nebo na terase, kde hrál jeden z dýdžejů, druhý pak byl uvnitř v klubu. Mariini rodiče měli pravdu, když tvrdili, že svatba tohoto ražení bude _cool_. Všeprostupující _coolness_ skutečně byla tím nejvýstižnějším popisem.
 
-\* \* \*
-
-  
+* * *
 
 Do Wiesbadenu Mariini rodiče přijeli den před svatbou, Mathias jim zaplatil ubytování v hotelu Luisenhof. S Mathiasovou matkou se stuttgartští potkali ještě toho večera, to byla jedna z jejich podmínek, jedno z jejich mile sdělených ultimát. Všichni se sešli u večeře v hotelové restauraci. Mathias s Marií, Sebastiano s Martou a konečně Katharina.
 
@@ -1035,9 +931,7 @@ Katharina pak u hlavního chodu přemýšlela, kde na téhle ose mezi absolutn�
 
 Vtipu o německém designu a o nacistech se smála jen Katharina se Sebou. Teď se smál celý stůl včetně Mathiase.
 
-\* \* \*
-
-  
+* * *
 
 Setkání pak mělo drobnou dohru druhý den na svatbě. Tu nakonec všichni vnímali jako povedenou. Bavili se a měli pocit, že se účastní něčeho výjimečného. Od řeky byl krásný výhled na Frankfurt, Sebastiano pronesl bezvadný přípitek, vtipný i velmi emocionální; znovu v něm o své dceři řekl, že je světlem jeho života, a Maria se pak rozplakala dojetím.
 
@@ -1091,9 +985,7 @@ Později si ale s dcerou promluvil docela vážně, když byli chvilku o samot
 
 „Těším se zas do práce,“ řekla mu a políbila otce na tvář.
 
-\* \* \*
-
-  
+* * *
 
 Měla pravdu. V těch následujících měsících a letech se nestalo nic hrozného. V listopadu odjeli na kratší svatební cestu do Vietnamu. Ani v nejmenším jim přitom nevadilo, že v tomhle směru opět jdou s módou; nehleděli na to. Brali si, co se jim nabízelo a o čem si mysleli, že se jim to bude líbit. Neměli čas na spekulování a fakt, že ve výsledku žili velmi cool a trendy život, byla jen shoda okolností, výsledek plynutí s jedním z proudů.
 
@@ -1103,15 +995,11 @@ Mysleli si, že jsou typičtí liberálové. Měli rádi své svobody, ale i v�
 
 ## 12.
 
-  
-
 Dva roky po svatbě Maria přišla s nápadem přihlásit se na misi Lékařů bez hranic.
 
 Byla to dobrá věc, obecně uznávaná. Údaj o spolupráci s Lékaři bez hranic se navíc dobře vyjímal v životopisu, což byl ten úplně nejprostší fakt, který nikdo z doktorů nezapíral. Pokud by za Marií někdo přišel s objevem, že v souvislosti s jejím rozhodnutím jít pomáhat odhalil jakési pravdivé egoistické zákulisí lidské morálky, à la Nietzsche, Marie by si jen nevěřícně poklepala na čelo. Lékaři jsou speciální lidský druh: lékaři totiž skutečně zachraňují lidské životy. Většinou to jsou velmi schopní lidé. Jakékoli nařčení z falše, které by možná zcela zdrtilo maličkou Frauke z kulturologie, se od lékaře či od lékařky odrazilo jako kulička hrachu. Spojit se na chvíli s Lékaři bez hranic ve finále pro lékařku nebylo nic jiného než třeba koupit si v kavárně _fair trade_ kávu.
 
-\* \* \*
-
-  
+* * *
 
 Větším problémem bylo, že Mathias nesouhlasil. I on už za sebou měl první atestaci, teď se připravoval na druhou, a jeho prioritou bylo odejít z Erlangenu někam do většího města. Snil o Hamburku nebo o Lübecku. Měl rád větrné přímořské podnebí severního Německa; jižního slunce si vždy na další rok užil v létě o dovolené. Pomalu chtěl Marii usadit na její pozdější trvalé adrese, tam, kde porodí a bude se starat o děti, pleny a dětské postýlky.
 
@@ -1121,9 +1009,7 @@ Maria ale chtěla na misi Lékařů bez hranic a v Norimberku, kde stále bydl
 
 Nakonec z toho byl jejich první drobný spor. Maria si však stála za svým, vlastně ho po kratších peripetiích postavila před hotovou věc: přihlásí se na misi a v polovině září odjede. Pohovor v assess­ment centru Lékařů bez hranic pak bez problému zvládla a v září skutečně odjela na tři měsíce do Čadu. Součástí její mise byla pediatrická a porodnická péče, zčásti i zapojení se do programu na léčbu podvýživy. Mathias ustoupil, přestal z toho dělat velkou věc. Svět se přece za tři měsíce nezboří. Byli ve spojení přes Skype, psali si e-maily. Na Vánoce měla být doma.
 
-\* \* \*
-
-  
+* * *
 
 Někdy v polovině listopadu ale Mathiasovi po Skypu řekla, že v Čadu zůstane až do konce ledna. Měla pro to dobré důvody. Bylo jí tam třeba. O nic jiného prý nešlo.
 
@@ -1133,25 +1019,19 @@ Byl to bláznivý nápad, navíc v rozporu s kodexem organizace, kterým by se
 
 Domluvili se, že se v podstatě potají potkají v hlavním městě N’Djameně. Našli vhodný termín. Mathias měl zůstat čtyři dny, ona ho může na dva dny navštívit.
 
-\* \* \*
-
-  
+* * *
 
 Hned si od Air France koupil let z Frankfurtu do N’Djameny s přestupem v Paříži. Online si v N’Djameně zarezervoval pokoj v hotelu Mercure Le Chari. Překvapilo ho přitom, jak luxusně hotel působil na fotografiích, víc se ale o čadské hlavní město a jeho hotely nezajímal. Jel do Afriky kvůli Marii, nic kolem vlastně vůbec neviděl a nechtěl vidět. Tehdy, když se s Marií seznámili, tehdy to možná nebyla tak úplně pravda, ono rozestoupení se světa, o kterém Mathias mluvil, zatímco byl ještě pořád pod vlivem drog z předchozího večera. Teď to ale pravda byla, tentokrát se kolem Marie svět, nebo aspoň jeden kontinent skutečně rozestoupil. Afrika to navíc Mathiasovi zásadně ulehčovala; neměl o ni žádný zájem, chtěl jen ve zdraví pobyt v Africe přežít. Zbytek jeho mise byl jasný: zavřít se na hotelovém pokoji a vnímat blízkost své manželky.
 
 Maria si už dlouho dopředu zajistila dopravu z městečka jménem Am Timan v jihovýchodním Čadu, kde působila. Do N’Djameny to přitom měla víc než sedm set kilometrů, jedenáct hodin cesty, pokud všechno šlo dobře. Bylo to velmi komplikované a vysilující, jiné řešení však neexistovalo. Mathias sám se po Čadu přepravovat nemohl. Země byla čerstvě ve válce se sousedním Súdánem a pro někoho, kdo se subsaharskou Afrikou neměl žádné zkušenosti, a navíc ani nemohl využít ochrany a know-how velké mezinárodní organizace, což bylo ještě důležitější, pro někoho takového se návštěva Čadu skutečně omezovala v podstatě na bezprostřední okolí jediného čadského mezinárodního letiště.
 
-\* \* \*
-
-  
+* * *
 
 Osmnáctého prosince 2007 sedl v zimní bundě ve Frankfurtu do letadla a za deset hodin přistával v N’Djameně, kde bylo přes třicet stupňů a na nebi ani mrak.
 
 Jediné, co ho v tu chvíli zajímalo, byla co nejkratší cesta do hotelu. V Africe nikdy nebyl a nikdy po tom netoužil. Černý kontinent pro něj prakticky znamenal slony a safari, epidemie, nahé křováky, náušnice a dřevěné ozdoby, plus jako třešinka na dortu ti vytrvalostní běžci, kteří vyhrávali maratóny po celém Německu. Mathiasovi vždy připadalo, že si doběhli pro peníze a pak zas rychle odběhli někam pryč. Tohle byl vrchol inteligence, který byl Africe a Afričanům schopný přiznat: byli rychlí a věděli, kam si zaběhnout pro peníze a jak zas rychle beze slova vypadnout.
 
-\* \* \*
-
-  
+* * *
 
 Hotel nakonec vypadal ještě lépe než na fotografiích. Sotva prošel otočnými dveřmi, příjemně ho osvěžila klimatizace. V lobby na stěnách visela typicky evropská plátna v evropských rámech a v tlumených barvách. Do jejich středů pak na plátno někdo zavěsil africké masky. A podobně působil i celý hotel: jako evropský rámec pro něco, co se na tomto malém hotelovém prostoru podařilo zkrotit.
 
@@ -1161,9 +1041,7 @@ Mathiasovi to přišlo jako dobrý vtip. Jak koloniální tón recepčního, fr�
 
 „Ne, díky, jste moc milý,“ řekl a vzal si od recepčního elektronický klíč.
 
-\* \* \*
-
-  
+* * *
 
 Pokoj už byl trochu horší, provinční. Zkusil dvojpostel. Čekala ho jedna noc o samotě. Maria měla přijet druhý den někdy pozdě odpoledne.
 
@@ -1171,9 +1049,7 @@ Až do večera nevylezl z hotelu. Měl k dispozici zahradu, bazén, restauraci
 
 Většinu času nakonec ale trávil u bazénu s prací. Studoval článek  ze svého oboru v posledním čísle časopisu _The Lancet_.
 
-\* \* \*
-
-  
+* * *
 
 Co se týkalo kuchyně, až v restauraci u večeře mu došlo, jaké měl štěstí, když se Maria rozhodla pro bývalou _francouzskou_ kolonii a on sám pak pro hotel patřící pod mateřskou společnost AccorHotels. S jídlem měl obecně mimo domov starosti. Objednával si kvůli dietě prakticky pouze dušenou nebo smaženou zeleninu. V jeho čadském hotelu byla naštěstí tak na tři a půl hvězdičky z pěti, na Čad velmi slušné. Mathias to dokonce řekl číšníkovi, který odnášel prázdný talíř. Mluvil s ním anglicky a vychutnával si při tom pocit, že on sám je Němec, nikoli Francouz, a že tudíž na jeho rukách pro tentokrát v podstatě nelpí koloniální ani žádná jiná historická krev.
 
@@ -1213,9 +1089,7 @@ Stejně jako tehdy, i teď musel odejít na toaletu, kde se poté v duchu se S
 
 Pivo ani nedopil a bez jediného ohlédnutí se vrátil na pokoj.
 
-\* \* \*
-
-  
+* * *
 
 Druhý den u snídaně pak už Sylviane neviděl, ani u oběda. Odpoledne si lehl k bazénu a čekal na Marii. Psali si, věděl, že cesta zatím probíhá dobře: „Pokud to takhle pujde dal, jsem v pet u tebe v hotelu.“
 
@@ -1237,9 +1111,7 @@ Maria zatím pokračovala v jejich rozhovoru o Afričanech.
 
 „Tady je to vidět všude,“ řekla. „Bohužel. Není způsob, jak to změnit. Jsou černí, jsou. Jejich život má menší cenu. Jde to dokázat, změřit to. Bude to znít hrozně, ale to, co tady dělám já, to je doma veterina.“
 
-\* \* \*
-
-  
+* * *
 
 Druhý den ho vzala do města. Důsledky války byly dobře vidět i během jejich krátké procházky po centru. Čadské hlavní město leží v podstatě na hranici s Kamerunem, kde se tisíce čadských, ale i súdánských válečných uprchlíků snažili najít bezpečí. Do sousední země přitom často utíkali právě přes N’Djamenu.
 
@@ -1255,8 +1127,6 @@ Odtáhnout Marii někam na záchodek? Mariina tvář něco takového vylučovala
 
 Počkal, až budou zpátky v hotelu.
 
-\* \* \*
-
-  
+* * *
 
 Ráno jednadvacátého prosince 2007 odjela do Am Timanu. Už v osm ji vyzvedl řidič, shodou okolností mladý a statný černoch. Mathiasovi v čadské N’Djameně do odletu zbývalo čtyřiadvacet hodin.

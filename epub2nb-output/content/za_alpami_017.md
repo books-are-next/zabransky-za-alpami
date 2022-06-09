@@ -5,8 +5,6 @@ contentType: prose
 
 ## 1.
 
-  
-
 V Čechách byl naposledy ještě před pádem železné opony, konkrétně v létě 1988, ve svých devíti letech. Tehdy byl v Katharinině rodné zemi poprvé a naposledy. Odmítl jet nejen na výměnný pobyt s gymnáziem do Broumova, nýbrž i na pohřeb své babičky v roce 1995.
 
 Nyní měl na starosti pražskou pobočku LWK Loyalty. Pracovalo pro ni pět náborářek a jedna koordinátorka, všechno Češky ve věku mezi jednatřiceti a pětačtyřiceti. Tři z nich byly bývalé vrchní sestry, jedna sama měla zkušenosti s prací v Německu. Dále v pražském zastoupení pracovala bývalá manažerka ve zdravotnictví a jedna někdejší finanční poradkyně. V LWK Loyalty všechny byly kvůli penězům, které si před tím v takové míře nemohly nebo neuměly vydělat.
@@ -15,17 +13,13 @@ Pobočka sídlila v nově zrekonstruované a pro jejich potřeby uzpůsobené 
 
 ## 2.
 
-  
-
 V květnu 2009 Piotr doprovázel Mathiase při jeho první návštěvě pražské pobočky. Vyrazili na cestu Mathiasovou čistě bílou doktorskou áčtyřkou. Trasa Berlín – Drážďany – Ústí nad Labem – Litoměřice – Praha.
 
 Na německo-českých hranicích žádné hranice. Bez zastavení na dálnici minuli modrou ceduli Evropské unie s nápisem „Česká republika“.
 
 Na české dálnici byla povolená rychlost sto třicet kilometrů v hodině. Mathias to věděl. Úmyslně však hned po překročení hranice nehranice sešlápl plyn až na sto šedesát, zatímco si rukou stahoval z vlasů před oči své sluneční brýle.
 
-\* \* \*
-
-  
+* * *
 
 Dálnice končila už asi po třiceti kilometrech. Dál museli po okresní cestě přes Ústí nad Labem. Mathias se teď táhl padesátkou a rayba­ny byly zpátky ve vlasech.
 
@@ -51,9 +45,7 @@ Mathias se zatím stále rozhlížel po ústeckém předměstí.
 
 „Memento mori,“ pověděl a šlápl na plyn.
 
-\* \* \*
-
-  
+* * *
 
 Pražské dálniční přivaděče na něj nepůsobily jako dálniční přivaděče u velkoměsta; Mathiasovi připadalo, že s jeho audi jednoduše sjíždějí z kopce dolů směrem k řece, když se řídil Piotrovými pokyny, které ho skrze severní okraje Prahy naváděly k Parkhotelu na Letné. Žádné radiály, žádný systém, žádná vůle. Jen tupé spuštění silnice co nejkratší cestou dolů z kopce.
 
@@ -61,21 +53,17 @@ Co se změnilo oproti Ústí nad Labem, byla frekvence a velikost billboardů. 
 
 ## Z M. deníku
 
-31\. prosince 2016
+#### 31\. prosince 2016
 
-  
+> To směšné historické centrum. Někde v něm pramení ono nedorozumění. Bylo by v zájmu Čechů, aby tohle centrum zmizelo; pak by se snad mohli začít svobodně rozvíjet. Těch pár historických ulic a náměstí pro Čechy představuje nesnesitelnou zátěž; je to těchto pár ulic a náměstí, těchto pár barokních, románských a gotických staveb, kvůli nimž se Praha pravidelně v různých výčtech ocitá po boku měst, jako jsou Londýn, Paříž, Řím a Athény. Berlín se tak vysoko ani nedostane. Praha se vydává za jakousi oázu, za zázrak, za cosi, co v rámci postkomunistických zemí nemá konkurenci. Architektonický skvost, ale i tradičně nejzápadnější východoevropské město; bezkonkurenční v rámci Východu, konkurenceschopná v rámci Západu. První evropská liga. Londýn, Paříž, Řím, Athény a Praha.
 
-To směšné historické centrum. Někde v něm pramení ono nedorozumění. Bylo by v zájmu Čechů, aby tohle centrum zmizelo; pak by se snad mohli začít svobodně rozvíjet. Těch pár historických ulic a náměstí pro Čechy představuje nesnesitelnou zátěž; je to těchto pár ulic a náměstí, těchto pár barokních, románských a gotických staveb, kvůli nimž se Praha pravidelně v různých výčtech ocitá po boku měst, jako jsou Londýn, Paříž, Řím a Athény. Berlín se tak vysoko ani nedostane. Praha se vydává za jakousi oázu, za zázrak, za cosi, co v rámci postkomunistických zemí nemá konkurenci. Architektonický skvost, ale i tradičně nejzápadnější východoevropské město; bezkonkurenční v rámci Východu, konkurenceschopná v rámci Západu. První evropská liga. Londýn, Paříž, Řím, Athény a Praha.
+> Zkuste se zeptat kohokoli z Londýna, Paříže, Říma či Athén, jestli Praha stojí právem na jedné úrovni s jejich městy. Ta otázka jim přijde zcela nepatřičná. Ocení pražské architektonické památky. Ocení pivo. Při svých procházkách po Praze budou mít hlavu v architektonických oblacích, dole se budou po kotníky brodit v pivu; od kotníků po bradu však půjdou v absolutním prázdnu, tak vám to popíšou. Je to tato absence střední vrstvy, co Prahu diskvalifikuje.
 
-Zkuste se zeptat kohokoli z Londýna, Paříže, Říma či Athén, jestli Praha stojí právem na jedné úrovni s jejich městy. Ta otázka jim přijde zcela nepatřičná. Ocení pražské architektonické památky. Ocení pivo. Při svých procházkách po Praze budou mít hlavu v architektonických oblacích, dole se budou po kotníky brodit v pivu; od kotníků po bradu však půjdou v absolutním prázdnu, tak vám to popíšou. Je to tato absence střední vrstvy, co Prahu diskvalifikuje.
+> Praze se údajně vyhnuly války a válečné ničení, proto se prý v jejím jádru zachovalo tolik architektonických skvostů. No ano, určitě, přesně tak to bylo; Češi v roce 1938 stáli na špičkách a mávali na válku, válko, pojď sem, nevyhýbej se nám, my chceme bojovat. Češi si o sobě dokonce vytvořili mýtus, který tvrdí právě toto. Skutečnost je ale taková, že válka se nevyhne nikomu, kdo si o ni aspoň úplně tiše řekne. Vinu za neválčení nejde svalovat na Beneše. Skrze tehdejšího československého prezidenta promlouval celý národ nebo jeho památkáři. Praha si tak svoji velikost udržela díky české malosti. Památkářské ohledy z Prahy učinily v rámci Evropy kuriozitu; město, které přerostlo nejen své současné obyvatele, ale i své dějiny. Athény jsou řecké dějiny, Řím jsou italské dějiny. Praha jsou německé dějiny. Ve chvíli, kdy Češi vyhnali Němce, měli zbořit i jejich domy.
 
-Praze se údajně vyhnuly války a válečné ničení, proto se prý v jejím jádru zachovalo tolik architektonických skvostů. No ano, určitě, přesně tak to bylo; Češi v roce 1938 stáli na špičkách a mávali na válku, válko, pojď sem, nevyhýbej se nám, my chceme bojovat. Češi si o sobě dokonce vytvořili mýtus, který tvrdí právě toto. Skutečnost je ale taková, že válka se nevyhne nikomu, kdo si o ni aspoň úplně tiše řekne. Vinu za neválčení nejde svalovat na Beneše. Skrze tehdejšího československého prezidenta promlouval celý národ nebo jeho památkáři. Praha si tak svoji velikost udržela díky české malosti. Památkářské ohledy z Prahy učinily v rámci Evropy kuriozitu; město, které přerostlo nejen své současné obyvatele, ale i své dějiny. Athény jsou řecké dějiny, Řím jsou italské dějiny. Praha jsou německé dějiny. Ve chvíli, kdy Češi vyhnali Němce, měli zbořit i jejich domy.
-
-Fakt, že se Praha po roce 1989 tak rychle proměnila v město, kam Západ začal jezdit a létat za chlastem, není výsledek nějaké náhodné shody ekonomických a jiných okolností; Praha nic jiného nemohla nabídnout, byl to výsledek. Jestliže rok 1989 podtrhl tisíciletý účet, pak pod účtem nestálo nic jiného než toto: bez Němců se jedná o město bez obsahu. V jasně ohraničeném pražském historickém jádru, které není nijak rozsáhlé, sice dál nezadržitelně bobtná baroko, nejde však o nic víc než o další pěnu na půllitru s pivem.
+> Fakt, že se Praha po roce 1989 tak rychle proměnila v město, kam Západ začal jezdit a létat za chlastem, není výsledek nějaké náhodné shody ekonomických a jiných okolností; Praha nic jiného nemohla nabídnout, byl to výsledek. Jestliže rok 1989 podtrhl tisíciletý účet, pak pod účtem nestálo nic jiného než toto: bez Němců se jedná o město bez obsahu. V jasně ohraničeném pražském historickém jádru, které není nijak rozsáhlé, sice dál nezadržitelně bobtná baroko, nejde však o nic víc než o další pěnu na půllitru s pivem.
 
 ## 4.
-
-  
 
 Piotr později odpoledne Mathiase uvedl do firmy. Mathiasovi se líbilo, že pražská pobočka LWK Loyalty sídlí blízko zoologické zahrady.
 
@@ -97,48 +85,34 @@ Ten malý byt na Letné, který koupil v srpnu 2011 a který do konce roku nec
 
 ## Z M. deníku
 
-1\. ledna 2017
+#### 1\. ledna 2017
 
-  
+> Chata byla od ledna 2012 permanentně v provozu. Toho roku navíc spustili Tinder, což bylo vynikající načasování. Moje chata poptávala, Tinder se z velké části postaral o stránku nabídky.
 
-Chata byla od ledna 2012 permanentně v provozu. Toho roku navíc spustili Tinder, což bylo vynikající načasování. Moje chata poptávala, Tinder se z velké části postaral o stránku nabídky.
+* * *
 
-\* \* \*
+> Z chaty jsem to měl kousek na místní Akademii výtvarných umění. Začal jsem do historické budovy AVU chodit na výstavy studentských klauzurních prací. Dával jsem se tam do řeči se studentkami, s rodilými Češkami, ale i s těmi, které do Prahy přijely v rámci evropských studentských výměnných programů. Šukat staré české sestry, to mě bavilo. O co jsem však skutečně stál, to byly studentky uměleckých škol. Teprve u nich jsem našel přesně to, co jsem hledal. Pohrdal jsem jimi, zároveň jsem je svým způsobem obdivoval. Často mi připadaly ušlechtilé. Hloupé a naivní, ale ušlechtilé. Okoukal jsem, jak se studenti uměleckých škol oblékají, a začal jsem se oblékat jako oni.
 
-  
+* * *
 
-Z chaty jsem to měl kousek na místní Akademii výtvarných umění. Začal jsem do historické budovy AVU chodit na výstavy studentských klauzurních prací. Dával jsem se tam do řeči se studentkami, s rodilými Češkami, ale i s těmi, které do Prahy přijely v rámci evropských studentských výměnných programů. Šukat staré české sestry, to mě bavilo. O co jsem však skutečně stál, to byly studentky uměleckých škol. Teprve u nich jsem našel přesně to, co jsem hledal. Pohrdal jsem jimi, zároveň jsem je svým způsobem obdivoval. Často mi připadaly ušlechtilé. Hloupé a naivní, ale ušlechtilé. Okoukal jsem, jak se studenti uměleckých škol oblékají, a začal jsem se oblékat jako oni.
+> Pokud kdy Evropa po roce 2000 měla nějaké skutečně společné hodnoty, pak je nehledejme jinde než mezi studenty evropských uměleckých škol. Celou dnešní Evropu neúnavně buduje pouze ta úplně nejkrotší bohéma. Latté, Club-Mate, OSB desky, vinyly… Jejich dobrota, zápal, egoismus… Jejich snaha pokračovat ve vytváření kultury. Je to dojemné. Jsem přesvědčený o tom, že dějiny studentů evropských vysokých škol s uměleckým zaměřením někdy z doby kolem roku 2010 a dál budou těmi nejdojemnějšími dějinami poslední doby vůbec; teprve tehdy, až budou sepsány dějiny mladých evropských malířů, teprve pak začněte se sepisováním dějin uprchlictví a novodobých válečných hrůz. Syrské dítě, jemuž zabili rodiče, bude muset na svůj epos počkat, protože před ním jsou na řadě mladí evropští malíři, jimž kdosi zabil Evropu.
 
-\* \* \*
+* * *
 
-  
+> Na techno jsem teď chodil častěji než dřív. Pražská scéna se v těch letech probouzela k životu. Kopíroval se Berlín, Berghain byl pro Čechy vzorem. Žádný takový klub sice neměli k dispozici, ale jejich akce pod hlavičkou sdružení Polygon, odehrávající se na místech, která byla do poslední chvíle utajena, měly dobrou úroveň. Hrálo se v továrnách, na ostrovech na řece Vltavě, na lodích, v podzemí…
 
-Pokud kdy Evropa po roce 2000 měla nějaké skutečně společné hodnoty, pak je nehledejme jinde než mezi studenty evropských uměleckých škol. Celou dnešní Evropu neúnavně buduje pouze ta úplně nejkrotší bohéma. Latté, Club-Mate, OSB desky, vinyly… Jejich dobrota, zápal, egoismus… Jejich snaha pokračovat ve vytváření kultury. Je to dojemné. Jsem přesvědčený o tom, že dějiny studentů evropských vysokých škol s uměleckým zaměřením někdy z doby kolem roku 2010 a dál budou těmi nejdojemnějšími dějinami poslední doby vůbec; teprve tehdy, až budou sepsány dějiny mladých evropských malířů, teprve pak začněte se sepisováním dějin uprchlictví a novodobých válečných hrůz. Syrské dítě, jemuž zabili rodiče, bude muset na svůj epos počkat, protože před ním jsou na řadě mladí evropští malíři, jimž kdosi zabil Evropu.
+* * *
 
-\* \* \*
+> V listopadu 2012 jsem si poprvé v jedné pražské nemocnici sehnal botox a začal jsem si ho píchat do tváří. Byly pak vypnutější a působily mladistvěji. Ze své diety jsem neustupoval, ale po třicítce se mi zpomalil metabolismus. Přibíral jsem. Maria tvrdila, že to není pravda, ale byla to pravda. Maria sama stárla, ale spali jsme spolu, tam v Zehlendorfu, tam v utopii.
 
-  
+* * *
 
-Na techno jsem teď chodil častěji než dřív. Pražská scéna se v těch letech probouzela k životu. Kopíroval se Berlín, Berghain byl pro Čechy vzorem. Žádný takový klub sice neměli k dispozici, ale jejich akce pod hlavičkou sdružení Polygon, odehrávající se na místech, která byla do poslední chvíle utajena, měly dobrou úroveň. Hrálo se v továrnách, na ostrovech na řece Vltavě, na lodích, v podzemí…
+> V roce 2013 se mi narodila druhá dcera Karolina. O rok později skončilo přechodné období pro volný pohyb pracovních sil z Rumunska a Bulharska.
 
-\* \* \*
+> Začít brát sestry právě odtud byl můj nápad. Většinou byly mladší a animálnější než ty české. Nutili jsme je německým nemocnicím, dávali jsme na ně slevy. Naznačovali jsme, že nemocnici uděláme ostudu, pokud budou příliš okatě dávat přednost čistším holkám z Čech nebo Polska. Němečtí doktoři se Rumunek a Bulharek štítili, veřejně ale ani necekli.
 
-  
+> Špinavé líné kůže šly na odbyt. Některé z nich pak končily i v bordelech, o to se staral Piotr. Pod hlavičkou LWK Loyalty se děl regulérní obchod s lidmi, postupně jsme začali spolupracovat s rumunskou a bulharskou mafií. Všechno, co jsme dělali, však formálně bylo v pořádku. Najímali jsme dobré právníky. Mezi rehabilitačními středisky a veřejnými domy je fakticky tenčí hranice, než si lidi myslí.
 
-V listopadu 2012 jsem si poprvé v jedné pražské nemocnici sehnal botox a začal jsem si ho píchat do tváří. Byly pak vypnutější a působily mladistvěji. Ze své diety jsem neustupoval, ale po třicítce se mi zpomalil metabolismus. Přibíral jsem. Maria tvrdila, že to není pravda, ale byla to pravda. Maria sama stárla, ale spali jsme spolu, tam v Zehlendorfu, tam v utopii.
+* * *
 
-\* \* \*
-
-  
-
-V roce 2013 se mi narodila druhá dcera Karolina. O rok později skončilo přechodné období pro volný pohyb pracovních sil z Rumunska a Bulharska.
-
-Začít brát sestry právě odtud byl můj nápad. Většinou byly mladší a animálnější než ty české. Nutili jsme je německým nemocnicím, dávali jsme na ně slevy. Naznačovali jsme, že nemocnici uděláme ostudu, pokud budou příliš okatě dávat přednost čistším holkám z Čech nebo Polska. Němečtí doktoři se Rumunek a Bulharek štítili, veřejně ale ani necekli.
-
-Špinavé líné kůže šly na odbyt. Některé z nich pak končily i v bordelech, o to se staral Piotr. Pod hlavičkou LWK Loyalty se děl regulérní obchod s lidmi, postupně jsme začali spolupracovat s rumunskou a bulharskou mafií. Všechno, co jsme dělali, však formálně bylo v pořádku. Najímali jsme dobré právníky. Mezi rehabilitačními středisky a veřejnými domy je fakticky tenčí hranice, než si lidi myslí.
-
-\* \* \*
-
-  
-
-V roce 2015 už Ilinca uměla docela obstojně německy. I ona už se blížila třicítce. Nechala nerozumu a vzala práci v nemocnici v Berlíně. V tomhle případě se LWK Loyalty zachovala ukázkově: Ilinca za intenzivní kurzy, které LWK organizovala pro české a další sestry a na kterých vydělávala majlant, neplatila ani euro a odcházela z nich s nejlepšími výsledky; drželi jsme jí s Piotrem hlavu nad učebnicí tak dlouho, dokud si do ní tu němčinu nenatloukla. Držet Ilinčinu hlavu, to jsme s Piotrem uměli.
+> V roce 2015 už Ilinca uměla docela obstojně německy. I ona už se blížila třicítce. Nechala nerozumu a vzala práci v nemocnici v Berlíně. V tomhle případě se LWK Loyalty zachovala ukázkově: Ilinca za intenzivní kurzy, které LWK organizovala pro české a další sestry a na kterých vydělávala majlant, neplatila ani euro a odcházela z nich s nejlepšími výsledky; drželi jsme jí s Piotrem hlavu nad učebnicí tak dlouho, dokud si do ní tu němčinu nenatloukla. Držet Ilinčinu hlavu, to jsme s Piotrem uměli.

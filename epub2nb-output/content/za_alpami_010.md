@@ -3,8 +3,6 @@ title: "II\\. Kateřina a\_Jan"
 contentType: prose
 ---
 
-  
-
 Kateřina Sadovská, Katka, jak jí tehdy všichni říkali, do Spolkové republiky odešla v roce 1977 s Janem Rabasem, svojí první velkou láskou. Když utíkala, bylo jí třiadvacet a studovala filozofii na pražské univerzitě. Janovi, vystudovanému inženýru, bylo o sedm let víc. Oba pocházeli ze stejné společenské vrstvy, z takzvaných slušných rodin. Slušné rodiny byly v tehdejší Československé socialistické republice zároveň chudými rodinami.
 
 Seznámili se ve sportovním klubu „Sparta ČKD“ v hlavním městě. To bylo Kateřině rovných dvacet. Jan, který se v Praze na rozdíl od ní narodil, byl Kateřininým trenérem tenisu. Zároveň to byl její úplně první kluk, Kateřina s ním přišla o panenství. Stalo se to až v jejích jednadvaceti, možná o rok nebo dva později, než bývalo u dívek z jejích vrstev zvykem. Jan si tehdy na první sex musel počkat dlouhých osm měsíců. Vydržel to, čímž Kateřině podal důkaz o upřímnosti svého citu.
@@ -15,9 +13,7 @@ S návrhem dát ČSSR vale přišel Honza. Také on v drtivé většině pří
 
 Tím hlavním důvodem v jeho případě nakonec ale možná nebyla politika, dokonce možná ani chuť zažít svobodu či mít peníze, nýbrž fakt, že Honzovi v době těsně před útěkem už bylo rovných třicet. Byl to dávno dospělý muž. Už žádný malý Honzík, žádný Honza, nýbrž Jan. Jenomže ani po třicítce mu nikdo neřekl jinak než Honzo, familiárně a přátelsky. Honzovi to bohužel znělo jinak. Dělali z něj věčného šmudlu, kluka, který si neměl vyskakovat. A pokud by ani tohle nebyl ten zásadní důvod, proč z Československa odejít, pak tady byl ještě jeden obecně platný: všichni, kdo v ČSSR pocházeli ze slušných rodin a kdo se rozhodli ve stejném rodinném duchu pokračovat, měli fakticky důvod k emigraci.
 
-\* \* \*
-
-  
+* * *
 
 Vycestovat z ČSSR do zahraničí koncem sedmdesátých let obecně nebylo jednoduché. Čechoslováci na tom v tomto ohledu byli hůř než třeba Poláci. Zatímco polští inženýři, umělci nebo sportovci poměrně běžně měli pas a cestovali na Západ, Češi pro cesty do většiny zemí udržovali systém doložek a výjezdních povolení. Polsko dále mělo dvojstranné dohody s kapitalistickými státy, mimo jiné i se Spolkovou republikou, které se týkaly především výměn v rámci mládežnických organizací. V ČSSR byl režim přísnější, což ale neznamenalo, že by výjezd byl úplně nemožný; i československý režim musel aspoň do určité míry držet krok s realitou.
 
@@ -31,25 +27,19 @@ Odjeli půjčeným vozem ze Splitu do Záhřebu, vůz opět zařizoval Adam. V 
 
 Ve Vídni na dané adrese vrátili auto, které pravděpodobně opakovaně sloužilo ke stejným účelům, a na německém velvyslanectví požádali o azyl v Německu. Adamovi v té chvíli dlužili tři sta marek.
 
-\* \* \*
-
-  
+* * *
 
 Dostali umístění do uprchlického tábora Zirndorf u Norimberku. Poláci na tom i v tomhle ohledu byli lépe než Češi. V Německu pro Poláky až do konce sedmdesátých let povinnost pobytu v uprchlickém zařízení neplatila. I tohle Adam ale dokázal zařídit. Jan s Kateřinou nakonec v Zirndorfu strávili jen asi měsíc a půl. Po propuštění z tábora odjeli vlakem z Norimberku do Frankfurtu, kde už na ně čekal Adam.
 
 Jan začal trénovat tenis v Offenbachu, v jednom z frankfurtských předměstí. K místu v klubu mu samozřejmě dopomohl Adam Kuczek.
 
-\* \* \*
-
-  
+* * *
 
 Byl to Jan, kdo uměl německy, to on měl ve Frankfurtu svůj kontakt. Začátek společného německého pobytu měl být v jeho režii, Kateřina ho věrně následovala, vzhlížela k němu. A Janovi se dařilo. Místo, které mu slíbil Adam, skutečně dostal. Přinejmenším stejně důležitý byl další jeho úspěch, fakt, že sobě a Kateřině dokázal zařídit bydlení. Přesně tak, jak tvrdil.
 
 Šlo o městský byt na jedné z vedlejších ulic v Offenbachu. Měl výměru čtyřicet metrů čtverečních a skládal se z jednoho pokoje, chodby s rohovou kuchyňkou, koupelny a toalety. Byl součástí bloku sociálního bydlení z padesátých let; podobných bloků v době rychlého ekonomického rozvoje ve Spolkové republice vznikly tisíce. V prakticky stejném bytě o stejné rozloze žili Kateřina s Janem i na sídlišti Jižní Město v Praze, když tam o něj coby mladý bezdětný pár zažádali. Na své nové německé poměry si však ani jeden z páru nestěžoval. Ten hlavní rozdíl oproti životu v Praze přece neměl spočívat ve výměře či v lepším nábytku, nýbrž ve faktu, že všude kolem za zdmi bytu vládla svoboda a ekonomický dostatek. Ani Jan, ani Kateřina nebyli natolik naivní, aby si mysleli, že po měsíci budou žít ve stometrovém bytě v centru Frankfurtu. Byli mladí. Teprve po příchodu do Německa tohle označení začalo dávat smysl.
 
-\* \* \*
-
-  
+* * *
 
 Offenbach byl samostatným městem, pátým největším v Hesensku, fakticky ale fungoval jako jedno z chudších předměstí Frankfurtu. Město leží na levém břehu řeky Mohan, na dohled od západněji položeného obchodního a bankovního centra Německa. V minulosti byl Offenbach významným kožedělným střediskem, v sedmdesátých letech ale musel jako jedno z prvních měst v Německu čelit strukturální proměně průmyslu, když zde kožedělná výroba zanikla. Šlo by říct, že v době, kdy do Offenbachu přišli Kateřina s Janem, se ještě stále jednalo o čtvrť dělníků, doplněnou o emigranty, většinou z Polska. Jan ale Offenbach vnímal trochu jinak, konkrétně jako čtvrť pro začátečníky.
 
@@ -97,9 +87,7 @@ Jan ji nevnímal. Jeho zájmy v těch chvílích byly jiné a stejně tak jeho
 
 Co Jan v těch chvílích prožíval, přímo souviselo s Adamem Kuczekem.
 
-\* \* \*
-
-  
+* * *
 
 Adam Kuczek v Offenbachu už po půl roce nechal tenisu a začal pracovat jako řidič pro jednoho německého importéra ovoce. Nejčastěji s firemním tahačem značky Mercedes jezdil na trase Offenbach–Hamburk, kde se z lodí vykládaly kontejnery. Bylo mu dvaatřicet, o dva roky víc než Janovi, o devět víc než Kateřině. Měřil sotva 170 centimetrů a trpěl nadváhou. Do Německa odešel sám, asi po roce si ale našel přítelkyni, s níž od té doby bydel v pronajatém městském bytě v Offenbachu. Adriana byla Němka, ale její rodiče byli polští vysídlenci z doby těsně po druhé světové válce. Narodila se v roce 1946 ve Frankfurtu, její rodiče z Polska odešli o pouhý rok dřív. Adrianina maminka zemřela na začátku sedmdesátých let na rakovinu. O rodinný podnik, bar Pantha Rei u offenbašského vlakového nádraží, se od té doby staral a provozoval ho Adrianin otec Mariusz. Adam do baru u nádraží občas přivezl bedýnku se zeleninou.
 
@@ -109,9 +97,7 @@ Jan Rabas pro Adama Kuczeka představoval kořena, byznys, tři sta marek za zpr
 
 Adam s Adrianou pro mladé Čechy představovali v prvních týdnech záchytný bod. Jan do tenisového klubu nastoupil v polovině srpna, jen pár dní po jejich příjezdu, což byla Adamova zásluha. O měsíc později Adam našel práci i Kateřině. Mohla nastoupit jako servírka v Pantha Rei.
 
-\* \* \*
-
-  
+* * *
 
 Klientelu baru tvořili polští a němečtí dělníci z Offenbachu. Čas od času ale denní bar, kde za pultem nejčastěji stával sám starý Mariusz Kott, jemuž pomáhala jeho dcera Adriana, pohostil i bohatší přespolní zákazníky. V případě Offenbachu a baru Pantha Rei se jednalo spíše o zákazníky zpoza řeky než zpoza pole.
 
@@ -121,17 +107,13 @@ Adriana, oblečená v černých šatech s bílou zástěrou, odnášela sklo a
 
 Pro Adama Kuczeka tohle všechno dohromady tvořilo svobodu. Ráj na zemi, jak rád říkal.
 
-\* \* \*
-
-  
+* * *
 
 Kateřina v baru nastoupila v době, kdy Adam své plány začínal uskutečňovat. S Adrianinou pomocí se mu podařilo přesvědčit starého Kotta a ve skladu teď krom piva a bas s limonádami stálo i pár beden s vibrátory a s německými, francouzskými, holandskými či dánskými pornočasopisy, jako byly _Color Climax_, _Lolita_ či _Lui_.
 
 Právě jeden z těchto časopisů schovával v papírech z tenisového klubu Jan Rabas ve chvíli, kdy od stolu celý nervózní mluvil s Kateřinou o tom, že se bojí zestárnutí v Offenbachu. Jeho holá hruď v těch chvílích odkazovala k pornografickému vytržení a především k nevyřčeným a nenaplněným touhám.
 
-\* \* \*
-
-  
+* * *
 
 Jan Rabas před Kateřinou spal s více než desítkou žen či dívek. Uměl to s nimi, stály o něj a Jan se lásce nebránil. Kateřina pak byla jeho zatím poslední, ani jednou ji nepodvedl. Byl to silný a docela vysoký muž, něco kolem sto osmdesáti centimetrů. Pohledný, usměvavý, s hustými hnědými vlasy.
 
@@ -141,9 +123,7 @@ Pravda, Adam se už v Krakově k Janovi občas dokázal chovat i jinak, konkr
 
 Nebýt Adama, skutečně by do Německa asi nikdy neodjeli. Jenomže Adam ve svých dopisech, psaných podivuhodnou směsí polštiny, češtiny a němčiny, doslova naléhal, ať přijedou, že na ně v Německu čeká ráj na zemi.
 
-\* \* \*
-
-  
+* * *
 
 Když pro ně Adam tehdy po jejich příjezdu přišel na nádraží, Jan ho málem nepoznal. Byl pěkně oblečený, vlasy měl upravené, zastřižené na krátkou patku. A když o čtvrt hodiny později Adam odemykal dveře svého bytu, kde měli Češi na matracích strávit přechodnou dobu, než si seženou vlastní bydlení, a když pak Jan pohlédl z chodby do kuchyně, kde u sporáku stála krásná tmavovlasá hospodyňka, štíhlá a vysoká brunetka, Janovi definitivně spadla čelist.
 
@@ -177,9 +157,7 @@ Když pak viděl, že Jan neví, jak má na jeho slova reagovat, dodal ještě:
 
 „Něco ti ukážu,“ řekl teď Adam. „To hlavní,“ dodal. „Svobodu, její pravou podstatu. Sedneš si z toho na prdel, chlapče.“
 
-\* \* \*
-
-  
+* * *
 
 Došlo na to už druhého dne, sotva dívky někdy po deváté ráno odešly z bytu. Adriana tehdy na Adamovo přání vzala Kateřinu do města, podívat se na obchody. Uměla docela dobře polsky, něco znala od rodičů, zbytek pochytila od Adama a od dalších offenbašských Poláků. Na žádné velké rozhovory v češtině to sice nebylo, v těch prvních dnech po příjezdu Čechů se ale Adriana kvůli Adamovi přece jen snažila.
 
@@ -189,9 +167,7 @@ Adam Honzovi nalil sklenici whiskey a ukázal mu ke koženkové pohovce: „Pě
 
 „Slyšel jsi někdy o videu? Sony Betamax. Říká ti to něco, Honzo?“ zeptal se a ukázal k přístroji stojícímu hned vedle televizního přijímače na dřevěné skříňce opatřené zdobným kovaným madlem. Odtáhl posuvná dvířka, vyndal ze skříňky jednu z kazet a zasunul ji do přehrávače.
 
-\* \* \*
-
-  
+* * *
 
 Byl to okamžik znovuzrození. Třicetiletý Jan Rabas podruhé přicházel na svět, zatímco se v přehrávači jeho krakovského přítele odvíjel magnetický pás. Tentokrát však šlo o zcela jiný svět, než byl ten, na který byl Jan Rabas zvyklý.
 
@@ -207,9 +183,7 @@ Jan byl u vytržení, zároveň ale prožíval cosi ponižujícího a odporné
 
 Po dalších deseti vteřinách ejakuloval do spodního prádla a do kalhot. Bez pomoci své či jiné ruky, bez penetrace, bez kuřby. Něco takového se mu stalo naposledy v patnácti letech. Žádný člověk a žádný režim ho dosud neponížili víc, než to udělal Adam Kuczek a jeho video.
 
-\* \* \*
-
-  
+* * *
 
 Rychle se stal na pornografii závislý. Co rychle, v podstatě okamžitě. Začal časopisem _Color Climax_, pornočasopisem od téže produkční společnosti, která vyrobila i Adamův film. Nedokázal se od něj odtrhnout, listoval jím, kdy to šlo. Vždy mu u toho stál penis, často to musel skrývat.
 
@@ -219,9 +193,7 @@ Kateřina si myslela, že možnost svobodně dýchat Janovi dodala chuť na sex,
 
 Po časopisu _Color Climax_ přišla řada na pornokino u frankfurtského nádraží. A když si pak vydělal první peníze v tenisovém klubu, zašel poprvé v životě do veřejného domu hned vedle porno­kina. Co na tom všem bylo paradoxní, byla skutečnost, že Jan svým způsobem na všech těch místech – při listování časopisem a masturbaci na veřejných záchodcích, při návštěvě prostitutky, při masturbaci v pornokině – svým způsobem stále myslel na Kateřinu. Svým novým způsobem.
 
-\* \* \*
-
-  
+* * *
 
 Ale nezvládl to, přestože se každý den a před každou souloží odhodlával. Nedokázal k ní udělat ten důležitý krok, nedokázal překročit propast. Jediné, na co se zmohl, byla špetka násilí. To se stalo asi dva týdny po přestěhování do jejich prvního německého bytu. Tehdy mu pomohl alkohol, ale výsledek ani zdaleka neodpovídal jeho plánům. Ani sedm piv za Jana nedokázalo udělat to, co musel udělat on sám.
 
@@ -229,9 +201,7 @@ Jejich milování se nikdy neobešlo bez předchozího rituálu, byť by byl jak
 
 Jeho uctivost nebo strach se postupně měnily v absolutní odcizení.
 
-\* \* \*
-
-  
+* * *
 
 Kateřina si Janovu sílící málomluvnost a rozladěnost kladla za vinu. Aby si ho udobřila, cupitala za ním jako husička. Vařila, nosila mu obědy do klubu, poctivě pracovala v baru Pantha Rei. Pokud šlo o sex, toho najednou zásadně ubylo. Po té ojedinělé alkoholové souloži, během níž se Jan s jen velmi rozpačitým výsledkem pokusil o reprodukci toho, co vídal v pornokině a co do jisté míry zvládl s prostitutkou, už spolu vlastně až do rozchodu téměř nespali.
 
@@ -239,9 +209,7 @@ O jeho vášni tehdy ještě nevěděla a stejně tak neměla tušení, že se
 
 Ke krabici s časopisy ji nakonec navedla až Adamova přítelkyně. Adriana se tou akcí asi chtěla někomu pomstít, nebo možná chtěla někoho odměnit. Kateřina netušila, zda jedno, či druhé, a ani po tom nepátrala. Adam v těch týdnech hodně pil, mezi ním a Adrianou se mohlo stát cokoli. Výsledek ale byl jasný: před Kateřinou Sadovskou jednoho dne v březnu 1978 ležel rozevřený časopis _Color Climax_ číslo 2/1978. Obálka zachycovala dva teenagery v pozici 69.
 
-\* \* \*
-
-  
+* * *
 
 Kateřina podobné časopisy nikdy neviděla, v Čechách dokázali uspokojivě žít i bez nich. Pokud by se jí někdo v Čechách zeptal, jak si představuje jejich obsah a jak by na něj asi reagovala, Kateřina by v rámci své představivosti popsala obrázky mnohem decentnější, než byly ty, které později našla ve skladišti baru Pantha Rei. A svoji odhadovanou reakci na hypotetické obrázky by popsala jako zhnusení. Ale v obou ohledech se pletla. Pornografie ji neurážela. Dokonce v těch obrázcích krom světské radosti ze života dokázala vidět i jakýsi setrvalý filozofický údiv a až nábožnou úctu k široce pojaté kráse. Vyplazený ženský jazyk, rámovaný svátečně rudými rty, z jehož špičky visí dva zčásti se proplétající provazce spermatu, přičemž sperma s větší viskozitou kolegiálně přidržuje sperma řidší. Pro Kateřinu to byl svým způsobem umělecky hodnotný záznam o lidských tužbách a bolestném smutku nad plynutím času a pomíjivostí života.
 
@@ -253,9 +221,7 @@ Koncem dubna téhož roku, když se v klubu opět začínalo hrát na venkovní
 
 Žena byla starší, mohlo jí být kolem pětačtyřiceti, a měla nadváhu. Klečela na čtyřech na staré kožené sedačce, bílou tenisovou sukni měla přehozenou přes bedra, bavlněné triko v téže barvě vyhrnuté ke krku. Jan stál s kalhotami u kotníků za ženiným zadkem. Plivl si do dlaně a přetřel slinami trčící péro, které před chvílí vytáhl z její vagíny. Jakmile zapřel žalud přímo do staženého vrtícího se středu, o kus výš než předtím, žena se ohlédla, zakroutila hlavou a řekla i přes sklo rozeznatelné: „Ne, prosím!“ V její tváři a v tónu hlasu přitom nebyla žádná úcta či obava z přírodní síly. Pouze panovačnost.
 
-\* \* \*
-
-  
+* * *
 
 Byl to absurdní výjev, do velké míry paradoxní, uvědomovala si později Kateřina, když o zážitku přemýšlela. Jan v těch chvílích zřejmě byl pánem situace, to on byl v dané situaci pokud ne přímo bohem, pak jistě alespoň vis maior. Stál tam a měl konat coby zhmotněná animálnost. Mohl tu Němku doslova rozdrtit, pokud by na to přišlo. Tak se situace alespoň na první pohled jevila. Skutečnost ale byla jiná. Jan tam fakticky nestál jako drtivá síla, nýbrž jako šukavý Čechoslovák. Kateřina si nemohla pomoct. Sotva začal přirážet, Jan se nejevil jako tygr či lev, nýbrž jako panáček na pérko.
 
@@ -263,23 +229,17 @@ Chtěla zabouchat na sklo, ale neudělala to. Vrátila se domů, počkala tam na
 
 Pomalu si začínala připouštět, že Jan za ní zaostával. Nebyl tak chytrý jako Kateřina. Uměl sice lépe německy, v mnoha ohledech ji převyšoval, učinil rozhodnutí, že odejdou z Prahy. K tomu ale bylo třeba dodat, že bez Adama Kuczeka by se Jan v Německu ztratil a ležel by o hladu na ulici.
 
-\* \* \*
-
-  
+* * *
 
 Po třech dnech dohadování Jan přišel s tím, že je konec. Oficiálně tedy vztah ukončil on, Kateřina pouze kývla. Nepoznávala se. V podstatě šlo o dosud nejtragičtější událost v jejím životě. Cesta zpátky do ČSSR, která se jevila jako jediná varianta, zároveň vůbec nepřipadala v úvahu. Vrátit se znamenalo přijít o pas a odsoudit se k manuální práci, nehledě na ostudu. Kateřina přesto na Janova slova kývla se zarážející lehkostí.
 
-\* \* \*
-
-  
+* * *
 
 Přestože se s ní oficiálně rozešel, dál bydleli ve společném bytě a spali v jednom pokoji. Kateřina si nejprve přetáhla matraci do druhého kouta, ale už po týdnu, když utichly hádky, matraci vrátila zpátky na postel. Lehla si na ni a usnula. Nebyla uražená, zároveň však nedělala nic pro to, aby s Janem znovu začali fungovat jako dvojice.
 
 Dál chodila pomáhat do Pantha Rei a s lehkostí tam přecházela všechny sexuální narážky. Plánovala, že se vrátí do Čech. Pomalu začala se zařizováním. Byla klidná. Nastavovala hruď a čekala, jaká další vlna do ní udeří.
 
-\* \* \*
-
-  
+* * *
 
 Jednoho červnového sobotního rána, když neměla službu v Pantha Rei, vypravila se vlakem na výlet do padesát kilometrů vzdáleného Wiesbadenu, do jednoho z nejstarších evropských lázeňských měst v Evropě. Za těch deset měsíců v Offenbachu se tam ještě nestihla podívat. Přitom stačilo sednout na vlakové stanici Oftenbach-Ledermuseum na linku S1, která jela každou půlhodinu, a za sedmdesát minut byla na wiesbadenském nádraží.
 

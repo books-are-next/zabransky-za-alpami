@@ -5,137 +5,113 @@ contentType: prose
 
 ## Z M. deníku
 
-1\. ledna 2017 – odpoledne
+#### 1\. ledna 2017 – odpoledne
 
-  
+> Ilinca byla u nás v Německu jedna kapka, ale v roce 2015 začalo pršet. V průběhu roku do Evropy přes Balkán a přes Středozemní moře postupně přišly a připluly na nafukovacích člunech stovky tisíc lidí z Blízkého a Středního východu, ze subsaharské Afriky a západního Balkánu. Nejčastější cílovou zemí bylo Německo, které z rozhodnutí kancléřky Angely Merkelové vyhlásilo politiku otevřených dveří, takzvanou _Willkommenskultur_. V říjnu 2015 do Německa denně přicházelo deset tisíc imigrantů. Dveře dokořán, žádné papírování, žádné kdo je kdo. Největší evropská země se po celý jeden rok chovala jako bláznivá studentka.
 
-Ilinca byla u nás v Německu jedna kapka, ale v roce 2015 začalo pršet. V průběhu roku do Evropy přes Balkán a přes Středozemní moře postupně přišly a připluly na nafukovacích člunech stovky tisíc lidí z Blízkého a Středního východu, ze subsaharské Afriky a západního Balkánu. Nejčastější cílovou zemí bylo Německo, které z rozhodnutí kancléřky Angely Merkelové vyhlásilo politiku otevřených dveří, takzvanou _Willkommenskultur_. V říjnu 2015 do Německa denně přicházelo deset tisíc imigrantů. Dveře dokořán, žádné papírování, žádné kdo je kdo. Největší evropská země se po celý jeden rok chovala jako bláznivá studentka.
+* * *
 
-\* \* \*
+> Německo a po jeho boku evropské umělecké školy.
 
-  
+> Kurzy humanismu.
 
-Německo a po jeho boku evropské umělecké školy.
+* * *
 
-Kurzy humanismu.
+> Spolu s uprchlickou vlnou se přes Evropu přehnala i vlna zájmu o Německo. Moje hvězda mezi pražskou uměleckou mládeží stoupala, aniž jsem pro to musel hnout prstem. Nejlepší techno a nejlepší pohled na svět, no neberte to. Berlín byl pro ty mladé umělecky založené Čechy vším. Z německé _Willkommenskultur_ se mezi pražskou ambiciózní mládeží stala móda. Fritz-Kola, Club-Mate a uprchlíci. Čím pro generaci jejich rodičů byly Spojené státy americké, rokenrol a džínovina, tím pro moje umělecky založené české druhy bylo Německo, techno a migranti. Milovali mě a Mutti Merkel. Nesnášeli a krutě zostouzeli svého prezidenta Zemana, který uprchlíkům v jedné české televizi vzkázal: „Nikdo vás sem nezval… A když už tady jste, tak musíte respektovat naše pravidla… A když se vám to nelíbí, běžte pryč.“ Tak něco. Přišlo mi to _hilarious_. Nebo _Hillarious_, nebo spíše _Donaldious_… „Váš prezident je blázen,“ říkal jsem jim a řehtal jsem se. „Vždyť tady žádné uprchlíky nemáte, vždyť sem nechtějí!“ Ale ti bezkrevní polo-Češi se nesmáli. Omlouvali se mi, styděli se, podlézali mi. „Náš Zeman… _We are sorry about him_.“
 
-\* \* \*
+> Podle mě si ti mladí lidé pletli pojmy s dojmy. V uprchlících viděli turisty, nomády. Cosi jim podobného, cosi svobodomyslného.
 
-  
+> Německá reakce na uprchlickou krizi v každém případě byla _cool_. _Cool_ nehledí na následky. _Cool_ je zde pro _cool_. _Cool_ je čirý luxus.
 
-Spolu s uprchlickou vlnou se přes Evropu přehnala i vlna zájmu o Německo. Moje hvězda mezi pražskou uměleckou mládeží stoupala, aniž jsem pro to musel hnout prstem. Nejlepší techno a nejlepší pohled na svět, no neberte to. Berlín byl pro ty mladé umělecky založené Čechy vším. Z německé _Willkommenskultur_ se mezi pražskou ambiciózní mládeží stala móda. Fritz-Kola, Club-Mate a uprchlíci. Čím pro generaci jejich rodičů byly Spojené státy americké, rokenrol a džínovina, tím pro moje umělecky založené české druhy bylo Německo, techno a migranti. Milovali mě a Mutti Merkel. Nesnášeli a krutě zostouzeli svého prezidenta Zemana, který uprchlíkům v jedné české televizi vzkázal: „Nikdo vás sem nezval… A když už tady jste, tak musíte respektovat naše pravidla… A když se vám to nelíbí, běžte pryč.“ Tak něco. Přišlo mi to _hilarious_. Nebo _Hillarious_, nebo spíše _Donaldious_… „Váš prezident je blázen,“ říkal jsem jim a řehtal jsem se. „Vždyť tady žádné uprchlíky nemáte, vždyť sem nechtějí!“ Ale ti bezkrevní polo-Češi se nesmáli. Omlouvali se mi, styděli se, podlézali mi. „Náš Zeman… _We are sorry about him_.“
+* * *
 
-Podle mě si ti mladí lidé pletli pojmy s dojmy. V uprchlících viděli turisty, nomády. Cosi jim podobného, cosi svobodomyslného.
+> Moje chata v šestém patře krásného funkcionalistického domu se změnila v osvětové středisko, v diskusní středisko, v techno středisko. Chlastalo se, fetovalo se, souložilo se. V létě terasa. Kdybych měl do nějakého dotazníku vyplnit nejlepší léta svého života, pak bych bez váhání uvedl: „2015, když do Německa začali proudit uprchlíci, až 2017, kdy jsem potkal Dominiku Kurelovou.“
 
-Německá reakce na uprchlickou krizi v každém případě byla _cool_. _Cool_ nehledí na následky. _Cool_ je zde pro _cool_. _Cool_ je čirý luxus.
+* * *
 
-\* \* \*
+> Hned v létě 2015, když do Německa proudilo nejvíc nové svérázné krve, jsem se ozval malé Frauke.
 
-  
+* * *
 
-Moje chata v šestém patře krásného funkcionalistického domu se změnila v osvětové středisko, v diskusní středisko, v techno středisko. Chlastalo se, fetovalo se, souložilo se. V létě terasa. Kdybych měl do nějakého dotazníku vyplnit nejlepší léta svého života, pak bych bez váhání uvedl: „2015, když do Německa začali proudit uprchlíci, až 2017, kdy jsem potkal Dominiku Kurelovou.“
+> Nebyl jsem s ní v kontaktu od roku 2002. Mohl jsem jí napsat e-mail nebo zkusit sms, ale jako první mě napadl Facebook. Když jsem se s ní tehdy před třinácti lety rozešel, Facebook ještě neexistoval. V roce 2015 už jsme na Facebooku měli účet oba.
 
-\* \* \*
+> Poznal jsem ji ihned. Na maličké fotografii byla pětatřicetiletá matka s nemluvnětem v náručí.
 
-  
+> Rozklikl jsem link a podíval jsem se na její zeď. Měla jen něco málo přes tři sta přátel, u jejích příspěvků ale bývalo i několik desítek lajků.
 
-Hned v létě 2015, když do Německa proudilo nejvíc nové svérázné krve, jsem se ozval malé Frauke.
+> Většina jejích příspěvků z poslední doby se týkala německé politiky a uprchlické krize. Frauke v celé záležitosti byla aktivní, z její zdi šlo vyčíst, že se sama účastnila organizování humanitárních sbírek. Sbírali jídlo, oblečení, vůbec veškerou humanitární pomoc. Slovo „pomoc“, „hilfe“, ve Fraučiných příspěvcích hrálo důležitou roli. Všiml jsem si, že její příspěvky, v nichž padlo slovo „pomoc“, dostávaly nejvíc lajků.
 
-\* \* \*
+> Zvětšil jsem její profilovou fotografii. Frauke vypadala lépe než tehdy v osmnácti. Světle hnědé vlasy sice stále byly na první pohled řídké, teď je však nosila s pěkně zastřiženou ofinou. Oči za moderními brýlemi s červenými obroučkami se dívaly přímo do objektivu. Právě v tom asi spočívala ta největší změna: v nové pozici Fraučiny hlavy a v novém nasměrování jejího pohledu.
 
-  
+> V té chvíli jsem si vzpomněl na jednu matčinu knihu. Jmenovala se _O mých mužích a charitě_. Vyšla v roce 1999 v nakladatelství Gruner und Jahr a Katharina v ní v souvislosti se svojí první láskou psala i o armádě blanických rytířů, šlo o cosi z české mytologie. Už když jsem ten text četl před lety poprvé, vzpomněl jsem si při téhle pasáži právě na maličkou Frauke. Vstal jsem teď od počítače a našel jsem v knihovně příslušný titul a pak i konkrétní pasáž:
 
-Nebyl jsem s ní v kontaktu od roku 2002. Mohl jsem jí napsat e-mail nebo zkusit sms, ale jako první mě napadl Facebook. Když jsem se s ní tehdy před třinácti lety rozešel, Facebook ještě neexistoval. V roce 2015 už jsme na Facebooku měli účet oba.
+> „Ty dlouhé umaštěné vlasy v culíku byly podpisem lidí, kteří své sebevědomí hledají jinde než v hromadění hmotného bohatství. Pomyslela jsem si, že právě takto vypadají muži a ženy, kteří podnikají vskrytu a docela bezvýsledně; jsou to jakési snad až pohádkové postavy, snad blaničtí rytíři, kteří jsou zde s námi, nic nedělají, ale až bude nouze, vyjdou, shodí masky a špinavé vlasy a zachrání nás.“
 
-Poznal jsem ji ihned. Na maličké fotografii byla pětatřicetiletá matka s nemluvnětem v náručí.
+> Ten popis seděl. Přesně to se stalo v případě maličké Frauke. Shodila masku, prokoukla, najednou docela pěkná pětatřicetiletá ženská, a začala zachraňovat. Nikoli nás Němce, nýbrž uprchlíky. V tom byl oproti Katharinině předpovědi jediný rozdíl. _Willkommenskultur_ v každém případě bylo Fraučino dílo.
 
-Rozklikl jsem link a podíval jsem se na její zeď. Měla jen něco málo přes tři sta přátel, u jejích příspěvků ale bývalo i několik desítek lajků.
+* * *
 
-Většina jejích příspěvků z poslední doby se týkala německé politiky a uprchlické krize. Frauke v celé záležitosti byla aktivní, z její zdi šlo vyčíst, že se sama účastnila organizování humanitárních sbírek. Sbírali jídlo, oblečení, vůbec veškerou humanitární pomoc. Slovo „pomoc“, „hilfe“, ve Fraučiných příspěvcích hrálo důležitou roli. Všiml jsem si, že její příspěvky, v nichž padlo slovo „pomoc“, dostávaly nejvíc lajků.
+> Požádal jsem Frauke na Facebooku o přátelství a hned jsem jí napsal přes Messenger:
 
-Zvětšil jsem její profilovou fotografii. Frauke vypadala lépe než tehdy v osmnácti. Světle hnědé vlasy sice stále byly na první pohled řídké, teď je však nosila s pěkně zastřiženou ofinou. Oči za moderními brýlemi s červenými obroučkami se dívaly přímo do objektivu. Právě v tom asi spočívala ta největší změna: v nové pozici Fraučiny hlavy a v novém nasměrování jejího pohledu.
-
-V té chvíli jsem si vzpomněl na jednu matčinu knihu. Jmenovala se _O mých mužích a charitě_. Vyšla v roce 1999 v nakladatelství Gruner und Jahr a Katharina v ní v souvislosti se svojí první láskou psala i o armádě blanických rytířů, šlo o cosi z české mytologie. Už když jsem ten text četl před lety poprvé, vzpomněl jsem si při téhle pasáži právě na maličkou Frauke. Vstal jsem teď od počítače a našel jsem v knihovně příslušný titul a pak i konkrétní pasáž:
-
-„Ty dlouhé umaštěné vlasy v culíku byly podpisem lidí, kteří své sebevědomí hledají jinde než v hromadění hmotného bohatství. Pomyslela jsem si, že právě takto vypadají muži a ženy, kteří podnikají vskrytu a docela bezvýsledně; jsou to jakési snad až pohádkové postavy, snad blaničtí rytíři, kteří jsou zde s námi, nic nedělají, ale až bude nouze, vyjdou, shodí masky a špinavé vlasy a zachrání nás.“
-
-Ten popis seděl. Přesně to se stalo v případě maličké Frauke. Shodila masku, prokoukla, najednou docela pěkná pětatřicetiletá ženská, a začala zachraňovat. Nikoli nás Němce, nýbrž uprchlíky. V tom byl oproti Katharinině předpovědi jediný rozdíl. _Willkommenskultur_ v každém případě bylo Fraučino dílo.
-
-\* \* \*
-
-  
-
-Požádal jsem Frauke na Facebooku o přátelství a hned jsem jí napsal přes Messenger:
-
-„Frauke? Chtěl bych tě vidět. Šlo by to?“ A pak jsem ke zprávě přidal svůj oblíbený sticker:
+> „Frauke? Chtěl bych tě vidět. Šlo by to?“ A pak jsem ke zprávě přidal svůj oblíbený sticker:
 
 ![](../Images/obrazek_21.jpg)
 
-  
+> Nemohl jsem přestat myslet na matku. Bylo jí jednašedesát a za poslední tři roky nepublikovala žádnou knihu. Od července 2015 už druhý měsíc sváděla v denním tisku a v časopisech svůj osamělý boj s oficiálním německým postojem k uprchlické krizi. Varovala před německou sebeláskou, která se podle ní projevovala v proimigračním nadšení. Scény vítání uprchlíků na německých nádražích si v jednom článku troufla přirovnat k vítání Hitlera v kterémkoli německém městě po roce 1933. Něco takového ji okamžitě v německém veřejném prostoru té doby vyřadilo na periferii, což Katharina určitě dokázala předem odhadnout.
 
-Nemohl jsem přestat myslet na matku. Bylo jí jednašedesát a za poslední tři roky nepublikovala žádnou knihu. Od července 2015 už druhý měsíc sváděla v denním tisku a v časopisech svůj osamělý boj s oficiálním německým postojem k uprchlické krizi. Varovala před německou sebeláskou, která se podle ní projevovala v proimigračním nadšení. Scény vítání uprchlíků na německých nádražích si v jednom článku troufla přirovnat k vítání Hitlera v kterémkoli německém městě po roce 1933. Něco takového ji okamžitě v německém veřejném prostoru té doby vyřadilo na periferii, což Katharina určitě dokázala předem odhadnout.
+> Našel jsem si tu pasáž na internetu: „Netvrdím, že uprchlíci jdou do Německa vyhlazovat a zabíjet, v tom přirovnání s vítáním Hitlera vůbec nejde o ně. O co mi jde, je kýčovitost a fanatismus na naší německé straně. V Čechách, kde jsem se narodila a kde jsem zažila dvacet let socialismu, jsme takovému chování říkali hurá akce. Mám dojem, že to, co se v současnosti děje na německých nádražích, je právě takovou hurá akcí; možná dobře myšlenou, ale příliš jednolitou na to, aby v sobě neskrývala nebezpečí. Aby bylo jasno, nemám nic proti pomoci druhým. Souhlasím s názorem, že v době krize je třeba konat, nikoli dál donekonečna mluvit. Pokud by Německo před uprchlickou krizí strčilo hlavu do písku tak, jak to udělaly země visegrádské čtyřky, kritizovala bych ho za to, stejně jako se to snažím dělat v případě své rodné země. Co mi však na německém přístupu vadí, je fakt, že ani pětašedesát let po válce se Němci nenaučili úplnému základu, že lidé jsou si rovní. Tehdy před sedmdesáti lety to byli Židé, Poláci nebo Češi, co údajně mělo být podřadné, zatímco Němci byli nadřazená rasa. A teď v září 2015? Moc se toho nezměnilo, jen detaily: nadřazená rasa jsou uprchlíci, Němci sami sebe vnímají jako Židy. A milují se za to, za tu svoji falešnou skromnost… S tím, že se Němci ani pětašedesát let po válce nenaučili poznat rozumnou míru, s tím už jsem se smířila. Bez tohohle druhu fanatismu by navíc nešlo vyrábět bezvadné německé stroje. Nicméně i k tomuhle dodávám jedno pořekadlo, které si pamatuji ještě z Čech: nic se nemá přehánět a všeho moc škodí. Moc nenávisti, ale i moc lásky. Německo přece není Severní Korea, aspoň tedy nebylo, když jsem do něj v roce 1978 přišla a když mi Německo poté, co si dobře zjistilo, kdo jsem, poskytlo azyl.“
 
-Našel jsem si tu pasáž na internetu: „Netvrdím, že uprchlíci jdou do Německa vyhlazovat a zabíjet, v tom přirovnání s vítáním Hitlera vůbec nejde o ně. O co mi jde, je kýčovitost a fanatismus na naší německé straně. V Čechách, kde jsem se narodila a kde jsem zažila dvacet let socialismu, jsme takovému chování říkali hurá akce. Mám dojem, že to, co se v současnosti děje na německých nádražích, je právě takovou hurá akcí; možná dobře myšlenou, ale příliš jednolitou na to, aby v sobě neskrývala nebezpečí. Aby bylo jasno, nemám nic proti pomoci druhým. Souhlasím s názorem, že v době krize je třeba konat, nikoli dál donekonečna mluvit. Pokud by Německo před uprchlickou krizí strčilo hlavu do písku tak, jak to udělaly země visegrádské čtyřky, kritizovala bych ho za to, stejně jako se to snažím dělat v případě své rodné země. Co mi však na německém přístupu vadí, je fakt, že ani pětašedesát let po válce se Němci nenaučili úplnému základu, že lidé jsou si rovní. Tehdy před sedmdesáti lety to byli Židé, Poláci nebo Češi, co údajně mělo být podřadné, zatímco Němci byli nadřazená rasa. A teď v září 2015? Moc se toho nezměnilo, jen detaily: nadřazená rasa jsou uprchlíci, Němci sami sebe vnímají jako Židy. A milují se za to, za tu svoji falešnou skromnost… S tím, že se Němci ani pětašedesát let po válce nenaučili poznat rozumnou míru, s tím už jsem se smířila. Bez tohohle druhu fanatismu by navíc nešlo vyrábět bezvadné německé stroje. Nicméně i k tomuhle dodávám jedno pořekadlo, které si pamatuji ještě z Čech: nic se nemá přehánět a všeho moc škodí. Moc nenávisti, ale i moc lásky. Německo přece není Severní Korea, aspoň tedy nebylo, když jsem do něj v roce 1978 přišla a když mi Německo poté, co si dobře zjistilo, kdo jsem, poskytlo azyl.“
+> Fakt, že jí takové texty publikovali, byl především důsledkem setrvačnosti. Katharina předtím vydala v řadě za sebou několik čtenářsky úspěšných a kritikou ceněných knih.
 
-Fakt, že jí takové texty publikovali, byl především důsledkem setrvačnosti. Katharina předtím vydala v řadě za sebou několik čtenářsky úspěšných a kritikou ceněných knih.
+> Ihned se samozřejmě našli tací, kdo se snažili Katharinu zesměšnit. Chtěli ji odsunout ze stránek _Frankfurter Allgemeine Zeitung_ a dalších seriózních německých periodik. Katharininy řeči podle nich patřily nikoli do _FAZ_, nýbrž na demonstrace xenofobní Pegidy, která byla silná převážně v bývalých východoněmeckých spolkových zemích.
 
-Ihned se samozřejmě našli tací, kdo se snažili Katharinu zesměšnit. Chtěli ji odsunout ze stránek _Frankfurter Allgemeine Zeitung_ a dalších seriózních německých periodik. Katharininy řeči podle nich patřily nikoli do _FAZ_, nýbrž na demonstrace xenofobní Pegidy, která byla silná převážně v bývalých východoněmeckých spolkových zemích.
+> Vytlačit ji ze seriózního tisku se sice nepodařilo, ale uměl jsem si představit, jak jednašedesátiletou Katharinu její boj musí vysilovat. V posledních letech ji trápily žlučové kameny a jiné zdravotní problémy. Naposledy jsem ji viděl ještě před začátkem uprchlické krize, loni o vánočních svátcích, kdy jsme sedmadvacátého prosince na den zajeli do Wiesbadenu. Celé svátky jsme ale i s dětmi trávili ve Stuttgartu.
 
-Vytlačit ji ze seriózního tisku se sice nepodařilo, ale uměl jsem si představit, jak jednašedesátiletou Katharinu její boj musí vysilovat. V posledních letech ji trápily žlučové kameny a jiné zdravotní problémy. Naposledy jsem ji viděl ještě před začátkem uprchlické krize, loni o vánočních svátcích, kdy jsme sedmadvacátého prosince na den zajeli do Wiesbadenu. Celé svátky jsme ale i s dětmi trávili ve Stuttgartu.
+> Vzal jsem zpátky do ruky notebook a napsal jsem Katharině:
 
-Vzal jsem zpátky do ruky notebook a napsal jsem Katharině:
+> „Mami, hele, já s tou tichou domácností končím. A taky se ti omlouvám. Moje reakce tehdy byla přehnaná, samozřejmě jsi měla právo na svůj život, byla jsi ještě mladá, když táta zemřel. Nikdo po tobě nemohl chtít, abys jen chodila na hrob a vzpomínala, uznávám to.
 
-  
+> Pamatuješ si na maličkou Frauke? Vlastně ti píšu kvůli ní. Podle Facebooku se zdá, že má dvě děti, vdaná asi není, našel jsem ji pod jejím dívčím jménem. Napsal jsem jí těsně předtím, než jsem se pustil do tohohle e-mailu. Hodně se teď angažuje, je plně pro uprchlíky. Nedivil bych se, kdyby je chodila vítat na berlínské nádraží, přesně tak, jak jsi o tom psala ve svém článku.
 
-„Mami, hele, já s tou tichou domácností končím. A taky se ti omlouvám. Moje reakce tehdy byla přehnaná, samozřejmě jsi měla právo na svůj život, byla jsi ještě mladá, když táta zemřel. Nikdo po tobě nemohl chtít, abys jen chodila na hrob a vzpomínala, uznávám to.
+> Já s tebou v tomhle souhlasím, mami. Situace v Německu je mi nepříjemná. Budu ti fušovat do řemesla a pokusím se o kratičkou analýzu, jak Německo došlo k tomu, kde teď je.
 
-Pamatuješ si na maličkou Frauke? Vlastně ti píšu kvůli ní. Podle Facebooku se zdá, že má dvě děti, vdaná asi není, našel jsem ji pod jejím dívčím jménem. Napsal jsem jí těsně předtím, než jsem se pustil do tohohle e-mailu. Hodně se teď angažuje, je plně pro uprchlíky. Nedivil bych se, kdyby je chodila vítat na berlínské nádraží, přesně tak, jak jsi o tom psala ve svém článku.
+> Vlastně jsem to mohl odhadnout už za našich studií, jak to s Německem dopadne. Frauke na škole roky nedělala vůbec nic. Německé vysoké školství v určité chvíli přestalo plnit úlohu služby společnosti a národu. Místo toho německé univerzity začaly sloužit jednotlivcům a ideologii, která před společností a národem upřednostňovala právě jednotlivce. Instituce, které měly dodávat vládnoucí třídu, se změnily v zaopatřovací ústavy, kde se dětem, jako byla maličká Frauke, nenabízelo vzdělání, nýbrž takzvaný prostor k dalšímu osobnostnímu rozvoji. Péče o dítě. Centrální figura německé společnosti, Herr a Frau Každý.
 
-Já s tebou v tomhle souhlasím, mami. Situace v Německu je mi nepříjemná. Budu ti fušovat do řemesla a pokusím se o kratičkou analýzu, jak Německo došlo k tomu, kde teď je.
+> Místo _Übermensch_ přišli _Jedermann und Jedefrau_! Miloučké dětičky, _the kind Kinder_!
 
-Vlastně jsem to mohl odhadnout už za našich studií, jak to s Německem dopadne. Frauke na škole roky nedělala vůbec nic. Německé vysoké školství v určité chvíli přestalo plnit úlohu služby společnosti a národu. Místo toho německé univerzity začaly sloužit jednotlivcům a ideologii, která před společností a národem upřednostňovala právě jednotlivce. Instituce, které měly dodávat vládnoucí třídu, se změnily v zaopatřovací ústavy, kde se dětem, jako byla maličká Frauke, nenabízelo vzdělání, nýbrž takzvaný prostor k dalšímu osobnostnímu rozvoji. Péče o dítě. Centrální figura německé společnosti, Herr a Frau Každý.
+> Německá reakce na uprchlickou krizi byl výsledek. Ně­meckou odpověď ve skutečnosti nedávala Angela Merkelová a její kabinet, nýbrž maličká Frauke Schultheiß, tisíce a tisíce takových maličkých humanitně založených bestií, kterým v té době bylo něco kolem pětatřiceti. Ti lidé nic neuměli, v pěta­třiceti už ani zahrát uvěřitelné dětství. Co mohla maličká Frauke dělat, krom toho, že kupovala bio potraviny a třídila odpadky?
 
-Místo _Übermensch_ přišli _Jedermann und Jedefrau_! Miloučké dětičky, _the kind Kinder_!
+> Taková malá bestie po uprchlících musela skočit, však to jsou jednoduché počty: jde o vzpouru podřadnosti. Je to vzpoura kulturologie proti jaderné fyzice, vzpoura gender studies proti lékařství, vzpoura bohemistiky proti právnické fakultě.
 
-Německá reakce na uprchlickou krizi byl výsledek. Ně­meckou odpověď ve skutečnosti nedávala Angela Merkelová a její kabinet, nýbrž maličká Frauke Schultheiß, tisíce a tisíce takových maličkých humanitně založených bestií, kterým v té době bylo něco kolem pětatřiceti. Ti lidé nic neuměli, v pěta­třiceti už ani zahrát uvěřitelné dětství. Co mohla maličká Frauke dělat, krom toho, že kupovala bio potraviny a třídila odpadky?
+> Zdravím tě z pražské Letné, mami, a je mi málem do breku. Jsme Němci bez Německa.
 
-Taková malá bestie po uprchlících musela skočit, však to jsou jednoduché počty: jde o vzpouru podřadnosti. Je to vzpoura kulturologie proti jaderné fyzice, vzpoura gender studies proti lékařství, vzpoura bohemistiky proti právnické fakultě.
+> Tvůj Mathias“
 
-Zdravím tě z pražské Letné, mami, a je mi málem do breku. Jsme Němci bez Německa.
+> Na Facebooku mi mezitím odepsala malá Frauke:
 
-Tvůj Mathias“
+> „Mathiasi… Jaká událost, dostat od tebe zprávu po tolika letech. A co ten sticker prosím tě? XXX“
 
-Na Facebooku mi mezitím odepsala malá Frauke:
+> Můj dotaz, zda se můžeme vidět, ignorovala. Stejně tak moji žádost o přátelství.
 
-„Mathiasi… Jaká událost, dostat od tebe zprávu po tolika letech. A co ten sticker prosím tě? XXX“
+> Za hodinu jsem musel vyrazit na schůzku, kterou jsem si včera odpoledne domluvil přes Tinder. Té české holce bylo jednadvacet a líbila se mi. Šel jsem se sprchovat. V Praze byl krásný letní den. A stále nula uprchlíků.
 
-Můj dotaz, zda se můžeme vidět, ignorovala. Stejně tak moji žádost o přátelství.
+* * *
 
-Za hodinu jsem musel vyrazit na schůzku, kterou jsem si včera odpoledne domluvil přes Tinder. Té české holce bylo jednadvacet a líbila se mi. Šel jsem se sprchovat. V Praze byl krásný letní den. A stále nula uprchlíků.
+> S malou Frauke jsem pak už víc nekomunikoval. Jediné, co jsem udělal, bylo to, že jsem zkopíroval příslušné pasáže ze svého e-mailu pro matku a poslal jsem je Frauke s dovětkem:
 
-\* \* \*
+> „Německo je teď tvoje. Gratuluju.“
 
-  
+> Odepsala mi: „Fašisto.“
 
-S malou Frauke jsem pak už víc nekomunikoval. Jediné, co jsem udělal, bylo to, že jsem zkopíroval příslušné pasáže ze svého e-mailu pro matku a poslal jsem je Frauke s dovětkem:
+> A zablokovala si mě.
 
-„Německo je teď tvoje. Gratuluju.“
+* * *
 
-Odepsala mi: „Fašisto.“
+> S matkou to bylo lepší. Začali jsme si vyměňovat e-maily, přestože moji analýzu současného Německa Katharina podle všeho přijímala jen s rozpaky:
 
-A zablokovala si mě.
-
-\* \* \*
-
-  
-
-S matkou to bylo lepší. Začali jsme si vyměňovat e-maily, přestože moji analýzu současného Německa Katharina podle všeho přijímala jen s rozpaky:
-
-„Mathiasi! Ani nevíš, jak jsem za tvůj e-mail vděčná… Přijeďte mě s Marií navštívit, co říkáš? Kdybys jen věděl, jak já tu holku miluju. Slib mi, že mě vezmete do Itálie, dokud jsem ještě fit. Chtěla bych se podívat do Sieny, byli jsme tam tuším v šestaosmdesátém s tebou a s Clemensem, pamatuješ na to…? Ve své analýze vydáváš současnou německou oficiální reakci za vzpouru průměrnosti proti elitám. Za elity přitom označuješ lékaře a právníky, kteří žijí v nějakých pěkných měšťanských domech, tak si to aspoň představuju, když čtu tvoje řádky. Třeba v takových domech, jako je ten váš v Zehlendorfu… Pojímáš podle mě elity až příliš tradičně, v tom vidím úskalí tvé úvahy. Víc si o tom můžeme říct osobně, pokud se ti bude chtít. Máma“
+> „Mathiasi! Ani nevíš, jak jsem za tvůj e-mail vděčná… Přijeďte mě s Marií navštívit, co říkáš? Kdybys jen věděl, jak já tu holku miluju. Slib mi, že mě vezmete do Itálie, dokud jsem ještě fit. Chtěla bych se podívat do Sieny, byli jsme tam tuším v šestaosmdesátém s tebou a s Clemensem, pamatuješ na to…? Ve své analýze vydáváš současnou německou oficiální reakci za vzpouru průměrnosti proti elitám. Za elity přitom označuješ lékaře a právníky, kteří žijí v nějakých pěkných měšťanských domech, tak si to aspoň představuju, když čtu tvoje řádky. Třeba v takových domech, jako je ten váš v Zehlendorfu… Pojímáš podle mě elity až příliš tradičně, v tom vidím úskalí tvé úvahy. Víc si o tom můžeme říct osobně, pokud se ti bude chtít. Máma“
 
 ## 2.
-
-  
 
 V noci ze třináctého na čtrnáctého listopadu 2015 došlo v Paříži k sérii deseti koordinovaných teroristických útoků střelnými zbraněmi a sebevražednými bombovými útoky, která za sebou nechala sto třicet mrtvých a stovky zraněných. Někteří z teroristů do Evropy prokazatelně přišli balkánskou cestou spolu s migrační vlnou.
 
@@ -143,63 +119,57 @@ Katharina o týden později na svém blogu publikovala článek s titulkem _Th
 
 ## Z M. deníku
 
-1\. ledna 2017 – noc
+#### 1\. ledna 2017 – noc
 
-  
+> Vánoční svátky jsme toho roku trávili společně u Caiazzových ve Stuttgartu. Já s Marií a dětmi, Seba s Martou. Z Wiesbadenu přijela Katharina. S Marií jsme zrovna slavili deset let od svatby. Jen chvíli před Vánocemi navíc zemřela otcova první žena Hanna; připili jsme si i na její památku.
 
-Vánoční svátky jsme toho roku trávili společně u Caiazzových ve Stuttgartu. Já s Marií a dětmi, Seba s Martou. Z Wiesbadenu přijela Katharina. S Marií jsme zrovna slavili deset let od svatby. Jen chvíli před Vánocemi navíc zemřela otcova první žena Hanna; připili jsme si i na její památku.
+> Mariini rodiče se s Katharinou od naší svatby vídali jen málo, na vzájemných sympatiích se ale za těch deset let nic nezměnilo, dokonce naopak. Marta i Seba ve Stuttgartu četli Katharinin blog i její další články a dávali jí za pravdu. Podporovali ji a obdivovali vehemenci, se kterou se moje mamá dávala do svého osamělého boje.
 
-Mariini rodiče se s Katharinou od naší svatby vídali jen málo, na vzájemných sympatiích se ale za těch deset let nic nezměnilo, dokonce naopak. Marta i Seba ve Stuttgartu četli Katharinin blog i její další články a dávali jí za pravdu. Podporovali ji a obdivovali vehemenci, se kterou se moje mamá dávala do svého osamělého boje.
+> Stuttgart přitom už po desetiletí byl městem imigrantů; čtyřicet procent obyvatel víc než půlmiliónového Stuttgartu sem přišlo ze zahraničí, dvojnásobně víc než kolik byl německý průměr. Byli to cizinci, kdo po válce znovu budovali místní průmysl: nejdřív Italové, pak Řekové, Španělé, Jugoslávci a nakonec Turci. Mírumilovné a pragmatické město, synonymum pro německé know-how a sídlo obřích korporací, jako byly Bosch, Porsche nebo Sebův Mercedes, integraci zvládalo s ukázkovou brilancí. Na rozdíl od mnohých jiných německých měst ve Stuttgartu nikdy nevznikla ghetta, kde imigranti žijí uzavřeni ve svém mikrosvětě.
 
-Stuttgart přitom už po desetiletí byl městem imigrantů; čtyřicet procent obyvatel víc než půlmiliónového Stuttgartu sem přišlo ze zahraničí, dvojnásobně víc než kolik byl německý průměr. Byli to cizinci, kdo po válce znovu budovali místní průmysl: nejdřív Italové, pak Řekové, Španělé, Jugoslávci a nakonec Turci. Mírumilovné a pragmatické město, synonymum pro německé know-how a sídlo obřích korporací, jako byly Bosch, Porsche nebo Sebův Mercedes, integraci zvládalo s ukázkovou brilancí. Na rozdíl od mnohých jiných německých měst ve Stuttgartu nikdy nevznikla ghetta, kde imigranti žijí uzavřeni ve svém mikrosvětě.
+> „Stuttgart byl dlouho ráj na zemi,“ mínil Seba.
 
-„Stuttgart byl dlouho ráj na zemi,“ mínil Seba.
+> K tomu tématu se s Katharinou dostali hned třiadvacátého, brzy po Katharinině příjezdu. Matka přijela do Stuttgartu vlakem, volvo už většinou nechávala stát na cestě před vilou.
 
-K tomu tématu se s Katharinou dostali hned třiadvacátého, brzy po Katharinině příjezdu. Matka přijela do Stuttgartu vlakem, volvo už většinou nechávala stát na cestě před vilou.
+> „Utopie,“ pokračoval Seba. „Počítačová hra, kde na jednom konci města stojí zoo, na druhém univerzita a fotbalový sta­dión. Všude parky. Něco takového ale nedrží pohromadě zeleň, nýbrž… Před deseti lety by mě nenapadlo, že něco takového řeknu, ale… Pevná vůle.“
 
-„Utopie,“ pokračoval Seba. „Počítačová hra, kde na jednom konci města stojí zoo, na druhém univerzita a fotbalový sta­dión. Všude parky. Něco takového ale nedrží pohromadě zeleň, nýbrž… Před deseti lety by mě nenapadlo, že něco takového řeknu, ale… Pevná vůle.“
+> „A zdi,“ dodala Katharina. „Utopie vyžaduje specifické podmínky. Město uvnitř hradeb… Když chcete něco venku, spustíte dolů z věže na provazu vědro.“
 
-„A zdi,“ dodala Katharina. „Utopie vyžaduje specifické podmínky. Město uvnitř hradeb… Když chcete něco venku, spustíte dolů z věže na provazu vědro.“
+> „_Willkommenskultur_ vůbec není nový termín,“ pokračovala Katharina. „Kdysi se tím slůvkem maskoval prostý fakt, že Německo vzalo své mechanické rameno a nabralo s jeho pomocí pracovní síly v Turecku, když jsme je nutně potřebovali. Ten termín krom toho znají i v gastronomii, v hotelnictví, v turismu. Člověk si otevře podnik a samozřejmě chce, aby k němu chodili zákazníci a platili mu. V turismu ten termín prostě má své místo… I teď se říká, že Německo potřebuje další zahraniční dělníky. Dobře. Když si ale jdete natočit skleničku vody, nečekáte povodeň.“
 
-„_Willkommenskultur_ vůbec není nový termín,“ pokračovala Katharina. „Kdysi se tím slůvkem maskoval prostý fakt, že Německo vzalo své mechanické rameno a nabralo s jeho pomocí pracovní síly v Turecku, když jsme je nutně potřebovali. Ten termín krom toho znají i v gastronomii, v hotelnictví, v turismu. Člověk si otevře podnik a samozřejmě chce, aby k němu chodili zákazníci a platili mu. V turismu ten termín prostě má své místo… I teď se říká, že Německo potřebuje další zahraniční dělníky. Dobře. Když si ale jdete natočit skleničku vody, nečekáte povodeň.“
+> To téma nás provázelo po celé svátky. I Marta byla k integraci nově příchozích skeptická:
 
-To téma nás provázelo po celé svátky. I Marta byla k integraci nově příchozích skeptická:
+> „Tvrdí se nám, že z nich budou doktoři a právníci. Prý vidíme jenom jejich večerky a fast foody, doktory a právníky prý nevidíme, protože ti údajně sedí v těch samých domech, ale ve vyšších patrech, kam prostě z ulice není vidět… Takže budeme čekat. Asi to nejde zařídit ze dne na den, to je pravda. Zatím postávají a posedávají v zimních bundách před nádražím a kolem náměstí Arnulfa Kletta. Jsou jich tam stovky a nemají kde bydlet. Město narychlo staví provizorní montované ubytovny, zatím spí v tělocvičnách a kde se dá… Ať se na mě nikdo nezlobí, ale já už na svět koukám víc než šedesát let, a tohle jsou báchorky,“ řekla Marta a napila se tradičního vánočního punče. „Za tu dobu jsem se snad naučila něco vidět a odhadnout. Ať se na mě nikdo nezlobí, ale tihle lidé sem nepřišli pracovat. Podle mě spoléhají na to, že je konec… Že je to tady k rozebrání.“
 
-„Tvrdí se nám, že z nich budou doktoři a právníci. Prý vidíme jenom jejich večerky a fast foody, doktory a právníky prý nevidíme, protože ti údajně sedí v těch samých domech, ale ve vyšších patrech, kam prostě z ulice není vidět… Takže budeme čekat. Asi to nejde zařídit ze dne na den, to je pravda. Zatím postávají a posedávají v zimních bundách před nádražím a kolem náměstí Arnulfa Kletta. Jsou jich tam stovky a nemají kde bydlet. Město narychlo staví provizorní montované ubytovny, zatím spí v tělocvičnách a kde se dá… Ať se na mě nikdo nezlobí, ale já už na svět koukám víc než šedesát let, a tohle jsou báchorky,“ řekla Marta a napila se tradičního vánočního punče. „Za tu dobu jsem se snad naučila něco vidět a odhadnout. Ať se na mě nikdo nezlobí, ale tihle lidé sem nepřišli pracovat. Podle mě spoléhají na to, že je konec… Že je to tady k rozebrání.“
+> „Neví, proč sem přišli,“ řekla Katharina. „Než se dali na cestu, tak to možná věděli. Jakmile si ale stoupli před stuttgartské hlavní nádraží, najednou prázdno. Vygumovaná hlava. Najednou podle mě nevědí… Cosi jim před stuttgartským nádražím vygumovalo hlavy. Právě tohle se snažím říct všemi svými články. To něco, co jim tady u nás gumuje hlavy, to bude velmi pravděpodobně něco, co patří nám, co jsme my… Neumíme hospodařit s energií. Nemáme ji. To nadšené vítání a demonstrace odsuzující rasismus a násilí na uprchlících celou věc jenom komplikují. Zdá se, že v tom je energie, ale je to jenom klam. A ti Syřani, Pákistánci a Nigerijci to prostě poznají, vnímají to… Stoupnou si před nádraží, za sebou mají celou tu energickou pouť, ale co tady pak najdou, je kilometry se táhnoucí holina, z níž se vynořuje jediný řečnický pultík, za kterým stojí a mluví jakási vybledlá a špatně ostříhaná mamka, Mutti Merkel, což mimochodem zní strašně posměšně. Načež opět kilometry holina, jen občas z ní jako zajíc vyskočí nějaký ten lajk na Facebooku… Demonstrace na podporu uprchlíků vklíněná mezi dvě hodiny posílání srdíček a koncert Taylor Switt… Připouštím, že jsme zdravá a demokratická země. Připouštím, že jsme vyhráli nad svými dějinami. Za všechno se ale platí. Tak, jak tady teď jsme, jak bledí a bez energie tady teď jsme, tak tady můžeme být jen sami. Právě tohle se snažím ukázat každým svým článkem!“ řekla Katharina a poprvé zvýšila hlas.
 
-„Neví, proč sem přišli,“ řekla Katharina. „Než se dali na cestu, tak to možná věděli. Jakmile si ale stoupli před stuttgartské hlavní nádraží, najednou prázdno. Vygumovaná hlava. Najednou podle mě nevědí… Cosi jim před stuttgartským nádražím vygumovalo hlavy. Právě tohle se snažím říct všemi svými články. To něco, co jim tady u nás gumuje hlavy, to bude velmi pravděpodobně něco, co patří nám, co jsme my… Neumíme hospodařit s energií. Nemáme ji. To nadšené vítání a demonstrace odsuzující rasismus a násilí na uprchlících celou věc jenom komplikují. Zdá se, že v tom je energie, ale je to jenom klam. A ti Syřani, Pákistánci a Nigerijci to prostě poznají, vnímají to… Stoupnou si před nádraží, za sebou mají celou tu energickou pouť, ale co tady pak najdou, je kilometry se táhnoucí holina, z níž se vynořuje jediný řečnický pultík, za kterým stojí a mluví jakási vybledlá a špatně ostříhaná mamka, Mutti Merkel, což mimochodem zní strašně posměšně. Načež opět kilometry holina, jen občas z ní jako zajíc vyskočí nějaký ten lajk na Facebooku… Demonstrace na podporu uprchlíků vklíněná mezi dvě hodiny posílání srdíček a koncert Taylor Switt… Připouštím, že jsme zdravá a demokratická země. Připouštím, že jsme vyhráli nad svými dějinami. Za všechno se ale platí. Tak, jak tady teď jsme, jak bledí a bez energie tady teď jsme, tak tady můžeme být jen sami. Právě tohle se snažím ukázat každým svým článkem!“ řekla Katharina a poprvé zvýšila hlas.
+> „Nemůžeme si dovolit je přijmout, protože na to prostě nemáme,“ řekla. „Nezvládneme to. Přišlo to ve špatné době, příliš pozdě. A pokud to rychle nevzdáme, bude to tak zhruba fifty fifty. Půlka z nich se nám bude smát, půlka nás bude dál vyhazovat do povětří.“
 
-„Nemůžeme si dovolit je přijmout, protože na to prostě nemáme,“ řekla. „Nezvládneme to. Přišlo to ve špatné době, příliš pozdě. A pokud to rychle nevzdáme, bude to tak zhruba fifty fifty. Půlka z nich se nám bude smát, půlka nás bude dál vyhazovat do povětří.“
+> Maria po těch slovech odhodila ubrousek, hlučně odsunula židli a vstala od stolu:
 
-Maria po těch slovech odhodila ubrousek, hlučně odsunula židli a vstala od stolu:
+> „Musím se jít podívat nahoru na děti,“ řekla a odešla do patra.
 
-„Musím se jít podívat nahoru na děti,“ řekla a odešla do patra.
+> Byla nespokojená. Nelíbilo se jí, co u stolu zaznělo. Myslela si, že zná Afriku, že byla v Čadu, a my že jenom tlacháme v bezpečí u punče. Nechápala, jak můžeme házet do jednoho pytle uprchlíky ze střední Afriky s nějakým vzdělancem ze Sýrie. Nejradši by nám řekla, abychom se šli zahrabat a vymřít. Ale mlčela.
 
-Byla nespokojená. Nelíbilo se jí, co u stolu zaznělo. Myslela si, že zná Afriku, že byla v Čadu, a my že jenom tlacháme v bezpečí u punče. Nechápala, jak můžeme házet do jednoho pytle uprchlíky ze střední Afriky s nějakým vzdělancem ze Sýrie. Nejradši by nám řekla, abychom se šli zahrabat a vymřít. Ale mlčela.
+> Díval jsem se na její vzdalující se zadek a štíhlé dlouhé nohy v úzkých leviskách. Byla i v sedmatřiceti stále velmi krásná.
 
-Díval jsem se na její vzdalující se zadek a štíhlé dlouhé nohy v úzkých leviskách. Byla i v sedmatřiceti stále velmi krásná.
+> „Maria by měla být naše kancléřka,“ řekl jsem. „Maria má barvu a tvar. S Marií v čele by se nám určitě nesmáli.“
 
-„Maria by měla být naše kancléřka,“ řekl jsem. „Maria má barvu a tvar. S Marií v čele by se nám určitě nesmáli.“
+* * *
 
-\* \* \*
+> Nakonec jsme ve Stuttgartu strávili docela příjemné dva týdny. Caiazzovi vlastnili prostorný dům na předměstí, kde by šlo pohodlně ubytovat i dvakrát tolik lidí. Katharina měla samostatný pokoj, já s Marií a dětmi studio s ložnicí a koupelnou.
 
-  
+> O silvestru odpoledne jsme zavolali Piotrovi do Ostie, kam Piotr odletěl se svojí novou dívkou. Maria se teď v Berlíně s Piotrem občas vídala a oblíbila si ho. Oba byli v podstatě samotáři, rozuměli si. Nový rok jsme pak přivítali doma u Caiazzových; dvouletá Karolina o půlnoci už spala, ale šesti­letá Magda s námi poprvé zůstala vzhůru. Byly to dojemné chvíle. Miloval jsem svoji rodinu.
 
-Nakonec jsme ve Stuttgartu strávili docela příjemné dva týdny. Caiazzovi vlastnili prostorný dům na předměstí, kde by šlo pohodlně ubytovat i dvakrát tolik lidí. Katharina měla samostatný pokoj, já s Marií a dětmi studio s ložnicí a koupelnou.
+> Když jsme se třetího ledna loučili, v médiích se pomalu začínalo mluvit o hromadných sexuálních útocích a okrádání žen, ke kterému mělo dojít v mnoha německých městech v rámci pouličních silvestrovských oslav. Největší počet napadení byl nahlášen v Kolíně nad Rýnem, k řadě útoků ale mělo dojít i na Zámeckém náměstí v centru Stuttgartu. Zprávu jako první přinesly na webu místní _Stuttgarter Nachrichten_, později i online verze _Süddeutsche Zeitung_, z televizí RTL.
 
-O silvestru odpoledne jsme zavolali Piotrovi do Ostie, kam Piotr odletěl se svojí novou dívkou. Maria se teď v Berlíně s Piotrem občas vídala a oblíbila si ho. Oba byli v podstatě samotáři, rozuměli si. Nový rok jsme pak přivítali doma u Caiazzových; dvouletá Karolina o půlnoci už spala, ale šesti­letá Magda s námi poprvé zůstala vzhůru. Byly to dojemné chvíle. Miloval jsem svoji rodinu.
+> Trvalo pak celý leden, než se poskládal alespoň trochu jasný obrázek. Podle konečných policejních zpráv bylo té noci v Německu napadeno víc než tisíc žen. Útočníků mělo být zhruba dvakrát tolik a jednali ve skupinách, často až stočlenných. Izolovali ženy od davu, obstoupili je. Pak je okradli, osahávali, strkali jim prsty do vagíny. Německá policie ve svých oficiálních stanoviscích uváděla, že útočníky byli „muži arabského nebo severoafrického vzezření“ a že v Německu do té doby nikdy nedošlo k tak masovým sexuálním útokům.
 
-Když jsme se třetího ledna loučili, v médiích se pomalu začínalo mluvit o hromadných sexuálních útocích a okrádání žen, ke kterému mělo dojít v mnoha německých městech v rámci pouličních silvestrovských oslav. Největší počet napadení byl nahlášen v Kolíně nad Rýnem, k řadě útoků ale mělo dojít i na Zámeckém náměstí v centru Stuttgartu. Zprávu jako první přinesly na webu místní _Stuttgarter Nachrichten_, později i online verze _Süddeutsche Zeitung_, z televizí RTL.
+> Katharina v jenom svém pobouřeném článku napsala, že šlo o projev morální nadřazenosti muslimů:
 
-Trvalo pak celý leden, než se poskládal alespoň trochu jasný obrázek. Podle konečných policejních zpráv bylo té noci v Německu napadeno víc než tisíc žen. Útočníků mělo být zhruba dvakrát tolik a jednali ve skupinách, často až stočlenných. Izolovali ženy od davu, obstoupili je. Pak je okradli, osahávali, strkali jim prsty do vagíny. Německá policie ve svých oficiálních stanoviscích uváděla, že útočníky byli „muži arabského nebo severoafrického vzezření“ a že v Německu do té doby nikdy nedošlo k tak masovým sexuálním útokům.
-
-Katharina v jenom svém pobouřeném článku napsala, že šlo o projev morální nadřazenosti muslimů:
-
-„Byla to jejich křišťálová noc. Nevidí v nás víc než dobytek, je třeba o tom mluvit bez příkras. Pohrdají námi. Odborníci nám budou další měsíce vysvětlovat, že ty útoky přímo souvisejí s frustrací muslimů, kteří si nevrznou, pokud nemají dost peněz na to, aby mohli uzavřít manželství; za předmanželský pohlavní styk hrozí v islámu přísné tresty, a tak dále. Houby. Pohrdají námi. Pokud jejich soudruzi řežou lidské hlavy a vyhazují nás do vzduchu, podle muslimů k tomu mají nějaký důvod, třebas by byl podle nás úplně směšný. Prostě ty bomby považují za důvodné, tečka. Ale viděli jste nějakou současnou pornografii řekněme naší provenience? Nemluvím o youporn.com, porntube.com, tube8.com. Mluvím třeba o heavy-r.com. Mluvím o poměrně bezdůvodném zvracení, kálení, močení a plivání do obličeje. Mluvím o tom, že naše děti jsou na klik daleko od pojídání lidských výkalů. Na klik daleko od prorážení prsou hřebíky. Na klik daleko od videí s následky pádů pod vlak a autohavárií… Netvrdím, že je na tom všem něco špatně, lidská sexualita je možná skutečně velmi různorodá a takto se alespoň může zdravě a neškodně vybíjet. Naše věc. Naše bezdůvodná a neobhajitelná kultura… Naše čistě neideologické násilí. Náš posthistorický plezír… Nechci, aby to vyznělo ironicky, ale braňme naši kulturu. Znovu je to úplně totéž, co tvrdím i jindy. V tom stavu, v jakém jsme, tady prostě musíme být sami. Fakt, že jejich kultura je často násilná, fakt, že hromadné sexuální napadání je pod označením _taharrush jamai_ známé i z arabského světa, fakt, že žena je pro muslimy podřadná bytost; to všechno je v tomhle případě až druhá věc. V podstatě bych řekla, že jejich věc.“
+> „Byla to jejich křišťálová noc. Nevidí v nás víc než dobytek, je třeba o tom mluvit bez příkras. Pohrdají námi. Odborníci nám budou další měsíce vysvětlovat, že ty útoky přímo souvisejí s frustrací muslimů, kteří si nevrznou, pokud nemají dost peněz na to, aby mohli uzavřít manželství; za předmanželský pohlavní styk hrozí v islámu přísné tresty, a tak dále. Houby. Pohrdají námi. Pokud jejich soudruzi řežou lidské hlavy a vyhazují nás do vzduchu, podle muslimů k tomu mají nějaký důvod, třebas by byl podle nás úplně směšný. Prostě ty bomby považují za důvodné, tečka. Ale viděli jste nějakou současnou pornografii řekněme naší provenience? Nemluvím o youporn.com, porntube.com, tube8.com. Mluvím třeba o heavy-r.com. Mluvím o poměrně bezdůvodném zvracení, kálení, močení a plivání do obličeje. Mluvím o tom, že naše děti jsou na klik daleko od pojídání lidských výkalů. Na klik daleko od prorážení prsou hřebíky. Na klik daleko od videí s následky pádů pod vlak a autohavárií… Netvrdím, že je na tom všem něco špatně, lidská sexualita je možná skutečně velmi různorodá a takto se alespoň může zdravě a neškodně vybíjet. Naše věc. Naše bezdůvodná a neobhajitelná kultura… Naše čistě neideologické násilí. Náš posthistorický plezír… Nechci, aby to vyznělo ironicky, ale braňme naši kulturu. Znovu je to úplně totéž, co tvrdím i jindy. V tom stavu, v jakém jsme, tady prostě musíme být sami. Fakt, že jejich kultura je často násilná, fakt, že hromadné sexuální napadání je pod označením _taharrush jamai_ známé i z arabského světa, fakt, že žena je pro muslimy podřadná bytost; to všechno je v tomhle případě až druhá věc. V podstatě bych řekla, že jejich věc.“
 
 ## 4.
-
-  
 
 Když tenhle článek vyšel, Katharina už byla zpátky z Cortiny d’Ampezzo. Seba s Martou do svého oblíbeného střediska v Dolomitech jezdili v lednu pravidelně každý rok. Tentokrát se už před Vánoci dohodli i s Katharinou a vzali ji s sebou. Jeli ve třech devítimístným mikrobusem značky Mercedes, který měl Seba od firmy k dispozici. Vyrazili všichni hned třetího ledna přímo ze Stuttgartu, jen chvíli po odjezdu mladých zpátky do Berlína.
 
@@ -216,8 +186,6 @@ V březnu 2016 pak za islamofobní a populistickou AfD kandidovala v zemskýc
 Mathias, když se obě ty informace dověděl, pomyslel si: „Tak teď jsme jedna velká fašistická rodina.“
 
 ## 5.
-
-  
 
 Mathias z toho měl legraci. Jeho pravá nátura v těch letech téměř nebyla vidět; byl šťastný a velmi mladistvý. Od května do září nosil výhradně krátké kalhoty, bavlněná trička či rozhalené bílé košile. Na nohách v létě žabky, a to nejen u vody, ale i na Letné, kterou teď už považoval za svůj domov. Žil tam v trvalém údivu. Nad sebou, nad Prahou, nad Českem.
 
@@ -271,9 +239,7 @@ Vytáhl pomalu svoji ruku zpod té její. Mariina váhavost se ho dotkla.
 
 Pak vstala od stolu a zavolala na děti.
 
-\* \* \*
-
-  
+* * *
 
 Druhého dne je Mathias zavezl z berlínského letiště Schönefeld zpátky do Zehlendorfu a sám ihned ještě večer odjel autem do Prahy. Maria pak o jeho přání znovu přemýšlela. Vůbec při tom neměla dojem, že musí nějak hluboce zodpovídat otázku, zda Mathiase miluje. Připadalo jí, že meritum věci je jinde.
 
@@ -283,37 +249,31 @@ Už z Německa byla zvyklá sahat do lidských těl, pod kůži, do břicha, š
 
 Nerozuměla tomu. Hned chvíli poté, co Mathias po jejich návratu z Říma odjel do Prahy a ona uložila děti, sedla ke svému notebooku MacBook Air a napsala Tomassovi následující e-mail:
 
-  
+> „Tomassi, před chvílí jsme se vrátili z Ostie. Stýskalo se mi.
 
-„Tomassi, před chvílí jsme se vrátili z Ostie. Stýskalo se mi.
+> Mathias se mě těsně před odletem domů zeptal na jednu velmi podivnou věc. Má nemocné ledviny, nejde ale o nic akutního. Nicméně zeptal se mě, jestli bych mu dala svoji ledvinu, pokud by bylo třeba… Šílené…! Řekla jsem mu, že o tom budu přemýšlet, že to není jen tak. Urazil se, že prý tedy počká na verdikt. Asi jsem mu na to rovnou měla odpovědět, že není na co čekat, že mu ji samozřejmě dám, jiná odpověď přece ani neexistuje… Bude o něj dobře postaráno. Dostane nejlepší zdravotní péči a moji ledvinu, pokud ji kdy vůbec bude potřebovat; podle statistik jeho onemocnění končí kolapsem ledvin zhruba ve třiceti procentech případů. Ty víš, že ho mám ráda. Pojistím ho svým vlastním tělem, už teď je ta ledvina jeho. Já ji jenom udržuji při životě. Jsem něco jako jeho mrazák.
 
-Mathias se mě těsně před odletem domů zeptal na jednu velmi podivnou věc. Má nemocné ledviny, nejde ale o nic akutního. Nicméně zeptal se mě, jestli bych mu dala svoji ledvinu, pokud by bylo třeba… Šílené…! Řekla jsem mu, že o tom budu přemýšlet, že to není jen tak. Urazil se, že prý tedy počká na verdikt. Asi jsem mu na to rovnou měla odpovědět, že není na co čekat, že mu ji samozřejmě dám, jiná odpověď přece ani neexistuje… Bude o něj dobře postaráno. Dostane nejlepší zdravotní péči a moji ledvinu, pokud ji kdy vůbec bude potřebovat; podle statistik jeho onemocnění končí kolapsem ledvin zhruba ve třiceti procentech případů. Ty víš, že ho mám ráda. Pojistím ho svým vlastním tělem, už teď je ta ledvina jeho. Já ji jenom udržuji při životě. Jsem něco jako jeho mrazák.
+> Ihned jsem si ale v té souvislosti opět vzpomněla na Afriku. A co se teď chystám napsat, z toho mám opravdu velký strach. Nikdy jsme o tom spolu nemluvili… Nevíš, jestli skutečně monitorují e-maily všech lidí na planetě, nebo je to jenom mýtus? Opravdu existuje stroj, který prohledává všechnu komunikaci a zachycuje v ní závadná slova? Existuje někde seznam takových závadných slov…? Možná jsem sto let za opicemi, když o tom nic nevím, ale tohle fakt šlo vždycky mimo mě. Promiň. Risknu to…
 
-Ihned jsem si ale v té souvislosti opět vzpomněla na Afriku. A co se teď chystám napsat, z toho mám opravdu velký strach. Nikdy jsme o tom spolu nemluvili… Nevíš, jestli skutečně monitorují e-maily všech lidí na planetě, nebo je to jenom mýtus? Opravdu existuje stroj, který prohledává všechnu komunikaci a zachycuje v ní závadná slova? Existuje někde seznam takových závadných slov…? Možná jsem sto let za opicemi, když o tom nic nevím, ale tohle fakt šlo vždycky mimo mě. Promiň. Risknu to…
+> Pokud mě slyšíš, stroji na vyhledávání slov, tak tohle je věta, o které si já osobně myslím, že by asi neměla zaznít: Obávám se, že jsem rasistka, Tomassi. Uvědomila jsem si to až tady, vlastně až teď, když loni začali ve velkém přicházet uprchlíci do Německa. Jednak je skutečně vidím jako masu lidí, což se nám tady v Německu zakazuje. Neumím se zajímat o jejich individuální příběhy, což se nám naopak přikazuje… Mám pocit, že je to příliš evropské, příliš naše. Příběhy, psychologie, porozumění. Co když je čas na změnu a co když ta změna přichází spolu s nimi? Co když je to skutečně i jejich kontinent? Co když si na něm chtějí nastavit svoje pravidla?
 
-Pokud mě slyšíš, stroji na vyhledávání slov, tak tohle je věta, o které si já osobně myslím, že by asi neměla zaznít: Obávám se, že jsem rasistka, Tomassi. Uvědomila jsem si to až tady, vlastně až teď, když loni začali ve velkém přicházet uprchlíci do Německa. Jednak je skutečně vidím jako masu lidí, což se nám tady v Německu zakazuje. Neumím se zajímat o jejich individuální příběhy, což se nám naopak přikazuje… Mám pocit, že je to příliš evropské, příliš naše. Příběhy, psychologie, porozumění. Co když je čas na změnu a co když ta změna přichází spolu s nimi? Co když je to skutečně i jejich kontinent? Co když si na něm chtějí nastavit svoje pravidla?
+> V mojí rodině jsou v podstatě všichni proti současné německé politice. Rodiče, Mathias, Katharina. Když se baví o Německu a o uprchlících, sedím jako pecka a poslouchám, ale můžu vždycky vyletět z kůže. Já jsem naopak jednoznačně pro přijímání uprchlíků, dokonce v co největších počtech, však víš. Máme na to stejný pohled. Právo azylu mi navíc přijde jako až neskutečně krásná a hřejivá konstrukce. Vlastně bych uprchlíky klidně přijímala už jen proto, aby nám svým příchodem pomáhali budovat tenhle úžasný starobylý princip práva azylu. Když mi Magda lezla pod sukni… Když kdysi lidi hledali azyl pod klenbou katolického kostela… Když jsme všichni byli v matčině děloze…
 
-V mojí rodině jsou v podstatě všichni proti současné německé politice. Rodiče, Mathias, Katharina. Když se baví o Německu a o uprchlících, sedím jako pecka a poslouchám, ale můžu vždycky vyletět z kůže. Já jsem naopak jednoznačně pro přijímání uprchlíků, dokonce v co největších počtech, však víš. Máme na to stejný pohled. Právo azylu mi navíc přijde jako až neskutečně krásná a hřejivá konstrukce. Vlastně bych uprchlíky klidně přijímala už jen proto, aby nám svým příchodem pomáhali budovat tenhle úžasný starobylý princip práva azylu. Když mi Magda lezla pod sukni… Když kdysi lidi hledali azyl pod klenbou katolického kostela… Když jsme všichni byli v matčině děloze…
+> Mám pocit, že já a ty, Mathias a moji rodiče, že my všichni žijeme od narození hned v několikanásobném azylu. Skladování ledviny pro Mathiase, důchodový systém, zaheslované účty. Za tu dobu jsme si vybudovali vlastní způsob života, vlastní formy láskyplnosti.
 
-Mám pocit, že já a ty, Mathias a moji rodiče, že my všichni žijeme od narození hned v několikanásobném azylu. Skladování ledviny pro Mathiase, důchodový systém, zaheslované účty. Za tu dobu jsme si vybudovali vlastní způsob života, vlastní formy láskyplnosti.
+> Nevěřím, že by kdokoli z těch, kdo sem loni nebo letos přišli, dokázal slíbit svému blízkému ledvinu přesně se stejným duševním pohnutím, s jakým jsem to udělala já. S láskou, ale zároveň i bez lásky, s dobrým rozmyslem, ale i docela bez rozmyslu, s radostí, ale i bez ní. Právě tohle z nás podle mě dělá jinou rasu. Ta uprchlická krize přišla na poslední chvíli, ale snad ještě včas. V jejich příchodu je velmi hluboký smysl. Má to být otřes, tak to aspoň vnímám. Vidím v tom boží prst, který nám říká, už dost, už to stačilo. Boží prst před božími rty.
 
-Nevěřím, že by kdokoli z těch, kdo sem loni nebo letos přišli, dokázal slíbit svému blízkému ledvinu přesně se stejným duševním pohnutím, s jakým jsem to udělala já. S láskou, ale zároveň i bez lásky, s dobrým rozmyslem, ale i docela bez rozmyslu, s radostí, ale i bez ní. Právě tohle z nás podle mě dělá jinou rasu. Ta uprchlická krize přišla na poslední chvíli, ale snad ještě včas. V jejich příchodu je velmi hluboký smysl. Má to být otřes, tak to aspoň vnímám. Vidím v tom boží prst, který nám říká, už dost, už to stačilo. Boží prst před božími rty.
+> Neměli bychom po takové výzvě skutečně zmlknout (nebo je to jenom moje alibi?), zabrat nějaké místo s dobrým výhledem a oddat se tichému pozorování? Nechat jim to tady? Nebo v sobě máme naopak mobilizovat všechnu zbylou energii…? Měla bych nechat té docela směšné nefrologické praxe? Jít zpátky do nemocnice? Pozvat tě do Berlína, když jsem tady stejně pořád sama…? Chtěla bych tě sledovat, jak si budeš počínat na novém teritoriu. Představuji si k tomu hlas Davida Attenborougha, toho moderátora a přírodovědce, který natočil _Planetu Zemi_. Sedla bych si do kouta a dívala bych se, jak prolézáš náš až zbytečně velký dům.
 
-Neměli bychom po takové výzvě skutečně zmlknout (nebo je to jenom moje alibi?), zabrat nějaké místo s dobrým výhledem a oddat se tichému pozorování? Nechat jim to tady? Nebo v sobě máme naopak mobilizovat všechnu zbylou energii…? Měla bych nechat té docela směšné nefrologické praxe? Jít zpátky do nemocnice? Pozvat tě do Berlína, když jsem tady stejně pořád sama…? Chtěla bych tě sledovat, jak si budeš počínat na novém teritoriu. Představuji si k tomu hlas Davida Attenborougha, toho moderátora a přírodovědce, který natočil _Planetu Zemi_. Sedla bych si do kouta a dívala bych se, jak prolézáš náš až zbytečně velký dům.
+> Napiš mi. Líbám tě.
 
-  
-
-Napiš mi. Líbám tě.
-
-Maria“
+> Maria“
 
 Polibek ke svému e-mailu přidala úplně poprvé a hned po odeslání toho na vteřinu zalitovala. Tomassovo manželství už dávno nebylo tak pohádkové jako před deseti lety. Tomassova žena Nadine si našla milence, Tomasso se to údajně dověděl úplnou náhodou, když na jejím telefonu blikla notifikace, zatímco si Nadine odskočila v restauraci na toaletu. Děti už měli velké, Nadine požádala o rozvod, to byla informace z Tomassova posledního e-mailu. Nadine se od něj odstěhovala, dokonce prý pryč z Lugana, snad na sever do Curychu. Rozchod byl definitivní. Mariin vzdušný polibek se v takové situaci mohl stát základem pro nepříjemné nedorozumění.
 
 Šla spát. Za pár dní bude slavit osmatřicáté narozeniny. Mathias se prý asi do Zehlendorfu v té době nedostane, mrzelo ho to. Určitě jí ale popřeje po Skypu.
 
 ## 6.
-
-  
 
 Osmého listopadu 2016 v prezidentských volbách ve Spojených státech těsnou většinou hlasů nečekaně zvítězil republikánský kandidát Donald Trump. Pro mnohé šlo o frustrující stržení kor­midla; Trumpův předchůdce Obama, první americký prezident tmavé kůže, v liberalistickém vnímání světa udal jiný kurz. Obama měl podle plánu velení předat první prezidentce. Po ní měl přijít první prezident homosexuál. Ten pak měl o čtyři roky později předat Bílý dům prvnímu bílému prezidentovi, který byl původně bílou ženou. Prezidentský úřad už by v té době byl úřadem spíše kamarádským. Svět by byl svobodný, bez hranic, mírumilovný. Nevládla by pevná ruka nýbrž _high five_; zvednutí ruky a plácnutí si s kolegou rozevřenými dlaněmi. S pomocí srolovaných _Die Zeit_ a britského _Guardianu_ by nikoho nenapadlo zabíjet mouchy.
 
@@ -330,8 +290,6 @@ Když se Evropa devátého listopadu odpoledne dověděla překvapivý výsledek
 Zeď, Piotře! Zeď! Slyšíš? Tohle slovo jsme za poslední čtvrt století skoro zapomněli. Patřilo jedině mezi Židy a Araby, do Palestiny, do toho žloutku naší civilizace. Ale celej rozumnej bílek už měl bejt navždy beze zdí. Fajn. Ale podle mě grandiózní omyl. Tady v Praze mi stačí, abych pověděl, že jsem z Berlína, stačí k tomu trochu německej přízvuk a saab kabrio, a mám kolem sebe tak vysokou a krásnou zeď, že ty holky nemůžou odolat. Škrábou se ke mně po tý zdi jako březí kočky. A naše LWK…? Žiju už skoro čtyřicet let a nevidím kolem sebe nic jinýho než zdi. Sotva jedna padne, hned se ukáže další. Stavění zdí podle mě člověka uspokojí na mnohem delší dobu než jejich občasný boření… Jsi tam? Pozdravuj Marii, pokud se uvidíte. Na Trumpa, cheers!“
 
 ![](../Images/obrazek_22.jpg)
-
-  
 
 Piotr si Mathiasovy zprávy četl na telefonu, ale neodepisoval. Byl zrovna ve Varšavě, kde si stále pronajímal byt, přestože varšavská pobočka LWK Loyalty přinášela s každou další měsíční uzávěrkou méně zisků.
 
@@ -353,223 +311,203 @@ V té chvíli už ale měl Mathias jiné starosti.
 
 ## Z M. deníku
 
-2\. ledna 2017
+#### 2\. ledna 2017
 
-  
-
-Ze záchodu se vrátila až asi po čtvrt hodině, stihl jsem mezitím vypít dva rumy a napsat Piotrovi na Messengeru desítku zpráv. Když si sedla zpátky k našemu stolku, zeptal jsem se jí:
+> Ze záchodu se vrátila až asi po čtvrt hodině, stihl jsem mezitím vypít dva rumy a napsat Piotrovi na Messengeru desítku zpráv. Když si sedla zpátky k našemu stolku, zeptal jsem se jí:
 
 „Fakt ti to tak vadí? To Trumpovo vítězství?“
 
-Zakroutila hlavou. Skutečně nevypadala uplakaně. Svoji otázku jsem po pravdě myslel jako vtip, už před jejím odchodem jsem měl jasno v tom, že zrovna tuhle záležitost vůbec nevnímá. Americké volby považovala za něco vzdáleného. Americké volby, americká starost. Horizont jejího zájmu ležel na jižní Moravě.
+> Zakroutila hlavou. Skutečně nevypadala uplakaně. Svoji otázku jsem po pravdě myslel jako vtip, už před jejím odchodem jsem měl jasno v tom, že zrovna tuhle záležitost vůbec nevnímá. Americké volby považovala za něco vzdáleného. Americké volby, americká starost. Horizont jejího zájmu ležel na jižní Moravě.
 
-Stylem, účesem a oblečením byla zaměnitelná se svými vrstevníky z uměleckých škol. Postoje ale měla velmi odlišné; na rozdíl od vizáže zcela neuniformní.
+> Stylem, účesem a oblečením byla zaměnitelná se svými vrstevníky z uměleckých škol. Postoje ale měla velmi odlišné; na rozdíl od vizáže zcela neuniformní.
 
-Už před jejím odchodem na záchod jsme se bavili o uprchlících a o všech povinných tématech, která jsem vždy vytahoval před pražskými liberály: o omezování automobilové dopravy, o pouličních slavnostech, o otevřenosti a toleranci. Prostě o všech těch sousedských hovadinách. Její reakce byly odmítavé. Připomínala mi v tomhle ohledu šovinistickou krysu, která se strachuje o svoje drobky.
+> Už před jejím odchodem na záchod jsme se bavili o uprchlících a o všech povinných tématech, která jsem vždy vytahoval před pražskými liberály: o omezování automobilové dopravy, o pouličních slavnostech, o otevřenosti a toleranci. Prostě o všech těch sousedských hovadinách. Její reakce byly odmítavé. Připomínala mi v tomhle ohledu šovinistickou krysu, která se strachuje o svoje drobky.
 
-Vadilo mi to? Byl bych radši ve společnosti liberálky? Vůbec ne.
+> Vadilo mi to? Byl bych radši ve společnosti liberálky? Vůbec ne.
 
-Bylo mi jedno, kým je. Jestliže ona považovala americké volby za vnitřní záležitost Spojených států, já jsem za její interní záležitost považoval všechno, co si ona myslí a prožívá. V nejmenším jsem se do jejích vnitřních záležitostí nehodlal vměšovat.
+> Bylo mi jedno, kým je. Jestliže ona považovala americké volby za vnitřní záležitost Spojených států, já jsem za její interní záležitost považoval všechno, co si ona myslí a prožívá. V nejmenším jsem se do jejích vnitřních záležitostí nehodlal vměšovat.
 
-Psané slovo bohužel neumí zachytit její zadek v obtažených rudých legínách. Velmi drobný zadek, dětský. Zadek, který dorůstal. Jako měsíc. Opíral se do látky. Velmi mírně, ale suverénně. Dorůstal s vědomím, že má čas, že nikam nespěchá. Za deset let z tohohle drobného a svěžího zadku mohl být zadek jako almara, ale tady a teď představoval totální svěžest, šťavnatost a potenciál. Potenciál. Právě v tom spočívá rozdíl mezi drobným zadkem, kterému je dvacet, a drobným zadkem, kterému je čtyřicet.
+> Psané slovo bohužel neumí zachytit její zadek v obtažených rudých legínách. Velmi drobný zadek, dětský. Zadek, který dorůstal. Jako měsíc. Opíral se do látky. Velmi mírně, ale suverénně. Dorůstal s vědomím, že má čas, že nikam nespěchá. Za deset let z tohohle drobného a svěžího zadku mohl být zadek jako almara, ale tady a teď představoval totální svěžest, šťavnatost a potenciál. Potenciál. Právě v tom spočívá rozdíl mezi drobným zadkem, kterému je dvacet, a drobným zadkem, kterému je čtyřicet.
 
-I stařeny mohou mít drobný zadek. Stává se to. Jsou to genetické dispozice. Může to být výsledek tvrdých diet a posilování. Takový zadek však nikdy nebude vypadat stejně, jako vypadal zadek dvaadvacetileté Dominiky Kurelové. Její zadek dorůstal. Jako měsíc. Čtyřicetiletý zadek couvá. Jako měsíc v jiné fázi. Čtyřicetiletý zadek nikdy nedokáže kalhoty vyplnit s takovým přehledem jako zadek o dvacet let mladší. Čtyřicetiletý zadek je zadek bez potenciálu, zadek v krizi, zadek hysterky. Čtyřicetiletý zadek se v kalhotách z principu necítí komfortně; je v nich buď příliš narvaný, nebo naopak zacouval tak daleko, že opravdu připomíná ony pověstné dva kmínky, drobné, ale nepřitažlivé.
+> I stařeny mohou mít drobný zadek. Stává se to. Jsou to genetické dispozice. Může to být výsledek tvrdých diet a posilování. Takový zadek však nikdy nebude vypadat stejně, jako vypadal zadek dvaadvacetileté Dominiky Kurelové. Její zadek dorůstal. Jako měsíc. Čtyřicetiletý zadek couvá. Jako měsíc v jiné fázi. Čtyřicetiletý zadek nikdy nedokáže kalhoty vyplnit s takovým přehledem jako zadek o dvacet let mladší. Čtyřicetiletý zadek je zadek bez potenciálu, zadek v krizi, zadek hysterky. Čtyřicetiletý zadek se v kalhotách z principu necítí komfortně; je v nich buď příliš narvaný, nebo naopak zacouval tak daleko, že opravdu připomíná ony pověstné dva kmínky, drobné, ale nepřitažlivé.
 
-Mládí je potenciál, prázdnota, podřadnost. Mládí je jeden velký otazník. Nad mládím nejde zvítězit, protože mladý člověk za dvacet let může být nositelem Nobelovy ceny za fyziku nebo za literaturu. Mládí má všechno před sebou; všechno a cokoli. Právě to mě vždy přitahovalo na mládí, jeho poten­ciál. Byla to forma sebetýrání. Podřadnost mládí, jeho neznalost a nezkušenost jsou ve skutečnosti absolutní nadřazeností. Na mládí se nelze vytahovat; kdo se o to pokusí, pohoří, mládí ho rozdrtí, zavalí, zničí ho, smete ho ze zemského povrchu. V jedné mladické textové zprávě odeslané teenagerem přes Messenger se může ukrývat budoucí _Hledání ztraceného času_, budoucí _Kouzelný vrch_, budoucí _Ferdydurke_.
+> Mládí je potenciál, prázdnota, podřadnost. Mládí je jeden velký otazník. Nad mládím nejde zvítězit, protože mladý člověk za dvacet let může být nositelem Nobelovy ceny za fyziku nebo za literaturu. Mládí má všechno před sebou; všechno a cokoli. Právě to mě vždy přitahovalo na mládí, jeho poten­ciál. Byla to forma sebetýrání. Podřadnost mládí, jeho neznalost a nezkušenost jsou ve skutečnosti absolutní nadřazeností. Na mládí se nelze vytahovat; kdo se o to pokusí, pohoří, mládí ho rozdrtí, zavalí, zničí ho, smete ho ze zemského povrchu. V jedné mladické textové zprávě odeslané teenagerem přes Messenger se může ukrývat budoucí _Hledání ztraceného času_, budoucí _Kouzelný vrch_, budoucí _Ferdydurke_.
 
-„Co je s tebou?“ zeptal jsem se. „Napij se, Dominiko,“ řekl jsem a nalil jsem jí sklenku Zacapy.
+> „Co je s tebou?“ zeptal jsem se. „Napij se, Dominiko,“ řekl jsem a nalil jsem jí sklenku Zacapy.
 
-„Jsem smutná,“ odvětila.
+> „Jsem smutná,“ odvětila.
 
-„Nebuď,“ řekl jsem. „Červená je barvou amerických republikánů. Víš to, žejo?“ dodal jsem a ukázal jsem k jejím kalhotám.
+> „Nebuď,“ řekl jsem. „Červená je barvou amerických republikánů. Víš to, žejo?“ dodal jsem a ukázal jsem k jejím kalhotám.
 
-Zároveň jsem to považoval za dobrou příležitost, jak se jí poprvé dotknout, když jsem nepočítal to rozpačité přivítání, kdy jsem se jí pokusil dát polibek na tvář. Položil jsem jí ruku na koleno. Docela přátelsky, jako bych ji utěšoval.
+> Zároveň jsem to považoval za dobrou příležitost, jak se jí poprvé dotknout, když jsem nepočítal to rozpačité přivítání, kdy jsem se jí pokusil dát polibek na tvář. Položil jsem jí ruku na koleno. Docela přátelsky, jako bych ji utěšoval.
 
-Nereagovala na to. Asi po pěti vteřinách se zvedla a beze slova šla po schodech znovu dolů k záchodům.
+> Nereagovala na to. Asi po pěti vteřinách se zvedla a beze slova šla po schodech znovu dolů k záchodům.
 
-„Taky musím,“ zavolal jsem na ni. „Počkej.“
+> „Taky musím,“ zavolal jsem na ni. „Počkej.“
 
-Doběhl jsem ji na schodech.
+> Doběhl jsem ji na schodech.
 
-Šla dál stejným tempem, ani teď na mě nereagovala. Netýkal jsem se jí. Já, moje vnitřní záležitost. Uráželo mě to.
+> Šla dál stejným tempem, ani teď na mě nereagovala. Netýkal jsem se jí. Já, moje vnitřní záležitost. Uráželo mě to.
 
-Šel jsem za ní k dámským záchodům. Nacházely se naproti vstupu do kinosálu a teď, když se ještě nehrálo, v předsálí nebyl žádný provoz. Ani nahoře v baru ještě nesedělo víc než patnáct lidí, bylo teprve půl čtvrté odpoledne.
+> Šel jsem za ní k dámským záchodům. Nacházely se naproti vstupu do kinosálu a teď, když se ještě nehrálo, v předsálí nebyl žádný provoz. Ani nahoře v baru ještě nesedělo víc než patnáct lidí, bylo teprve půl čtvrté odpoledne.
 
-„Dominiko? Co ti furt je?“ zeptal jsem se teď už docela podrážděně.
+> „Dominiko? Co ti furt je?“ zeptal jsem se teď už docela podrážděně.
 
-A pak se to stalo. Chytil jsem ji za zadek. Silně, docela agre­sivně jsem jí ruku strčil zezadu mezi nohy a prsty jsem se opřel do švů legín v jejím rozkroku.
+> A pak se to stalo. Chytil jsem ji za zadek. Silně, docela agre­sivně jsem jí ruku strčil zezadu mezi nohy a prsty jsem se opřel do švů legín v jejím rozkroku.
 
-„Jak nějakej tramp,“ řekl jsem. „Jsi sakra sexy, moje milá.“
+> „Jak nějakej tramp,“ řekl jsem. „Jsi sakra sexy, moje milá.“
 
-Vypískla.
+> Vypískla.
 
-Stihl jsem si všimnout její ruky, kterou sáhla do zelené ledvinky připnuté u pasu. Vysmekla se, otočila se ke mně čelem a stiskla spouštěč drobného spreje.
+> Stihl jsem si všimnout její ruky, kterou sáhla do zelené ledvinky připnuté u pasu. Vysmekla se, otočila se ke mně čelem a stiskla spouštěč drobného spreje.
 
-Pak už jen velmi prudká bolest. Silné pálení na kůži, v očích a v puse. Neviděl jsem, vůbec jsem nemohl otevřít oči.
+> Pak už jen velmi prudká bolest. Silné pálení na kůži, v očích a v puse. Neviděl jsem, vůbec jsem nemohl otevřít oči.
 
-„Potřebuju pomoc! Hilfe!“ začal jsem křičet.
+> „Potřebuju pomoc! Hilfe!“ začal jsem křičet.
 
-Snažil jsem se nahmatat kliku dámských záchodů, druhou dlaní jsem si instinktivně mnul obličej. V tu chvíli mě někdo chytil za loket a pomohl mi k umyvadlu.
+> Snažil jsem se nahmatat kliku dámských záchodů, druhou dlaní jsem si instinktivně mnul obličej. V tu chvíli mě někdo chytil za loket a pomohl mi k umyvadlu.
 
-„Jsi v pohodě? Voláme záchranku.“
+> „Jsi v pohodě? Voláme záchranku.“
 
-Byl to mužský hlas, nepoznával jsem ho. Strčil mi hlavu do umyvadla, začal mi vymývat oči a oplachovat obličej studenou vodou.
+> Byl to mužský hlas, nepoznával jsem ho. Strčil mi hlavu do umyvadla, začal mi vymývat oči a oplachovat obličej studenou vodou.
 
-„Nemůžu dýchat,“ řekl jsem v panickém strachu z udušení. Začalo mě pálit v krku a na plicích.
+> „Nemůžu dýchat,“ řekl jsem v panickém strachu z udušení. Začalo mě pálit v krku a na plicích.
 
-\* \* \*
+* * *
 
-  
+> Za deset minut přijela ambulance. Sprej našli na zemi jen kousek ode mě, odhodila ho tam a utekla. Očistili mi speciálním ubrouskem obličej. Mluvili na mě česky, rozuměl jsem jim a odpovídal jsem jim také v češtině.
 
-Za deset minut přijela ambulance. Sprej našli na zemi jen kousek ode mě, odhodila ho tam a utekla. Očistili mi speciálním ubrouskem obličej. Mluvili na mě česky, rozuměl jsem jim a odpovídal jsem jim také v češtině.
+> „Už je všechno v pořádku, neměl byste mít žádné trvalé následky. Byl jste zasažen pepřovým sprejem. Je v něm skutečně látka, kterou znáte z pálivých papriček. Proto to tak pálí. Za dvě hodiny budete v pořádku.“
 
-„Už je všechno v pořádku, neměl byste mít žádné trvalé následky. Byl jste zasažen pepřovým sprejem. Je v něm skutečně látka, kterou znáte z pálivých papriček. Proto to tak pálí. Za dvě hodiny budete v pořádku.“
+> „Chápu. Taky jsem doktor,“ odsekl jsem.
 
-„Chápu. Taky jsem doktor,“ odsekl jsem.
+> Oči se mi poprvé podařilo otevřít asi až po půl hodině. Stále mě silně pálila kůže, byla velmi citlivá na dotek. Ten kluk, který se o mě staral, mi pomohl po schodech zpátky nahoru na bar.
 
-Oči se mi poprvé podařilo otevřít asi až po půl hodině. Stále mě silně pálila kůže, byla velmi citlivá na dotek. Ten kluk, který se o mě staral, mi pomohl po schodech zpátky nahoru na bar.
+> U našeho stolku samozřejmě bylo prázdno. Vzala si kabát, který předtím měla přehozený přes židli, a utekla. Dveře dokořán, větralo se. Nikde ani noha. Všichni stáli venku, mluvili spolu, dohadovali se, co přesně se stalo a co přesně jsme byli zač. Někteří z nich mě od pohledu znali. Už se mezi nimi rozneslo, že jsem dostal od holky zásah pepřovým sprejem. Bavili se tím. Slyšel jsem, jak někdo řekl: „Němec, úchyl.“
 
-U našeho stolku samozřejmě bylo prázdno. Vzala si kabát, který předtím měla přehozený přes židli, a utekla. Dveře dokořán, větralo se. Nikde ani noha. Všichni stáli venku, mluvili spolu, dohadovali se, co přesně se stalo a co přesně jsme byli zač. Někteří z nich mě od pohledu znali. Už se mezi nimi rozneslo, že jsem dostal od holky zásah pepřovým sprejem. Bavili se tím. Slyšel jsem, jak někdo řekl: „Němec, úchyl.“
+> Vzal jsem si zprávu o ošetření a svoji německou ID kartu. Poděkoval jsem a na vlastní odpovědnost jsem se sebral a táhl jsem hanbu ke vchodu do svého domu, který byl od vstupu do Oka jen asi dvacet metrů daleko. Sledovali mě, stejně tak jsem si všiml lidí v oknech a na balkónech našeho domu.
 
-Vzal jsem si zprávu o ošetření a svoji německou ID kartu. Poděkoval jsem a na vlastní odpovědnost jsem se sebral a táhl jsem hanbu ke vchodu do svého domu, který byl od vstupu do Oka jen asi dvacet metrů daleko. Sledovali mě, stejně tak jsem si všiml lidí v oknech a na balkónech našeho domu.
+> „Fuck you,“ řekl jsem a mžoural jsem při tom slepenýma očima k jednomu náhodně vybranému bytu.
 
-„Fuck you,“ řekl jsem a mžoural jsem při tom slepenýma očima k jednomu náhodně vybranému bytu.
+> „Fuck you,“ zopakoval jsem směrem k osazenstvu Bia Oko a ukázal jsem jim vztyčený prostředníček.
 
-„Fuck you,“ zopakoval jsem směrem k osazenstvu Bia Oko a ukázal jsem jim vztyčený prostředníček.
+> Otočil jsem klíčem a zalezl jsem do boudy.
 
-Otočil jsem klíčem a zalezl jsem do boudy.
+#### 3\. ledna 2017
 
-3\. ledna 2017
+> Jednou jsem riskantně předjížděl na české okresní silnici. Ve třinácti jsem v Davosu při lyžování narazil do stromu. Smrti jsem ale nikdy nebyl blíž než po tomhle zásahu, měl jsem pocit. A já jsem nechtěl zemřít. Radši život utopím v průměrnosti, než abych kdy měl z vrcholku začít klesat dolů. Jsem velmi citlivý člověk. Fašista? S tím slovem se v posledních letech zacházelo nezodpovědně. Ale ano, dobře. Neumím tančit, po celý život jsem mašíroval. Jsem zvyklý chodit kupředu podle itineráře. Mám jasný životní plán a nesnáším, když mi někdo mé plány kříží. Těch víc než pět let prožitých z velké části na pražské Letné nebylo pěti lety tance, přestože by se to tak mnohým mohlo jevit. Vyspal jsem se za tu dobu s dobrou stovkou holek, působil jsem přitom většinou vyrovnaně, spokojeně a především cool. Mohlo se zdát, že se můj život v té době utrhl ze řetězu či sjel z kolejí. Bláznivá doba, tak se tomu tuším říká. V mém případě však nic nemohlo být vzdálenější pravdě.
 
-  
+> Ta dvaadvacetiletá xenofobka za tím udělala tečku. Ještě ve výtahu jsem se v telefonu podíval na Facebook a na Messenger. Zablokovala si mě. Jinak jsem ji kontaktovat nemohl. Ale co bych si s ní vůbec měl vyprávět? Naše jediná konverzace z očí do očí musela působit vysloveně trapně. Neměl jsem to zapotřebí.
 
-Jednou jsem riskantně předjížděl na české okresní silnici. Ve třinácti jsem v Davosu při lyžování narazil do stromu. Smrti jsem ale nikdy nebyl blíž než po tomhle zásahu, měl jsem pocit. A já jsem nechtěl zemřít. Radši život utopím v průměrnosti, než abych kdy měl z vrcholku začít klesat dolů. Jsem velmi citlivý člověk. Fašista? S tím slovem se v posledních letech zacházelo nezodpovědně. Ale ano, dobře. Neumím tančit, po celý život jsem mašíroval. Jsem zvyklý chodit kupředu podle itineráře. Mám jasný životní plán a nesnáším, když mi někdo mé plány kříží. Těch víc než pět let prožitých z velké části na pražské Letné nebylo pěti lety tance, přestože by se to tak mnohým mohlo jevit. Vyspal jsem se za tu dobu s dobrou stovkou holek, působil jsem přitom většinou vyrovnaně, spokojeně a především cool. Mohlo se zdát, že se můj život v té době utrhl ze řetězu či sjel z kolejí. Bláznivá doba, tak se tomu tuším říká. V mém případě však nic nemohlo být vzdálenější pravdě.
+> Doma jsem ihned zamířil k zrcadlu. Oči rudé jako králík, kůže v obličeji seschlá. Měl jsem pocit, že ty zkurvený papričky brzy zreagují s botoxem a že mi tváře vyletí do vzduchu. Konec, řekl jsem si. I techna jsem měl dost. Zapnul jsem stolní počítač a dal jsem na YouTube vyhledat meditační hudbu. Pustil jsem hned druhý odkaz: „Healing Music, Meditation Music Relax Mind Body “
 
-Ta dvaadvacetiletá xenofobka za tím udělala tečku. Ještě ve výtahu jsem se v telefonu podíval na Facebook a na Messenger. Zablokovala si mě. Jinak jsem ji kontaktovat nemohl. Ale co bych si s ní vůbec měl vyprávět? Naše jediná konverzace z očí do očí musela působit vysloveně trapně. Neměl jsem to zapotřebí.
+> Odejdu do kláštera, napadlo mě při třetí minutě poslechu táhlých tónů a etno píšťal, zatímco jsem v klipu sledoval krajinu zalitou sluncem, kolorované vodopády a smějící se fanatičky s rozevřenou náručí.
 
-Doma jsem ihned zamířil k zrcadlu. Oči rudé jako králík, kůže v obličeji seschlá. Měl jsem pocit, že ty zkurvený papričky brzy zreagují s botoxem a že mi tváře vyletí do vzduchu. Konec, řekl jsem si. I techna jsem měl dost. Zapnul jsem stolní počítač a dal jsem na YouTube vyhledat meditační hudbu. Pustil jsem hned druhý odkaz: „Healing Music, Meditation Music Relax Mind Body “
+> No ano, co kdybych na rok nebo na dva zmizel? Spálil mosty, zahodil telefon a notebook, odhlásil se z Facebooku? Co kdybych dva roky žil zdravě? Také mým ledvinám by to prospělo. Měl bych se o ně starat, když se Maria odmítla jasně vyjádřit!
 
-Odejdu do kláštera, napadlo mě při třetí minutě poslechu táhlých tónů a etno píšťal, zatímco jsem v klipu sledoval krajinu zalitou sluncem, kolorované vodopády a smějící se fanatičky s rozevřenou náručí.
+> Sedl jsem k notebooku a začal jsem hledat „leaving the world for a monastery“. Na Guardianu jsem našel článek s titulkem „Left heartbroken by my ex, I moved to a monastery“. Rozsekaná z rozchodu, když mě nechal, odešla jsem do kláštera. Autorka se jmenovala Mia Hansson. Podle fotky byla velmi pěkná a život mezi buddhistickými mnichy jí údajně od základu změnil život. Po jedenácti měsících v klášteře sice zjistila, že má radši bary a módu, ale do Londýna se vrátila šťastná, bez sebevražedných úmyslů a bez myšlenek na svého bývalého. To by člověk nevymyslel!
 
-No ano, co kdybych na rok nebo na dva zmizel? Spálil mosty, zahodil telefon a notebook, odhlásil se z Facebooku? Co kdybych dva roky žil zdravě? Také mým ledvinám by to prospělo. Měl bych se o ně starat, když se Maria odmítla jasně vyjádřit!
+> Pak jsem si vzpomněl na Broumov v Sudetech, na Katharinino rodné město. To mi přišlo velmi efektní: sedmatřicetiletý syn odchází do kláštera do rodného města své matky, se kterou po dlouhou dobu neměl dobré vztahy, které se pak ale začaly lepšit, když se ukázalo, že matka je také fašistka. Efektní. A vlastně pravda. Už mě nebavilo být s Katharinou na kordy. Navíc se mi teď, kdy jsem si začal uvědomovat vlastní smrtelnost, hodil každý, kdo byl ochotný stát u mého smrtelného lůžka a držet mě za ruku v těch nejhorších okamžicích. Ideálně držet za ruce, ale i za nohy a za nos. Ideálně, kdyby šli přes tu hranici mezi životem a smrtí se mnou; to by asi bylo ideální.
 
-Sedl jsem k notebooku a začal jsem hledat „leaving the world for a monastery“. Na Guardianu jsem našel článek s titulkem „Left heartbroken by my ex, I moved to a monastery“. Rozsekaná z rozchodu, když mě nechal, odešla jsem do kláštera. Autorka se jmenovala Mia Hansson. Podle fotky byla velmi pěkná a život mezi buddhistickými mnichy jí údajně od základu změnil život. Po jedenácti měsících v klášteře sice zjistila, že má radši bary a módu, ale do Londýna se vrátila šťastná, bez sebevražedných úmyslů a bez myšlenek na svého bývalého. To by člověk nevymyslel!
+> Google. Klášter Broumov. Pěkné webové stránky. Myslel jsem, že se mi to zdá. Stálo tam: „Ubytování v klášteře v Domě hostů“.
 
-Pak jsem si vzpomněl na Broumov v Sudetech, na Katharinino rodné město. To mi přišlo velmi efektní: sedmatřicetiletý syn odchází do kláštera do rodného města své matky, se kterou po dlouhou dobu neměl dobré vztahy, které se pak ale začaly lepšit, když se ukázalo, že matka je také fašistka. Efektní. A vlastně pravda. Už mě nebavilo být s Katharinou na kordy. Navíc se mi teď, kdy jsem si začal uvědomovat vlastní smrtelnost, hodil každý, kdo byl ochotný stát u mého smrtelného lůžka a držet mě za ruku v těch nejhorších okamžicích. Ideálně držet za ruce, ale i za nohy a za nos. Ideálně, kdyby šli přes tu hranici mezi životem a smrtí se mnou; to by asi bylo ideální.
+> Po rozkliknutí mi k mému údivu všechno bylo důvěrně známé. Tahle sekce klášterních stránek připomínala stránky booking.com, přes které jsem si vždy rezervoval hotely. Dvojlůžková cela v přepočtu za méně než třicet euro. Tady bych mohl bydlet deset let, pomyslel jsem. Spoustě věcí jsem nerozuměl, klášter, hotel, co z toho to je, a tak dále. Naštěstí jsem ale žil ve světě, který dělal všechno proto, aby lidi, jako jsem byl já, ničím příliš nezatěžoval. Komplikace a nejasnosti si svět obloukem vyříkával s mojí kreditní kartou. Tak tomu lidé jako já za poslední desetiletí uvykli.
 
-Google. Klášter Broumov. Pěkné webové stránky. Myslel jsem, že se mi to zdá. Stálo tam: „Ubytování v klášteře v Domě hostů“.
+> Koupil jsem si hned od zítřka prvních šedesát nocí. Pokud změna, říkal jsem si, pak rychlá a velká. Následně jsem po e-mailu zrušil všechny pracovní schůzky na další dva měsíce; Norimberk, Amsterodam, Gent, Štrasburk. Holkama z Tinderu a domluvenýma rande jsem se nezatěžoval.
 
-Po rozkliknutí mi k mému údivu všechno bylo důvěrně známé. Tahle sekce klášterních stránek připomínala stránky booking.com, přes které jsem si vždy rezervoval hotely. Dvojlůžková cela v přepočtu za méně než třicet euro. Tady bych mohl bydlet deset let, pomyslel jsem. Spoustě věcí jsem nerozuměl, klášter, hotel, co z toho to je, a tak dále. Naštěstí jsem ale žil ve světě, který dělal všechno proto, aby lidi, jako jsem byl já, ničím příliš nezatěžoval. Komplikace a nejasnosti si svět obloukem vyříkával s mojí kreditní kartou. Tak tomu lidé jako já za poslední desetiletí uvykli.
+> Komu jsem naopak musel zavolat, byli Maria s Piotrem.
 
-Koupil jsem si hned od zítřka prvních šedesát nocí. Pokud změna, říkal jsem si, pak rychlá a velká. Následně jsem po e-mailu zrušil všechny pracovní schůzky na další dva měsíce; Norimberk, Amsterodam, Gent, Štrasburk. Holkama z Tinderu a domluvenýma rande jsem se nezatěžoval.
+* * *
 
-Komu jsem naopak musel zavolat, byli Maria s Piotrem.
+> „Co?“ zeptala se Maria nevěřícně, když jsem se jí dovolal na mobilní telefon. „Zbláznil ses? Na dva měsíce… Kam, Mathiasi?“
 
-\* \* \*
+> Řekl jsem jí o dvou měsících. Netušila, že mám v plánu zůstat v klášteře rok nebo dva.
 
-  
+> „Navíc v prosinci jedeme na svátky do Stuttgartu, to nejde zrušit. A nechci to rušit,“ pokračovala. „Rodiče pak hned zase jedou lyžovat do Cortiny, těší se na nás.“
 
-„Co?“ zeptala se Maria nevěřícně, když jsem se jí dovolal na mobilní telefon. „Zbláznil ses? Na dva měsíce… Kam, Mathiasi?“
+> O tom jsem věděl. Stávala se z toho tradice. Vánoční svátky ve Stuttgartu. Staří pak s Katharinou ve třech do toho luxusního měšťáckého doupěte v Dolomitech.
 
-Řekl jsem jí o dvou měsících. Netušila, že mám v plánu zůstat v klášteře rok nebo dva.
+> „Ano,“ odvětil jsem. „Miláčku, ano, vím o tom.“
 
-„Navíc v prosinci jedeme na svátky do Stuttgartu, to nejde zrušit. A nechci to rušit,“ pokračovala. „Rodiče pak hned zase jedou lyžovat do Cortiny, těší se na nás.“
+> Chtěl jsem říct, že za mnou budou s dětmi z Berlína do kláštera jezdit, ale nemohl jsem to říct. Byla by to lež. Nechtěl jsem, aby za mnou jezdili. Chtěl jsem jim to zakázat.
 
-O tom jsem věděl. Stávala se z toho tradice. Vánoční svátky ve Stuttgartu. Staří pak s Katharinou ve třech do toho luxusního měšťáckého doupěte v Dolomitech.
+> „Pojedeš na Vánoce do Stuttgartu s dětmi sama, miláčku,“ řekl jsem.
 
-„Ano,“ odvětil jsem. „Miláčku, ano, vím o tom.“
+> Chtěl jsem říct, že se s nimi o Štědrém dni spojím po Skypu, ale nemohl jsem to říct. Měl jsem v plánu odpojit se od internetu a zahodit mobilní telefon.
 
-Chtěl jsem říct, že za mnou budou s dětmi z Berlína do kláštera jezdit, ale nemohl jsem to říct. Byla by to lež. Nechtěl jsem, aby za mnou jezdili. Chtěl jsem jim to zakázat.
+> „Detox, Marie,“ pokračoval jsem. „Ledviny. Krize. Čtvrt roku bez alkoholu, bez internetu, bez…“
 
-„Pojedeš na Vánoce do Stuttgartu s dětmi sama, miláčku,“ řekl jsem.
+> „Bez sexu,“ řekla za mě.
 
-Chtěl jsem říct, že se s nimi o Štědrém dni spojím po Skypu, ale nemohl jsem to říct. Měl jsem v plánu odpojit se od internetu a zahodit mobilní telefon.
+> „Jako v každém klášteře,“ řekl jsem rozpačitě.
 
-„Detox, Marie,“ pokračoval jsem. „Ledviny. Krize. Čtvrt roku bez alkoholu, bez internetu, bez…“
+> Tohle byl tenký led. Když jsem byl naposledy na dva dny za rodinou v Zehlendorfu, ani jednou jsme spolu s Marií nespali. Jednou jsme se o to pokusili, ale nechtělo se mu. Dvaadvacítky čurák bral, ale osmatřicítka už mu nevoněla. Maria přitom byla stále krásná. V jejím případě nemělo smysl zkoušet neúspěch házet na ni.
 
-„Bez sexu,“ řekla za mě.
+> „Stres, Marie. Prostě potřebuju na čas vysadit. Nabít se,“ řekl jsem.
 
-„Jako v každém klášteře,“ řekl jsem rozpačitě.
+> „Nabít se,“ zopakovala po mně. „Recharge. Like a mobile phone. Get some juice… Máš krizi.“
 
-Tohle byl tenký led. Když jsem byl naposledy na dva dny za rodinou v Zehlendorfu, ani jednou jsme spolu s Marií nespali. Jednou jsme se o to pokusili, ale nechtělo se mu. Dvaadvacítky čurák bral, ale osmatřicítka už mu nevoněla. Maria přitom byla stále krásná. V jejím případě nemělo smysl zkoušet neúspěch házet na ni.
+> „Dobře. Jeď se nabíjet,“ řekla po chvíli. „Chápu to. A kdybys potřeboval ledvinu, tak prosím tě jenom zavolej,“ řekla a zavěsila.
 
-„Stres, Marie. Prostě potřebuju na čas vysadit. Nabít se,“ řekl jsem.
+> „Všechno OK?“ zeptal jsem se jí ihned na Messengeru.
 
-„Nabít se,“ zopakovala po mně. „Recharge. Like a mobile phone. Get some juice… Máš krizi.“
+* * *
 
-„Dobře. Jeď se nabíjet,“ řekla po chvíli. „Chápu to. A kdybys potřeboval ledvinu, tak prosím tě jenom zavolej,“ řekla a zavěsila.
-
-„Všechno OK?“ zeptal jsem se jí ihned na Messengeru.
-
-\* \* \*
-
-  
-
-Odepsala mi po čtvrt hodině:
+> Odepsala mi po čtvrt hodině:
 
 ![](../Images/obrazek_4.jpg)
 
-A pak hned:
+> A pak hned:
 
 ![](../Images/obrazek_5.jpg)
 
-Nakonec:
+> Nakonec:
 
 ![](../Images/obrazek_6.jpg)
 
-  
+> Podobné drama jsem nehodlal opakovat. Piotrovi jsem napsal e-mail. O nějaké neurčité krizi, o nabíjení se, o józe a o meditacích. Slíbil jsem, že LWK Loyalty nebude na mé pauze nic tratit. Byl to nesmysl, ale stejně jsem e-mail odeslal. Už při psaní mi došlo, že mi na práci v LWK nezáleží. Byl jsem připravený skončit a vlastně jsem si ani neuměl představit, že by to mohlo dopadnout jinak.
 
-Podobné drama jsem nehodlal opakovat. Piotrovi jsem napsal e-mail. O nějaké neurčité krizi, o nabíjení se, o józe a o meditacích. Slíbil jsem, že LWK Loyalty nebude na mé pauze nic tratit. Byl to nesmysl, ale stejně jsem e-mail odeslal. Už při psaní mi došlo, že mi na práci v LWK nezáleží. Byl jsem připravený skončit a vlastně jsem si ani neuměl představit, že by to mohlo dopadnout jinak.
+> Pak jsem vypnul telefon a odpojil notebook od internetu. Vygumoval jsem tím půlku svého života. Najednou ticho.
 
-Pak jsem vypnul telefon a odpojil notebook od internetu. Vygumoval jsem tím půlku svého života. Najednou ticho.
+> Soukromé ticho ve ztichlé zemi. Úplně nový pocit. Cítil jsem, jak nám na rameno pokládá ruku budoucnost.
 
-Soukromé ticho ve ztichlé zemi. Úplně nový pocit. Cítil jsem, jak nám na rameno pokládá ruku budoucnost.
+#### 4\. ledna 2017
 
-4\. ledna 2017
+> Broumovský klášter včetně kostela má v nájmu jeden místní fabrikant. Vyrábí průmyslové formy pro automobilky. Už podle webových stránek se dalo soudit, že místo pod jeho správou prosperuje líp než za socialismu nebo později za benediktýnů, kterým klášter spadl do klína v rámci restitucí.
 
-  
+> Nová červenobílá fasáda. Seminární místnosti. Inzerované kurzy jógy. Upravená klášterní zahrada s restaurovaným altánem a vetešárnou současného umění; ta galerie, která sloužila jako černá díra pro všechno a pro každého, kdo tam zalezl, to bylo nejsmutnější místo široko daleko. V zahradě nově postavili multifunkční sál, který vyhrál v lokální architektonické soutěži. Mluví se tady česky, ale jen pár kilometrů za hranicí žijí Poláci. Ještě v roce 1945 v Broumově a okolí, ale i za blízkou hranicí žili Němci. Polsko je tady nově, posunulo se sem až po válce. Úkolem dneška je navazování zpřetrhaných nebo nikdy neexistujících vazeb, česko-polské, česko-německé a česko-německo-polské dialogy. Zeleň, čisto, graficky pěkně upravené informační tabule. Vcelku oáza, kde by šlo říct a udělat hodně; pokud by ještě někdo něco znal a měl energii.
 
-Broumovský klášter včetně kostela má v nájmu jeden místní fabrikant. Vyrábí průmyslové formy pro automobilky. Už podle webových stránek se dalo soudit, že místo pod jeho správou prosperuje líp než za socialismu nebo později za benediktýnů, kterým klášter spadl do klína v rámci restitucí.
+> Co po nás zbude, bude připravenost k dialogu. Tak nějak by to řekla Katharina. Měla pravdu, odhadla přesně, kam Evropa směřuje. K seminární místnosti s mikrofonem a projektorem a ke skupinkám padesátiletých idiotek v legínách… Jak se může Evropa někam pohnout, když se devadesát procent její populace válí na karimatkách a studuje, kolik procent čokolády je ve stoprocentní čokoládě?… Vina za selhávání Evropy se hází na evropské politiky. Vágní teze zní, že by je bylo třeba vyměnit. Ale za koho? Za idiotku, která v padesáti zjistila, že existuje něco jako zdraví, náboženství, filozofie a život, a začala kvůli tomu na kurzech vždy jednou za dva měsíce objímat staleté duby, přičemž se jí plete páté přes deváté, život, zdraví, filozofie, čokolády? Budujte Evropu s babkami, které pochopily význam kvality v životě a v čokoládě. Budujte Evropu s _walking dead_.
 
-Nová červenobílá fasáda. Seminární místnosti. Inzerované kurzy jógy. Upravená klášterní zahrada s restaurovaným altánem a vetešárnou současného umění; ta galerie, která sloužila jako černá díra pro všechno a pro každého, kdo tam zalezl, to bylo nejsmutnější místo široko daleko. V zahradě nově postavili multifunkční sál, který vyhrál v lokální architektonické soutěži. Mluví se tady česky, ale jen pár kilometrů za hranicí žijí Poláci. Ještě v roce 1945 v Broumově a okolí, ale i za blízkou hranicí žili Němci. Polsko je tady nově, posunulo se sem až po válce. Úkolem dneška je navazování zpřetrhaných nebo nikdy neexistujících vazeb, česko-polské, česko-německé a česko-německo-polské dialogy. Zeleň, čisto, graficky pěkně upravené informační tabule. Vcelku oáza, kde by šlo říct a udělat hodně; pokud by ještě někdo něco znal a měl energii.
+> Atmosféra broumovského kláštera mi od první chvíle něčím připomínala nepříjemnou atmosféru Norimberku. Čekal jsem od kláštera v Čechách něco jiného. Těšil jsem se na bičování, povinné ulehání a povinné vstávání, memorování, zkoušky z botaniky a z medicíny. Chtěl jsem snášet tělesné tresty, pokud bych vlezl na Wikipedii nebo pokud bych si pustil porno a začal nečistě konat. Místo toho jsem dostal pět stupínků připojení na wifi a rozkročení mezi minulým a budoucím, které jsem znal z Norimberku a vůbec z Německa. Ten nikdy nekončící tok výzev k zamyšlení se nad válkou a nad tím, kdo všechno udělal co špatně. Odsun Němců a tak dále. Určitá část českých elit se za ten odsun stydí a omlouvá. Větší divadlo si umím jen těžko představit. Někdo by měl Čechům vysvětlit, že mají mylnou představu o kultivovanosti. Někdo by jim měl vysvětlit, že zaměňují kultivovanost s vymíráním.
 
-Co po nás zbude, bude připravenost k dialogu. Tak nějak by to řekla Katharina. Měla pravdu, odhadla přesně, kam Evropa směřuje. K seminární místnosti s mikrofonem a projektorem a ke skupinkám padesátiletých idiotek v legínách… Jak se může Evropa někam pohnout, když se devadesát procent její populace válí na karimatkách a studuje, kolik procent čokolády je ve stoprocentní čokoládě?… Vina za selhávání Evropy se hází na evropské politiky. Vágní teze zní, že by je bylo třeba vyměnit. Ale za koho? Za idiotku, která v padesáti zjistila, že existuje něco jako zdraví, náboženství, filozofie a život, a začala kvůli tomu na kurzech vždy jednou za dva měsíce objímat staleté duby, přičemž se jí plete páté přes deváté, život, zdraví, filozofie, čokolády? Budujte Evropu s babkami, které pochopily význam kvality v životě a v čokoládě. Budujte Evropu s _walking dead_.
+* * *
 
-Atmosféra broumovského kláštera mi od první chvíle něčím připomínala nepříjemnou atmosféru Norimberku. Čekal jsem od kláštera v Čechách něco jiného. Těšil jsem se na bičování, povinné ulehání a povinné vstávání, memorování, zkoušky z botaniky a z medicíny. Chtěl jsem snášet tělesné tresty, pokud bych vlezl na Wikipedii nebo pokud bych si pustil porno a začal nečistě konat. Místo toho jsem dostal pět stupínků připojení na wifi a rozkročení mezi minulým a budoucím, které jsem znal z Norimberku a vůbec z Německa. Ten nikdy nekončící tok výzev k zamyšlení se nad válkou a nad tím, kdo všechno udělal co špatně. Odsun Němců a tak dále. Určitá část českých elit se za ten odsun stydí a omlouvá. Větší divadlo si umím jen těžko představit. Někdo by měl Čechům vysvětlit, že mají mylnou představu o kultivovanosti. Někdo by jim měl vysvětlit, že zaměňují kultivovanost s vymíráním.
+> Dívali se tam na mě jako na blázna, když zjistili, že přijel ten, kdo si koupil šedesát nocí.
 
-\* \* \*
+> „Koupím si tisíc dalších. Smiřte se s tím,“ řekl jsem jim anglicky.
 
-  
+> Nechtěl jsem s recepční mluvit česky, neměl jsem s těmi lidmi nic společného. Žil jsem si v cele a okolí od začátku po svém. Čural jsem do umyvadla, žral jsem sračky z broumovské pizzerie. Konec diety, tady to nejde, musel bych se zbláznit. Dál aspoň vyrážím na každodenní ranní procházky, chodím k pivovaru do Olivětína, v podstatě spálenou zemí, kolem ruin. Klášter je jediným místem, které se tady od mojí poslední návštěvy v devíti letech někam posunulo. Jsem tady za trest. To mi vyhovuje. Není tady nic. To jediné, co by tady teoreticky mohlo stát za pozornost, tedy ta vlezlá kopie Německa s mikro­fony, projektory a jógou, je ještě nicotnější než v ruinách stojící zbytek Broumovska.
 
-Dívali se tam na mě jako na blázna, když zjistili, že přijel ten, kdo si koupil šedesát nocí.
+> Hned druhého dne po příjezdu jsem se došel podívat ke statku, kde jsme bydleli tehdy v roce 1988. Na schránce stálo neznámé jméno. S žádnými svými českými příbuznými už nejsem v kontaktu.
 
-„Koupím si tisíc dalších. Smiřte se s tím,“ řekl jsem jim anglicky.
+* * *
 
-Nechtěl jsem s recepční mluvit česky, neměl jsem s těmi lidmi nic společného. Žil jsem si v cele a okolí od začátku po svém. Čural jsem do umyvadla, žral jsem sračky z broumovské pizzerie. Konec diety, tady to nejde, musel bych se zbláznit. Dál aspoň vyrážím na každodenní ranní procházky, chodím k pivovaru do Olivětína, v podstatě spálenou zemí, kolem ruin. Klášter je jediným místem, které se tady od mojí poslední návštěvy v devíti letech někam posunulo. Jsem tady za trest. To mi vyhovuje. Není tady nic. To jediné, co by tady teoreticky mohlo stát za pozornost, tedy ta vlezlá kopie Německa s mikro­fony, projektory a jógou, je ještě nicotnější než v ruinách stojící zbytek Broumovska.
+> Za první dva měsíce jsem v broumovském klášteře měl jen jeden pozoruhodný zážitek. Někdy před Vánoci se v multifunkčním sále v klášterní zahradě pořádal výroční večer broumovské základní umělecké školy s hosty. Vstupné v přepočtu dvě eura. V sále se nás sešlo možná o trochu víc než sto, rozhodně nad poměry, překvapilo mě to.
 
-Hned druhého dne po příjezdu jsem se došel podívat ke statku, kde jsme bydleli tehdy v roce 1988. Na schránce stálo neznámé jméno. S žádnými svými českými příbuznými už nejsem v kontaktu.
+> Co se bude dít? Čekal jsem fidlání, flétničky, housličky, jakousi starozákonní drezúru. Kde jinde než na české základní umělecké škole v severočeském zapadákově by se měl udržet kousek evropského devatenáctého století? Bach, Mozart, česká lidová… Čekal jsem kontrapunkt k současné podobě zdejšího kláštera, do notiček zašifrovaný odpor k laciným novotám a mezi řádky i k Německu. Lezl jsem do sálu jako etnograf. Teprve tady se schoulím na prsa malého českého národa, říkal jsem si. Čekal jsem, že v těch děckách bude zaděláno na novou Evropu, na obrodu.
 
-\* \* \*
+> Výsledek? Fidlání úplné minimum, drtivá většina výstupů byla tanečních. Děti mezi pěti až sedmnácti. Co by se učily notám, když jim stačilo natřásání. Holky na sobě měly upnuté trikoty a krátké sukýnky. Lidovou hudbu abys pohledal. Místo toho Beyoncé a americký pop. Nešlo rozlišit, zda jde o tanec, nebo o něco jiného. Nepoznal bych, jestli před sebou mám maličké Češky, nebo Němky, v tomhle věku české a německé holky vypadaly stejně; husy s akné a zatím bez vzdělání, které tudíž hospodaří jen s genetickými dispozicemi. Mnohé z nich zůstávaly přirozené; s pěknými světle hnědými ohony, s krásnými zuby a svěžími rty. Zadky v trikotech a legínách k posrání. Slintal jsem nad nimi, dal bych motor z audi za to, abych se s jednou z nich mohl vyspat. Někoho tak mladého a svěžího už nikdy nebudu mít, to byla osa mých myšlenek.
 
-  
+> Ty děti to samozřejmě věděly. Z všeobecné neurčitosti od začátku programu až do konce vystupovala jako jediná jednotící linie prepubertální a pubertální sexualita. Proto nás v hledišti bylo tolik, teď už jsem tomu rozuměl. Místní chlapi na rozdíl ode mě předem věděli, na co se jdou podívat. Při těch nejlepších výkonech si museli dávat nohu přes nohu a ty holky to věděly, jak říkám. Dělaly to jen kvůli nám. Aby nás mohly týrat.
 
-Za první dva měsíce jsem v broumovském klášteře měl jen jeden pozoruhodný zážitek. Někdy před Vánoci se v multifunkčním sále v klášterní zahradě pořádal výroční večer broumovské základní umělecké školy s hosty. Vstupné v přepočtu dvě eura. V sále se nás sešlo možná o trochu víc než sto, rozhodně nad poměry, překvapilo mě to.
+> Kurva! Takové natřásání zadkem mě už jednou málem připravilo o oči!
 
-Co se bude dít? Čekal jsem fidlání, flétničky, housličky, jakousi starozákonní drezúru. Kde jinde než na české základní umělecké škole v severočeském zapadákově by se měl udržet kousek evropského devatenáctého století? Bach, Mozart, česká lidová… Čekal jsem kontrapunkt k současné podobě zdejšího kláštera, do notiček zašifrovaný odpor k laciným novotám a mezi řádky i k Německu. Lezl jsem do sálu jako etnograf. Teprve tady se schoulím na prsa malého českého národa, říkal jsem si. Čekal jsem, že v těch děckách bude zaděláno na novou Evropu, na obrodu.
+> Neměl jsem na to sílu. Běžte do prdele. Vstal jsem a odešel jsem se svěšenou hlavou dlouho před koncem. Znovu mě odněkud vyháněli.
 
-Výsledek? Fidlání úplné minimum, drtivá většina výstupů byla tanečních. Děti mezi pěti až sedmnácti. Co by se učily notám, když jim stačilo natřásání. Holky na sobě měly upnuté trikoty a krátké sukýnky. Lidovou hudbu abys pohledal. Místo toho Beyoncé a americký pop. Nešlo rozlišit, zda jde o tanec, nebo o něco jiného. Nepoznal bych, jestli před sebou mám maličké Češky, nebo Němky, v tomhle věku české a německé holky vypadaly stejně; husy s akné a zatím bez vzdělání, které tudíž hospodaří jen s genetickými dispozicemi. Mnohé z nich zůstávaly přirozené; s pěknými světle hnědými ohony, s krásnými zuby a svěžími rty. Zadky v trikotech a legínách k posrání. Slintal jsem nad nimi, dal bych motor z audi za to, abych se s jednou z nich mohl vyspat. Někoho tak mladého a svěžího už nikdy nebudu mít, to byla osa mých myšlenek.
-
-Ty děti to samozřejmě věděly. Z všeobecné neurčitosti od začátku programu až do konce vystupovala jako jediná jednotící linie prepubertální a pubertální sexualita. Proto nás v hledišti bylo tolik, teď už jsem tomu rozuměl. Místní chlapi na rozdíl ode mě předem věděli, na co se jdou podívat. Při těch nejlepších výkonech si museli dávat nohu přes nohu a ty holky to věděly, jak říkám. Dělaly to jen kvůli nám. Aby nás mohly týrat.
-
-Kurva! Takové natřásání zadkem mě už jednou málem připravilo o oči!
-
-Neměl jsem na to sílu. Běžte do prdele. Vstal jsem a odešel jsem se svěšenou hlavou dlouho před koncem. Znovu mě odněkud vyháněli.
-
-Čekal jsem, že mi toho večera setnou hlavu, ale čekal jsem, že mi ji setne cosi autenticky českého. Místo toho jsem se účastnil aktuálně jediného opravdu upřímného evropského dialogu: na jedné straně nasvícený prepubertální a pubertální sex, na druhé ve tmě sálu slintající pedofilie.
+> Čekal jsem, že mi toho večera setnou hlavu, ale čekal jsem, že mi ji setne cosi autenticky českého. Místo toho jsem se účastnil aktuálně jediného opravdu upřímného evropského dialogu: na jedné straně nasvícený prepubertální a pubertální sex, na druhé ve tmě sálu slintající pedofilie.
 
 ## 8.
-
-  
 
 Katharina Walter publikovala poslední knihu v roce 2014, pak se asi na rok úplně odmlčela. Znovu začala psát až v létě 2015, kdy v Německu kancléřka Merkelová v souvislosti s uprchlickou krizí vyhlásila politiku otevřených dveří. Tehdy Katharina naplno spustila neustávající proud autorské publicistiky, nejprve v německém tisku, později na svém blogu, na Twitteru a na Facebooku. Nebyla to literární díla, nýbrž angažované každodenní psaní. Liberální média se její názory snažila potírat a marginalizovat. Vysmívali se jí, podsouvali jí, že chce být jiná, že exhibuje. Co si myslela, si nemohla a nesměla myslet. Pokud s ní udělali rozhovor, zarámovali ho perexem jako nebezpečnou klauniádu.
 
@@ -579,9 +517,7 @@ Telefonát, který Katharina obdržela v polovině listopadu 2016, je pravděpo
 
 Poděkovala. Nevěděla, co víc říct. Zástupce Akademie Arno Janst ji požádal, aby si informaci až do oficiální tiskové konference ponechala pro sebe. Slíbila to. Věděla, že taková je zvyklost. Nenapadlo by ji cenu odmítnout nebo porušit dlouholetou tradici. Vážila si toho, že ji vybrali. Lichotilo jí to. Hanna a další se kdysi vysmívali jejím jazykovým neobratnostem, a hle, teď Katharina bude přebírat cenu, která se podle statusu Akademie uděluje autorům píšícím v německém jazyce, kteří svým dílem dokázali zásadně ovlivnit německý kulturní život. Zároveň to svým charakterem nebyla cena, která se dává za celoživotní dílo, to Katharinu těšilo a uklidňovalo; mnozí vyznamenaní své nejlepší texty napsali až v pozdějších letech, třeba Thomas Bernhard je dobrým příkladem. Neposílali ji tím oceněním do hrobu, naopak ji motivovali k tomu, aby žila a psala.
 
-\* \* \*
-
-  
+* * *
 
 Když si o čtrnáct dní později při sprchování náhodou nahmatala v levém prsu tvrdou bulku, její první reakcí nebyl strach nebo zděšení, nýbrž ironické pousmání. Zavřela kohouty, utřela se a přešla jen v ručníku do své pracovny na patře. Tam pak zaklapla notebook, ve kterém měla rozepsaný nový román. Začala před týdnem a tentokrát pustila uzdu své fantazii. Psala o smyšlených postavách, děj umístila do Athén roku 2030 a text jí šel pěkně od ruky.
 
@@ -593,9 +529,7 @@ Její lékař ve wiesbadenské nemocnici – Němec, který mohl být tak o p�
 
 Vzmužit se. Angličané říkají _man up_. Málokterý výraz zněl v Německu roku 2016 archaičtěji. U ženy navíc takové životní krédo působilo zvlášť hloupě a nepřitažlivě. Muži by v takové ženě pravděpodobně viděli ženu s vousem. Feministky by za podobné vyznání Katharinu rovnou poslaly na převýchovu a pohrdly by jí; muž přece pro ženy není žádným vzorem. Vzmužit se nakonec není ani termín ze slovníku potetovaných děcek s vyholenými hlavami z posiloven; tyhle třasořitky se považují za muže čtyřiadvacet hodin denně sedm dní v týdnu. Pro nějaké vzmužování v jejich životě není místo, to by jim přišlo příliš kancelářské a zjemnělé. Bylo tedy na Katharině, aby se sama stavěla za ten překonaný koncept, pokud v něj stále věřila.
 
-\* \* \*
-
-  
+* * *
 
 Když se pátého prosince 2016 vracela z nemocnice, kde definitivně odmítla operaci, její myšlenky patřily Janovi. Rozešli se ve zlém, tehdy po sérii e-mailů, v nichž mu do tváře vmetla první poslední. Bylo toho dost na to, aby už nikdy nenapsal, a přesně tak to dopadlo. Tohle ale nebyla jejich jediná společná minulost. Katharina teď musela vzpomínat na jejich první roky v Offenbachu. Nevěděla, kde Jan žije a jestli vůbec žije, ale napsat mu brala jako povinnost.
 
@@ -604,8 +538,6 @@ Znovu se mu v e-mailu omluvila. Pak mu pověděla o své diagnóze a o nedob
 „V nemocnici jsem si v posledních dnech sundavala košili co hodinu, Jene. Strkali mi prso pod mamograf, pod CT, pod magnetickou rezonanci, jak se všechna ta vyšetření jmenují. Prso, které tak důvěrně znáš a které tě nedokázalo uspokojit. Možná je to trest. Nebo je to trest za ty moje e-maily. To prso bys už v každém případě nechtěl a nepoznal bys ho, tahle kapitola skončila. Kdybys jen viděl moji kůži… Musím se smát, když si představím svůj současný rozhalený hrudník na budovatelských plakátech. A představ si, že bych podstoupila operaci a že bych o levé prso přišla. To by pak byly budovatelské plakáty! Vypnula bych hruď bez prsa a hrdě bych s holou hrudí postupovala vstříc budoucnosti. Údernice. Kdo by mohl vědět, kolik síly jsem za život nastřádala, ale ne, kroutili by odmítavě hlavami, těm šlo tehdy o svaly… Dnešní Německo naštěstí předstírá, že má pro tělesné hendikepy a podobné záležitosti pochopení. Umím si představit, že by mě s uříznutým prsem vyfotili polonahou pro nějaký lesklý časopis. Zabilo by se tím jednou ranou hned několik much, bylo by to _cool_. Feministické, osvětové, umělecké. Zvážím to. Měj se krásně, Jene.“
 
 ## 9.
-
-  
 
 Devatenáctého prosince 2016 na náměstí Breitscheidplatz v Berlí­ně, kde se v té době konaly tradiční adventní trhy, najel útočník s kamionem naloženým ocelí do davu lidí. K útoku se druhý den přihlásila teroristická organizace Islámský stát. Zahynulo dvanáct osob, vážné zranění utrpěly víc než tři desítky lidí. Katharinu ten útok silně rozrušil. Na praktické rovině se okamžitě začala strachovat o svoji berlínskou rodinu.
 
@@ -633,23 +565,17 @@ Doteď měla vůli Mathiase omlouvat, teď ji spontánně ztratila.
 
 „Marie, prosím tě, poslouchej mě,“ řekla rychle. „S tím klášterem to je nějaký nesmysl, jsou tam normální křesťanští mniši. Ale to není důležitý… Já se ti omlouvám, za něj, to chci říct… Uvidíme se brzy u tvých rodičů… Těším se!“ řekla a vhrkly jí do očí slzy.
 
-\* \* \*
-
-  
+* * *
 
 O dva dny později sedla do svého volva a vyrazila po dálnici směrem do Stuttgartu. Během dvouhodinové cesty přemýšlela o tom, kdo se o ni postará, až bude umírat. Na Mathiase se spolehnout nemůže, tím si byla jistá.
 
-\* \* \*
-
-  
+* * *
 
 Mathiasovi ze Stuttgartu zkoušeli volat o Štědrém dni i později, ale jeho mobilní telefon byl vždy nedostupný. Neodpovídal ani na e-maily. Podle Messengeru byl naposledy aktivní před necelými dvěma měsíci, což přesně odpovídalo tomu, co tehdy řekl své ženě. Odpojil se od internetu a podle všeho své předsevzetí neporušoval.
 
 Věnovali se dětem, tentokrát se vyhýbali tématům jako byli uprchlíci, berlínský teroristický útok či evropská politika. Ani o Mathiasovi příliš nemluvili. Jeho absence sice byla trapná, na druhé straně ho však u vánočního stromku nikdo příliš nepostrádal; dokonce ani Magda s Karolinou ne, uvědomila si Maria. Ty tři týdny, které zbývaly do konce jeho klauzury, se snadno přečkají.
 
-\* \* \*
-
-  
+* * *
 
 Třetího ledna se rozloučili s Marií a dětmi, kteří vyrazili vlakem zpátky do Berlína. Caiazzovi s Katharinou měli podle plánu ještě téhož dne vyrazit na lyže do italské Cortiny, stejně jako loni. Seba už měsíc dopředu rezervoval dva pokoje v hotelu Menardi. V Mercedesu si půjčil prostorný a pohodlný mikrobus. Cesta ze Stuttgartu do Cortiny trvala dobrých šest hodin, bylo třeba přejet Alpy, ze Stuttgartu přes Innsbruck a pak vystoupat do Brennerského průsmyku na rakousko-italských hranicích. Katharina až do poslední chvíle počítala s tímto plánem, dokonce už měla lyže a kutr naložené v mikrobusu.
 
@@ -665,9 +591,7 @@ Podřídila se chvilkovému pohnutí. Zároveň to ale bylo docela logické rozh
 
 Dohodli se, že Katharina do Cortiny přijede za dva nebo za tři dni, pátého či šestého ledna.
 
-\* \* \*
-
-  
+* * *
 
 Za Bodamským jezerem a za Bregenzem se podél silnice začaly zvedat Alpy. Opět se ihned cítila jako doma, na tom se za ta léta nic nezměnilo. Možná to nakonec opravdu souviselo s faktem, že se narodila a vyrostla v Broumově, který je hned ze dvou stran obklopený kopci a skálami. S Alpami se samozřejmě Javoří hory a Broumovské stěny nemohly měřit, ten horský pocit ale stejně znal každý, kdo se v Broumově narodil nebo kdo si tam zvykl. Třeba v rovinatém Polabí se žije jinak; svět se tam stává nepřehledným, plochým, nudným. Na člověka v rovinách padá paralyzující průměr.
 
@@ -679,9 +603,7 @@ V tomhle kontextu Katharina při řízení do Davosu myslela i na Mathiase a 
 
 Toho místa je pro něj škoda, pomyslela si a najednou na něj žárlila. Pokud někdo z nich dvou v těch chvílích měl být v Broumově, pak tam měla být ona, ne její syn. Mathias neuvidí kouzlo toho kraje, nebude pro něj mít správné oko. Ona sama přitom o Broumovsku už dlouho přemýšlela jako o ideálním místu pro zbudování utopie. Němci a benediktýni se v minulých staletích ostatně na Broumovsku pokusili právě o něco velmi blízkého utopii, a nebyli nakonec ani tak docela neúspěšní. Stísněný prostor na počátku osmnáctého století během krátké doby poseli množstvím barokních staveb a výstavními velkostatky. Do určité míry to byl život v pohádce, to si Katharina uměla živě představit. Válkou, kterou rozpoutal Hitler a která se na Broumovsko přelila přes kopce, všechno vzalo za své. Po vyhnání Němců pak začala konečná devastace. A přesto to byl a dodnes může být střed světa. Mathias si toho ale téměř jistě nevšimne.
 
-\* \* \*
-
-  
+* * *
 
 Měla štěstí, sehnala v Davosu dvojlůžkový pokoj v hotelu Edelweiss, kam byla zvyklá jezdit s Clemensem.
 
@@ -703,9 +625,7 @@ Nebyla tak naivní, aby mu přičítala ke cti jeho datum narození, ale líbilo
 
 Po roce 1990 utopie vzala za své. Pád berlínské zdi byl svým způsobem ohromnou ztrátou, tragédií, jejíž důsledky možná uvidí až další generace. Stržení bariér Evropu vrhlo do světa nížin. Uprchlická krize z posledních let není ničím jiným než novou variací na rok 1989. Nebýt pádu berlínské zdi, nebylo by o čtvrt století později ani uprchlické vlny. Po roce 1989 nad horami definitivně zvítězilo moře, fakticky jediná alespoň trochu přibližná hranice Evropy. Ale i tahle hranice mizí; sjednocená Evropa se potápí, zaplavuje se.
 
-\* \* \*
-
-  
+* * *
 
 Bylo deset hodin ráno. Oblékla si čisté spodní prádlo, lyžařské kalhoty, svetr a zimní bundu. Lyže a lyžařské boty měla v autě. Použité spodní prádlo strčila do pytle na odpadky, který pak vyhodila do koše ve městě. Mobil položila na noční stolek, elektronickou kartu hotelu si spolu s lístkem na rozloučenou zasunula do kapsy kalhot a pevně zapnula zip. Naposledy se podívala po pokoji. Urovnala cíp peřiny na zastlané posteli, zhasla a zabouchla za sebou.
 
@@ -729,9 +649,7 @@ Napadlo ji, že to budou její poslední slova, když nepočítá pozdější ko
 
 To je lepší, pomyslela si.
 
-\* \* \*
-
-  
+* * *
 
 Byla na vrcholku Jakobshornu. Zaklapla boty do vázání. Popojela k začátku sjezdovky.
 
@@ -757,15 +675,11 @@ Nevěděla, kde se tam to dítě zničehonic vzalo. Okamžitě zahranila, aby se
 
 Padla na zem, všude sníh, lyže ve vteřině odskočily od bot. Letěla po sněhu ke srázu, chvíli po hlavě, chvíli po nohách. Ucítila škubnutí, zlomila se jí nějaká kost. Narazila do muldy, přetočila se hlavou dolů. Zachytila ji záchranná síť, ale jen horní část těla, nohy letěly vzduchem a těžké boty ji strhly za síť a pak přímo ku srázu. Poté už přišel jen náraz.
 
-\* \* \*
-
-  
+* * *
 
 Na místo do patnácti minut dorazil záchranný vrtulník. Sjezdovka už byla uzavřená, lanovka stála. Katharina měla těžká zranění, ale žila. Zafixovali jí páteř a odletěli s ní do kantonální nemocnice v Churu.
 
 ## 10.
-
-  
 
 Maria s Magdou a Karolinou se už od rána koupaly a odpočívaly v akvaparku Tropical Island, vzdáleném padesát kilometrů po dálnici A13 jižně od Berlína. Přijely už včera večer, na webových stránkách akvaparku si předem pronajaly rekreační domek na víkend.
 
@@ -811,9 +725,7 @@ Lidé už se po ní dívali. Po letech poprvé v sobě měla divokost. Bylo jí
 
 Vracela se spěšně k lehátku a k dětem – po dlouhé době poprvé měla pocit, že jde přímo, bez jediné zacházky, a snad i vzhůru – a mezitím vytáčela Piotra. Potřebovala asistenci, někoho k ruce. Piotra, koho jiného. Ne, ještě někdo připadal v úvahu.
 
-\* \* \*
-
-  
+* * *
 
 Naposledy se viděli skoro přesně před deseti lety, když se společně vrátili z Čadu. Od té doby jim stačil internet. Psali si po celou tu dobu přinejmenším dvakrát týdně. Bylo v tom hodně sobeckosti, využívali jeden druhého; uspokojovali s pomocí korespondenčního vztahu své dvě přirozené, ale zdánlivě protichůdné potřeby; potřebu dojmu blízkosti i potřebu prostoru. Sloužili si coby berle, které nepřekážejí v chodbě. Nešlo ale o nic, za co by se měli stydět. Byli dětmi své doby a způsob, jakým záležitost vyřešili, byl z těch nejelegantnějších. Obešli se bez hádek, bez nenávisti, bez nevěr. Za těch deset let se navíc dokonale poznali; především právě své sobectví. Ale i vytrvalost a jen těžko odůvodnitelné sklony k melancholii. Jejich životy byly z nějakého důvodu ztichlé, jako když stisknete „mute“ na televizi či na receiveru. Mohl za to jejich společný pobyt v Africe? Nebo to zpřetrhání převodů mělo své důvody jinde? Často kolem těch otázek kroužili ve svých stovkách e-mailů a zpráv na WhatsApp. K žádnému jasnému závěru se však nikdy nedostali. Mysleli si o sobě, že jsou prostě dobří, příliš hodní. Kdo ví, jestli nakonec neměli pravdu?
 
@@ -835,9 +747,7 @@ A pak to řekla. Bez nejmenší změny tónu:
 
 „Pokud máš čas, přijeď a počkej na nás v hotelu.“
 
-\* \* \*
-
-  
+* * *
 
 Piotra Mariin telefonát zastihl ve Varšavě. Volala mu z parkoviště před Tropical Island. Bylo pod nulou a sněžilo, děti už nahnala do auta, do toyoty na hybridní pohon, kterou loni s Mathiasem koupili jako druhé auto místo golfa.
 
@@ -861,17 +771,13 @@ Měl Marii rád. Nevadilo mu, že tolik věcí ignoruje, patřilo to k ní. Mez
 
 „Evropa vlastně potřebuje panstvo,“ řekl Judytě, když zavěsil. „Šlechtu, ale přiznanou a hrdou. Šlechtu, která připustí, že její šlechetnost občas bolí druhé.“
 
-\* \* \*
-
-  
+* * *
 
 Nedoufal, že by Judyta chtěla jet s ním. Ale jela. Brala to jako víkendový výlet do Švýcarska, navíc chtěla být s Piotrem. Zároveň věděla, že se Piotr nepožene přes půl Evropy pouze kvůli Mariiným krásným očím, nýbrž také proto, že s Mathiasem má nevyřízené účty. Sama v tom sehrála menší roli. Když si tehdy při vyhlašování výsledků amerických prezidentských voleb Piotr četl Mathiasovy zprávy, na které neměl nejmenší chuť odpovídat, dostali se s Judytou k tomu, kým Mathias je, co přesně dělá pro LWK Loyalty a jaké s ním mám Piotr vztahy. Když pak Piotr ukázal Judytě Mathiase na Facebooku, Judytě připadalo, že toho frajírka, který stojí v centru nějakého historického města na elektrické dvojkolce Segway, zná od nich z nemocnice. „Jak Julius Caesar,“ konstatovala tehdy při pohledu na Mathiasovu profilovou fotografii. Pak zavolala na pár čísel a po deseti minutách mohla Piotrovi odpovědně říct, že Mathias v posledních měsících z varšavské fakultní nemocnice odvedl za zády LWK rovnou dva doktory.
 
 Dokud Mathias podváděl svoji ženu, Piotr to považoval za jeho věc. Nemíchal se mezi ně. Ve chvíli, kdy se dověděl o Mathiasově obcházení LWK, se Piotrův postoj zásadně změnil. Piotr čekal, až se Mathias vrátí z dvouměsíční dovolené (jak jinak tomu Piotr měl říkat?), pak si to s ním chtěl vyřídit. Chtěl ho vyhodit, ale nejen to; chtěl mu dát lekci, zničit ho, smést ho z povrchu země. Co k němu cítil, bylo hluboké pohrdání.
 
-\* \* \*
-
-  
+* * *
 
 Vyrazili v půl šesté večer Piotrovým tmavě šedým passatem. Z Varšavy to bylo do Broumova přes Vratislav skoro pět set kilometrů.
 
@@ -897,9 +803,7 @@ Mathias si promnul oči. Vypadal unaveně a staře. Měl opuchlé tváře, vybo
 
 Pokud však Mathias kdysi o Piotrovi uvažoval jako o postavě z Katharininých knih či jako o hlasu, který všechny její knihy násilně začleňuje do řádu světa, pak na něj poprvé ten dosud jen myšlený hlas promluvil právě v tomto okamžiku.
 
-\* \* \*
-
-  
+* * *
 
 Co přesně se stalo, mu pověděli až v autě. Jeho reakce byla nulová. Mlčel. I on už věděl, že je v sázce něco mnohem důležitějšího. Katharinina nehoda, a dokonce i její případná smrt, to všechno byly jen konsekvence.
 
@@ -914,8 +818,6 @@ Měl by zavolat Marii, ale neudělal to. Vypnul telefon, nasadil si na hlavu kap
 Vezli ho na zadním sedadle.
 
 ## 11.
-
-  
 
 Katharina zemřela už večer, několik hodin předtím, než do Churu dorazili Caiazzovi, kteří to sem z Cortiny měli nejblíž. Když se smutnou zprávu v nemocnici dověděli, ihned zavolali své dceři, která byla s dětmi teprve na jihu Německa.
 
@@ -950,8 +852,6 @@ Těšila se na Tomassa. Byla zvědavá, dokonce snad měla trému. Do nemocnice 
 Když zavěsila, podívala se v Messengeru na jméno hotelu, kde se měla potkat s Tomassem, a zadala hotel do navigace. Pak si vypnula telefon.
 
 ## 12.
-
-  
 
 Byl krásný. Maria nechápala, jak bez něj mohla žít. Zestárl, zešedivěly mu vlasy a vousy, ale měl stejnou krevní skupinu jako ona. Byl vysoký a tmavý. Na lidské kůži záleží, Maria si nemohla pomoct. Klidně ať jí všichni tvrdí opak, ona si to vymluvit nenechá: záleží na barvě lidské kůže, záleží na její struktuře a na tom, jaký o člověku vypráví příběh. Kůže je na člověku málem to nejdůležitější; kůže člověka definuje, je to hranice, za kterou začíná další svět.
 
