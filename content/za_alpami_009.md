@@ -5,15 +5,11 @@ contentType: prose
 
 ## 1.
 
-  
-
 V aplikaci, kterou ve svém mobilním telefonu značky Motorola používal k psaní textových zpráv, měl Mathias Walter k dispozici série miniaturních obrázků – „stickerů“ –, které mohl přiřadit ke zprávám či jimi text zprávy zcela nahradit.
 
 Obrázky byly v Messengeru seřazeny dle svého charakteru do deseti různých kategorií. Konkrétně se jednalo o kategorie „Happy“, „In Love“, „Sad“, „Eating“, „Celebrating“, „Active“, „Working“, „Sleepy“, „Angry“ a „Confused“. Co obrázek, to poměrně detailní kresbička jedné či několika postaviček, reprezentující konkrétní náladu nebo činnost. Šlo o mix komiksového výraziva a japonských emojis. Stickery však byly variabilnější: zachycovaly řeč těla a výrazy tváře. Ihned po jejich masovém rozšíření bylo zřejmé, že zdaleka nejvíc se budou užívat stickery tlumočící lásku; v praxi pak drtivá většina odeslaných „stickerů lásky“ nevyjadřovala ten nejhlubší lidský cit, dokonce ani neodbytnou sexuální touhu, nýbrž jakousi zcela abstraktní formu souhlasu a chuť ukončit zbytečně se protahující konverzaci.
 
-\* \* \*
-
-  
+* * *
 
 Mathias při psaní stickery používal jen málokdy s výjimkou jednoho obrázku ze série Shiba Inu, který pro změnu už asi rok pravidelně přidával téměř za každou odeslanou zprávu. Tenhle jeden sticker byl v poslední době bezmála Mathiasovým podpisem. Byl to Mathias Walter v kostce.
 
@@ -41,15 +37,11 @@ Co tím obrázkem Mathias Walter chtěl říct?
 
 ## 2.
 
-  
-
 Mathiasovi bylo sedmatřicet. Dominika Kurelová byla o patnáct let mladší a ještě studovala. Seznámili se v listopadu 2016 v Praze. Našli se na Tinderu, což tehdy byla nejrozšířenější seznamovací aplikace pro mobilní telefony.
 
 Tinder, který v té době fungoval už zhruba pět let, využíval možností GPS, globálního polohovacího systému. Aplikace dle zadání uživatele vyhledávala protějšky v dané geografické oblasti. Krom okruhu, v němž se má pátrat, bylo možné zadat pouze věk a pohlaví hledané osoby. Tinder po vyhledání protějšků postupně nabízel jejich fotografie doplněné o věk, společné zájmy a společné přátele ze sítě Facebook. Prim však hrály fotografie. Zalíbení či nezájem se vyjadřovaly přetažením fotografie doprava či doleva, šlo o takzvaný _swipe_. Swipe doprava, _lajk_, v aplikaci vyjádřený stylizovaným zeleným srdcem, znamenal zalíbení; swipe doleva či kliknutí na červený křížek znamenaly nezájem. Uživatelům, kteří si vzájemně udělili lajk, se podařila shoda, _match_. Ti si poté mohli v rámci aplikace začít dopisovat. V roce 2014 aplikace registrovala miliardu swipů denně. Sociálně kritičtí teoretici swipe přirovnávali k selekci vězňů na rampě po příjezdu do Osvětimi.
 
-\* \* \*
-
-  
+* * *
 
 Mathias byl Němec, který střídavě žil už osmým rokem v Praze. Česky rozuměl téměř všemu, ale mluvení mu dělalo obtíže; raději v Praze komunikoval německy a především anglicky. Dominika pocházela z jižní Moravy, do Prahy se kvůli škole přistěhovala teprve nedávno. Byl mezi nimi podstatný věkový rozdíl, ale podle odeslaných symbolů na Tinderu se líbili jeden druhému.
 
@@ -61,8 +53,6 @@ Dominika někdy kolem deváté hodiny ráno, když seděla ve vestibulu pražsk�
 
 ## 3.
 
-  
-
 Vyměnili si v angličtině pár informací a přesunuli se z Tinderu na jinou sociální síť, konkrétně na Facebook, kde si začali posílat krátké zprávy přes Messenger, a Mathias si už kolem půl třetí odpoledne dovolil za jednou zprávou poslat sticker, na kterém štěně shiba čichá k zadku druhého psa. V téhle fázi jejich vztahu shiba u cizího zadku mohl znamenat jediné.
 
 Dominika reagovala do minuty. V odpovědi mu poslala následující obrázek:
@@ -73,23 +63,17 @@ Sešli se ještě téhož dne. Náhodou se tak stalo devátého listopadu 2016 a
 
 ## 4.
 
-  
-
 Dominika si se třemi dalšími studenty pronajímala byt na pražském Smíchově na Praze 5, v kdysi průmyslové čtvrti, jejíž charakter se pomalu začal měnit až s výstavbou metra a proražením Strahovského tunelu na přelomu sedmdesátých a osmdesátých let.
 
 Mathias žil na Letné na Praze 7, u řeky Vltavy a na dohled od centra. Už mezi válkami zde bydleli bohatší Pražané, na rozdíl od Smíchova šlo o oblast striktně rezidenční. V době, kdy na Letné žil Mathias Walter, byla Letná čtvrtí pro všechny, kdo měli pocit, že svým myšlením a kulturností představují avantgardu. Na Letné sídlila Akademie výtvarných umění a další kulturní instituce. Byly zde velké parky, Letenské sady a Královská obora. Žít na Letné znamenalo žít v příjemné čtvrti plné malých obchodů s biopotravinami a farmářským zbožím a k tomu být v kontaktu s mládím, s aktualitou, s tepem doby. Třicetileté štíhlé prvorodičky a majitelky automobilu značky Volvo se tady s úsměvem na tváři dávaly do řeči s místním bezdomovcem. Roční dítě na prsou, psa u nohy. Mathias tenhle životní styl dobře znal z domova, ze starých spolkových zemí, a především z Berlína.
 
-\* \* \*
-
-  
+* * *
 
 Mathias Dominice po Messengeru navrhl, ať se potkají v baru kina Oko na Letné. Malé nezávislé kino s oblíbeným barem, jehož oficiální název zněl Bio Oko a které pod tímto označením bylo založeno už v roce 1940, přímo sousedilo s domem, ve kterém si Mathias před lety koupil malý byt v posledním patře. Stavba byla součástí bloku sedmi domů s kinem ve svém středu. Šlo o památkově chráněné budovy, které byly ukázkou prvotřídní funkcionalistické architektury. Mathias ze své terasy viděl přímo na vstup do kina. Na Dominičinu otázku, proč právě v Oku, Mathias odpověděl: „Bylas tam někdy? Je to hodně cool bar. A můj byt je hned za rohem:-)“
 
 Napsat, že bydlí za rohem, nevyžadovalo příliš odvahy. Shiba u zadku, shiba s vodítkem, to všechno byly logické kroky k shibovi v posteli. Tinder se brzy po spuštění změnil v nástroj takzvaného speeddatingu. Sloužil k rychlému uspokojování sexuálních potřeb.
 
 ## 5.
-
-  
 
 Zpozdila se. Mathias na ni musel čtvrt hodiny čekat. Když si konečně přisedla a on ji chtěl přivítat polibkem na tvář, způsobem, který byl v Německu běžný a který se za poslední roky rozšířil i v Česku, zvláště v kruzích, do nichž jistě patřila studentka školy s uměleckým zaměřením, Dominika ho dotčeně odmítla. Zvedla štíhlou ruku a dlaní naznačila, aby se víc nepřibližoval.
 
@@ -157,8 +141,6 @@ Mathiasovo cílevědomé monstrum v sobě mělo měkkost. Takový způsob dosah
 
 ## 6.
 
-  
-
 Do Čech Katharina a Clemens Walterovi v osmdesátých letech vždy jezdili jen na pár dní, malého Mathiase při svých výjimečných cestách za železnou oponu nechávali u Clemensova bratra v Darmstadtu. Žádnému z Walterů přitom v ČSSR nic nehrozilo, dokonce ani Katharině ne; od svatby s Clemensem měla německý pas, v roce 1984 se navíc nechala vyvázat z československého občan­ství. Nešlo o to, že by do ČSSR nemohli jezdit. Šlo o to, že tam prostě nejezdili. V létě 1988, rok před rozpadem východního bloku, se však Clemens poměrně narychlo rozhodl, že tentokrát do Čech poprvé pojednou všichni tři, přesněji řečeno čtyři, neb do rodiny patřila i desetiletá fenka labradorského retrívra jménem Eila. Jako důvod Clemens uvedl, že Mathiasovi už je devět let, což údajně byl nejvyšší čas, aby malý konečně krom Německa poznal i Čechy, rodnou hroudu své maminky.
 
 S tímhle odůvodněním přitom Clemens přišel docela nečekaně. Navíc nikomu nebylo jasné, jak to spolu vlastně souvisí, Mathiasovy deváté narozeniny a cesta do Broumova, která se tak narychlo musí uskutečnit a která má oproti minulosti trvat nikoli pouhých pár dní, nýbrž tentokrát celé dlouhé tři týdny. Proč jezdit do země, do které se Clemensovi vůbec jezdit nechce? Proč vykonávat tuhle královskou vizitaci, při které král neprožívá nic než těžce skrývané permanentní zhnusení?
@@ -189,9 +171,7 @@ Z Clemensova hlediska však Češi byli lidmi, na které si je třeba dávat po
 
 Po tom týdnu otcových rozkladů bylo jasné, že cesta do Broumova je cesta za trest. Vůbec ale nebylo jasné, kdo se tou cestou má trestat. Mathias se tam netěšil, ale musel jet.
 
-\* \* \*
-
-  
+* * *
 
 Na cestu se vydali Clemensovým rok starým volvem model 240 DL Wagon v okrové barvě. Eilu vezli vzadu v upraveném úložném prostoru, který byl od zbytku auta oddělený kovovým rámem s pevnou síťovinou. V druhé polovině kufru pak vyskládali zavazadla včetně velké nafukovací plážové matrace, což působilo až bláznivě, když si člověk uvědomil, že Československo je fakticky vzato nepřátelská země, navíc bez moře.
 
@@ -205,9 +185,7 @@ Na koupání došlo jen jednou, na koupališti v deset kilometrů vzdáleném M
 
 Velikou matraci a míč s reklamním nápisem Nivea na koupališti v Meziměstí ani nevyložili z auta. Na zdejším trávníku by obojí působilo absurdně. A pak se na konci druhého týdne stala ta hrozná věc.
 
-\* \* \*
-
-  
+* * *
 
 Ztratila se Eila. Doufali, že se jenom zaběhla. Zároveň už ale měli špatné zkušenosti s místními psy.
 
@@ -215,15 +193,11 @@ Když zjistili, že Eila není na zahradě, čekali asi hodinu, jestli se sama u
 
 Aby toho nebylo málo, musel ji najít zrovna Clemens. Vyváděl. Eila samozřejmě nebyla jen tak nějaký pes. Eila byla členem rodiny.
 
-\* \* \*
-
-  
+* * *
 
 Clemens chtěl Eilu odvézt zpátky do Wiesbadenu na pitvu. Karel mu to ale nakonec rozmluvil, s převozem mrtvého psa by na hranicích mohly být problémy. Nikdy se tedy nedověděli, jak Eila zemřela. Clemens však trval na tom, že ji někdo otrávil. Možná dokonce někdo z příbuzných. Kdo? Na tom vlastně tak úplně nezáleželo, protože Clemens měl jasno. Za Eilinu smrt podle něj mohla jeho žena. To ona přece spáchala ten neodpustitelný hřích, že se narodila v zemi podlidí a travičů psů. Miloval ji, ale za tohle ji musel nenávidět. S Eilou přece zemřel i kus Clemense, velká část jeho vzpomínek; s Eilou jako by se zřítil spojovací článek mezi jeho první ženou Hannou na jedné straně a Katharinou na druhé.
 
-\* \* \*
-
-  
+* * *
 
 „Ten pes mě vytáhl z nejhoršího!“ křikl Clemens, když se vraceli do pískovny s dekou, ve které chtěli Eilu přenést zpátky na statek.
 

@@ -5,8 +5,6 @@ contentType: prose
 
 ## 1.
 
-  
-
 Osmačtyřicetiletý spolumajitel továrny na výrobu trubkových motorů do stínící techniky Clemens Walter, ročník 1930, toho dne vyrazil na svoji pravidelnou procházku na vrcholek kopce Neroberg. Z dolního nerotalského parku tam vedla historická lanovka, na cestě k vrcholu krom venkovních lázní tajného rady Wilhelma von Opela stála i další známá wiesbadenská stavba, ruský ortodoxní kostel, který dal roku 1847 na památku své předčasně zesnulé manželky vystavět velkovévoda Adolf. Nezalesněné části kopce pokrývaly vinice, z vrcholku byl výhled na Wiesbaden i na Mohuč. Občerstvit se šlo v restauraci Der Turm. Clemensovy procházky s Eilou u nohy vedly od vily v Nerobergstrafte k ruskému kostelu, pak dál lesem na vrchol, kde se u horní stanice lanovky s Eilou napojili na takzvanou „Philosophenweg“, po které se po západním úbočí kopce vraceli dolů na Nerotal. O sobotách a o nedělích, kdy se po značených trasách na Neroberg vydávaly malé zástupy, Clemens volil různé zkratky, aby se výletníkům vyhnul.
 
 Byl střední postavy, sportovní typ. Na rozdíl od mnohých svých vrstevníků ještě stále měl husté vlasy, v Clemensově případě tmavě kaštanové barvy. Pod nosem měl pěkně střižený knírek. Ten na jeho tváři odpovídal upozorněním, která si už tehdy na své poštovní schránky lepili mnozí Němci: „Nevhazujte reklamní letáky, děkuji!“ Sebejistý, suverénní a pohledný člověk ve středním věku. K tomu finančně dobře zajištěný.
@@ -17,17 +15,13 @@ Ve Wiesbadenu se obecně žilo dobře, lidem z bohatého a zelení obklopenéh
 
 Nebohý Clemens. Do jeho hnízda v posledních týdnech spadla bomba, sám si ji tam shodil. Dosud nevybombardovaný Wiesbaden byl najednou v troskách. Všechno, co mu zbývalo, byla půlroční fenka labradorského retrívra, kterou si pořídil před třemi týdny. Eila, jeho láska, jeho sebeláska. Clemens při svých procházkách s Eilou nebyl dalek toho, aby se při pohledu na milého psího tvora sám nad sebou rozplakal.
 
-\* \* \*
-
-  
+* * *
 
 Hanna Walterová, rozená Krause, se s Clemensem dala rozvést. Clemens měl s Hannou dvě už dospělé děti a důvodem, proč Hanna požádala o rozvod, byly Clemensovy opakované nevěry. Ta poslední, při které Hanna řekla dost, byl Clemensův vztah s pětadvacetiletou sekretářkou firmy SOLIDline GmbH z Hattersheimu. Jmenovala se Kristin.
 
 Clemens po rozvodu s Hannou ztratil podstatnou část majetku, z vily se ale stěhovat nemusel a stejně tak mu zůstalo celých pětadvacet procent podílu ve firmě. Rozvedli se v lednu 1978. O pět měsíců později potkal na Nerobergu mladou Češku a s trudnomysl­ností byl konec.
 
-\* \* \*
-
-  
+* * *
 
 V Clemensově cizoložném vztahu se sekretářkou Kristin tehdy hrály zásadní role vilnost, alkohol, americká pornografie a především pýcha. Jeho budoucí žena o tom výbušném mixu později napsala:
 
@@ -38,8 +32,6 @@ Tolik část Katharinina textu publikovaného v roce 1996 v nakladatelství Gr
 „Americký pornoprůmysl na konci sedmdesátých let nebyl průmyslem v plném smyslu toho slova. Spíše amalgám průmyslu, chuti, vášně a lásky. Amalgám, který na pár magických let pokryl celý západní svět silným magnetickým pásem, oparem, závojem, buddhistickou májou. Můj budoucí manžel se toho všeho účastnil, nešlo se tomu vyhnout, ostatně účastnil se toho i Honza, svým způsobem. Byla to celospolečenská atmosféra, nikoho nelze vinit. Clemense tehdy, buď mu země lehká, jeho pták přiváděl k šílenství. Bez rozmyslu šel se svým stojícím pohlavím proti všemu a proti všem, proti desateru, proti své ženě Hanně. Nemohl si pomoct. Dokud jeho čurák stál, a že žádný čurák nestojí věčně, Clemens šel s dobou.“
 
 ## 2.
-
-  
 
 Na začátku jí přišel jako suverénní obr, jako hora, která střídá nížinu. Když ho o oné červnové sobotě uviděla vystupovat z lesíku nad Nerotalem, ihned bezvládně pomyslela na své oblečení a účes. Bylo to jednoduché, přímočaré. Sotva se po něm sama na půl vteřinky podívala, okamžitě instinktivně vyklidila pole a čekala, co on, co jeho pohled, co jeho soud. Vyšel na cestě přímo proti ní, kde se museli minout, projít těsně vedle sebe.
 
@@ -81,9 +73,7 @@ Zaplatili až po třetím pivu. Dolů sjeli lanovkou. Už v kabince lanovky ji 
 
 Clemens Mannův vrcholný román nikdy nepřečetl, ale svým způsobem mu ta kniha přirostla k srdci. Wiesbadenský továrník se v tomhle ohledu ničím nelišil od jiných movitých lidí, kteří měli v životě tolik štěstí, že si mohli na vlastní kůži užít luxusního švýcarského alpského letoviska, ohmatat si ho, zblízka, vlastníma rukama, a následně si ho i zamilovat. Každý, kdo kdy přijel do Davosu, se dříve či později dověděl o románu _Der Zauberberg_. Mezi hoteliéry a jejich návštěvníky v tomhle ohledu fungovala dokonalá synergie, všichni navíc Mannův román znali už ze školy. Velkoromán pak pro velkopodnikatele v Davosu představoval cosi jako nadstavbu, ještě luxusnější svět, v tomhle případě dokonce jen myšlený. Když se člověku nabízí něco takového, musel by být blázen, kdyby po tom neskočil! Láska k Mannovu románu prostě představovala bonus, kterým se bez vydání mnoha peněz a energie kompenzovaly vysoké davoské ceny. Ačkoli v tomhle případě – na rozdíl od lásky k různým davoským hotelům, zákoutím a pokrmům – šlo o lásku pouze na dálku, neb Mannův román většinou zůstal nepřečtený, nepolíbený, nevzatý do ruky.
 
-\* \* \*
-
-  
+* * *
 
 Do Švýcarska jeli Clemensovým volvem model 200 kombi, předchůdcem dvě stě čtyřicítky, kterou si koupil později v osmdesátých letech. Eilu Clemens nechal u známých na Nerotalu. Cesta se vlekla, často pršelo, ale jen jakoby z povinnosti, jako když si člověk doma napouští vodu do vany, když už se musí vykoupat, připadalo tehdy Kateřině.
 
@@ -95,9 +85,7 @@ Překvapilo ji, že pro ně zarezervoval a zaplatil dva pokoje. Přijeli pozdě
 
 Ta směsice pocitů na její straně! Urážka, úleva. A především zvědavost.
 
-\* \* \*
-
-  
+* * *
 
 Druhý den se povedl. Šli na výlet do hor. Clemens jí předtím v jedné prodejně v Davosu koupil téměř kompletní vybavení, boty a nepromokavou větrovou bundu značky Patagonia, všechno drahé a kvalitní.
 
@@ -135,9 +123,7 @@ Kateřina si pomyslela: „Nikoli Jan, nýbrž tohle je neproblematický člově
 
 Když se vrátili na hotel, vyspala se s ním a od té chvíle nebylo co řešit.
 
-\* \* \*
-
-  
+* * *
 
 Katharina později na tenhle večer často vzpomínala a říkala si, jak je nešťastné, že Mathias nestihl zažít otce v této jeho podobě. Když se jejich syn narodil, Clemensovi bylo devětačtyřicet. Když ho Mathias začínal vnímat, mohlo jeho otci být dost přes padesát. To už byl úplně jiný Clemens. Už ne ten King Kong, který stojí ve středu svého panoptikonu a animálně, vítězně se tluče do prsou. Už ne ten Clemens, kterého nikdo a nic nedokáže přivést ke smutku, zarazit ho těžkostí žití, zdemolovat ho, rozladit ho. Přivést Clemense ke smutku, zarazit ho těžkostí žití, zdemolovat ho, rozladit ho, to byl ještě v sedmaosmdesátém úkol pro bohy.
 
@@ -149,9 +135,7 @@ Mathiasovi v tomhle smyslu prostě osud nepřál. Mathias nestihl vidět to dů
 
 Pro Mathiasův život ta absence a utajení měly tragické následky. Mathias na své životní cestě shodou mnoha okolností, ale mimo jiné i kvůli špatné interpretaci svého otce, už po cestě vzhůru odkládal, co ještě ani neměl k dispozici. Zbavoval se opilosti a vášně, odmítal jedno i druhé, aniž kdy jakou vášeň či opilost zažil. Jako by syn svého otce špatně pochopil, jako by Mathias svým životem šel přímo proti smyslu textu či Clemensova života, jak ho Clemens do té doby psal. Zatímco Clemens žil a zemřel, Mathias nežil a nechtěl zemřít. Při souzení jeho životních rozhodnutí je třeba mít stále na mysli tento Mathiasův hendikep. Mathias by prostě měl vidět svého otce během onoho šestnáctého června 1978 v baru Grischa v Davosu, při té sklizni…
 
-\* \* \*
-
-  
+* * *
 
 Manželská krize a rozvod s Hannou ho možná připravily o jeden život, ale Clemens jich měl devět, i víc. Byl v osmačtyřiceti v plné síle, ještě neviděl za horizont, neviděl, jak příkře se za horizontem řečiště jeho života sklání a zužuje. Sportoval, kondičně běhal, v západním Německu tehdy přišel do módy jogging. Clemens byl na správné straně barikády, ba ne, Clemens měl to štěstí, že ve světě, který tehdy byl jedna barikáda a zeď vedle druhé, stál ve všech případech na té straně, která z jeho života dělala čirou radost.
 
@@ -168,8 +152,6 @@ Velmi dobře to je vidět na dobové pornografii. Katharina Walter, když psala 
 V tom psaní je hodně osobního. Katharina svoji knihu vydala v roce 2004, když ji bylo rovných padesát let.
 
 ## 3.
-
-  
 
 V srpnu 1978 se přestěhovala na Nerotal. Clemens dlouho neváhal. Kateřina ho vzrušovala, její tělo bylo jako ze sna. Clemens ho trhal a trhal a nemohl se nabažit.
 
@@ -193,9 +175,7 @@ Nemělo to vyznít pateticky. Kateřina se tím jen možná trochu neobratně po
 
 Taková řeč by se Clemensovi líbila. Ale nejde jen o to, že by se líbila Clemensovi. Jde o to, že Kateřina by se pod tuhle větu podepsala i o tři dekády později: „Ano, pod tohle se podepíšu. Ale byl to zmetek,“ dodala by.
 
-\* \* \*
-
-  
+* * *
 
 A Jana Rabase i s celým Offenbachem nechala jeho osudu, na dlouho s ním přerušila kontakt. S Clemensem v jejím životě přibylo strachu, obav i vytržení. Malé nepříjemnosti byly nahrazeny velkými nepříjemnostmi. Kateřina na Nerotalu bydlela ani ne měsíc, když Clemens začal váhat, zda neměl zůstat s Hannou. Po dvou dnech ho to naštěstí pustilo. Všeho bylo víc a bylo to všechno dobře, přesně tak, jak to tehdy chtěla.
 
@@ -205,9 +185,7 @@ Wiesbaden a nerotalský luxus jí rychle stoupaly do hlavy. Zároveň ale od Cl
 
 Clemens si myslel, že komunikuje s typickou slovanskou hlavou. Kateřina však tehdy měla víc hlav. Některé z nich zůstávaly dlouho skryté, z různých důvodů, mimo jiné i z jazykových. I ty skryté hlavy ale od začátku běžely spolu s celým pelotonem, někde vedle trati, paralelně. A v cílové rovince se k všeobecnému údivu ukázaly a vítězily. V Clemensově a Kateřinině společné budoucnosti by hodně problémů odpadlo, pokud by si Clemens včas uvědomil, jak se věci mají…
 
-\* \* \*
-
-  
+* * *
 
 Hned po nastěhování na Nerotal se jí Clemens pansky zeptal, co Offenbach, jestli se jí nestýská. Kateřina mu odpověděla:
 
@@ -235,9 +213,7 @@ Katharina k tomu později napsala: „Pornografie sedmdesátých let a lidské
 
 Tenhle text už psala její finální hlava, česko-německá, je to vidět na první pohled. Katharina byla v letech po pádu berlínské zdi k Německu kritická. Byl to útok na Clemense, zároveň však šlo o docela upřímný záznam toho, k čemu její finální hlava v těch letech došla.
 
-\* \* \*
-
-  
+* * *
 
 Clemensovo chování sice bylo kontinuálně hrubé, jeho řeči a tak dále, Kateřina ale v jeho siláckých projevech dokázala vidět i cosi jemného, cosi, co dobře sloužilo jako kompenzace za pozdější neoddiskutovatelné postelové hrubosti. V žádném případě přitom nešlo o to, že by brala za vděk málem (že by jí ke spokojenosti stačilo, že velké utrpení je na chvíli vystřídáno menším utrpením, vynucený orální sex řečmi), ne, při těch řečech, které byly nejen silácké, ale pro Kateřinu i autenticky jemné, se krom sexu rozvíjela a rodila také… Láska?
 
@@ -249,9 +225,7 @@ Neb pro člověka, jakým tehdy byla Kateřina, existuje jen jeden čas, ten, kt
 
 Opět to bude znít krutě, ale Kateřina v té době před pomyšlením na svoji maminku dávala přednost činorodému souložení. Zcela legitimně, zcela právem. Než aby myslela na Jana, radši se nechala dusit Clemensovým penisem. Nic jim nebránilo v tom, aby si užívali života. Bránili by se tomu? Proč by to dělali?
 
-\* \* \*
-
-  
+* * *
 
 Milovala ho? Proboha, a jak a kdy to mohla vědět? Ta otázka v úvodu je položena špatně. Nejde o to, zda ho milovala. A nejde o to, zda ho milovala už tehdy, nebo až poté, nebo snad vůbec. – _Jak a kdy to proboha mohla vědět?!_
 
@@ -260,8 +234,6 @@ Katharina po letech soužití s Clemensem napsala: „Život je jedna nikdy nek
 Tohle se jim s Clemensem podařilo. Hlavně pokud jde o to odkládání zisků, dodali by z různých důvodů oba dva v půli roku 1988 nebo skoro kdykoli později.
 
 ## 4.
-
-  
 
 Koncem září 1978 se ho Kateřina zeptala, zda si nepořídí dítě. Přestože měl dvě dcery, Clemens tuhle otázku slyšel úplně poprvé.
 
@@ -275,9 +247,7 @@ Když se ho Kateřina ptala na dítě, nečekala jednoduchou a rychlou odpově�
 
 Stárl. Pohodlněl a začínal se bát. O ničem z toho ale ještě nevěděl. Neměl k dispozici ještě ani žádné vnímatelné první signály. Jeho tělo fungovalo dobře. A zmiňovat v tom druhém pololetí roku 1978 pohodlnost, to už by dokonce zavánělo parodií. Dál se bez nejmenších komplikací věnoval joggingu, sexu, golfu a tenisu. Vedle toho rozvod s Hannou, hádky s dcerami, dobrodružství s mladou Češkou, která mu mohla ze zlaté klece kdykoli frnknout a letět za lepším. Pohodlnost, to bylo to poslední, co by Clemense napadlo, pokud by vcelku pohlédl na svůj tehdejší život. A přitom skutečně stárl, pohodlněl a začínal se bát. To, co se na první pohled mohlo jevit jako v řadě další megalomanie, ve skutečnosti bylo pravým opakem: výrazem nejistoty či z jiného úhlu první hrou na jakous takous jistotu. Holka z Východu mu jen tak neuteče, dokud do ní bude vrážet peníze, mohlo si cosi v něm myslet. Přestěhoval si ji k sobě. Malá domů, zatahování závěsu, umenšování se. A dítě mělo být další pojistkou.
 
-\* \* \*
-
-  
+* * *
 
 Hanna mu stejnou, nebo aspoň trochu podobnou otázku nikdy nepoložila. Seznámili se v roce 1953. Německo tehdy ještě nebylo členem NATO, tím se stalo v roce 1955, ani Evropského hospodářského společenství, kam vstoupilo ještě o dva roky později. Byla to země, která se snažila zapojit zpátky do euroamerické civilizace a zapomenout na válku, kterou ale bez ustání cítila v zádech. Německo tehdy muselo být opatrné, pokorné, občas i plačtivé; a velmi opatrní, občas plačtiví a do sebe uzavření v mnoha ohledech byli i mnozí tehdejší Němci. Vcelku se pracovalo na zapomenutí a na obnově. Pláči se ale občas prostě nešlo vyhnout.
 
@@ -301,9 +271,7 @@ Hanna si tedy spolu se sta tisíci mladých německých žen kladla složitou ot
 
 Clara se narodila roku 1954, Natalia o dva roky později. Ani druhé těhotenství přitom nebylo plánované. („Clemens měl prostě hodně velkou smůlu. Nebo štěstí. Ty dcery se mu v každém případě povedly. Zdá se, že žijí.“)
 
-\* \* \*
-
-  
+* * *
 
 Když se mu tehdy ve čtyřiapadesátém narodila Clara, bylo mu pouhých čtyřiadvacet. Byl mladý, nezkušený, v podstatě úplný jouda. Tak aspoň sám sebe viděl při pohledu zpátky. Navíc se musel starat o praktické věci. V těch letech si teprve připravoval životní dráhu. Stál na jejím počátku. Musel zvednout kuželky, spočítat a vyčistit koule, zařídit si účet, přezout se do správných bot. Skončil školu, rozjížděl byznys, v Rüsselsheimu u Opelu vydržel jen chvíli. Clara a o dva roky později Natalia přišly do rozdělané práce. Clemens tehdy byl orlem, který roztahuje křídla a hrne pod ně všechny své radostné starosti. Škola, firma, dcery, a šlo to, ta křídla, o kterých si myslel, že už končí, že už není možné je dál roztáhnout, ta křídla byla bez konce.
 
@@ -317,9 +285,7 @@ O dvacet let později už by řekla něco jiného:
 
 „Neměl zkušenosti. Měl věk.“
 
-\* \* \*
-
-  
+* * *
 
 To ale neznamená, že se Clemensův plán nemohl podařit aspoň v dílčích ohledech. Co se povedlo, byla dvojměsíční cesta do Řecka, na které se dítě mělo počít. Byla to dobrá ukázka, co přesně si Clemens od nové situace sliboval. Tehdy před dvaceti lety, když čekali Claru, byl prací přikovaný ve Frankfurtu. Teď si mohl dovolit cestovat, navíc po boku krásné a exotické mladé ženy.
 
@@ -327,17 +293,13 @@ Vyrazili přesně podle plánu, vlastně šlo podle plánu všechno. Pokud by n�
 
 Dva týdny zůstali v Athénách, bydleli v tříhvězdičkovém hotelu ve čtvrti Omonia, jezdili se autobusem koupat na městskou pláž Alimos. Po dvou týdnech sedli na trajekt a přepluli na ostrov Lesbos. Domů se vraceli v polovině listopadu. Před odletem ještě asi čtyři dny zůstali v Athénách, opět ve stejném hotelu, a co Kateřinu i Clemense nadchlo, znovu se koupali, moře ještě stále bylo teplé a vzduch měl dobře přes dvacet stupňů.
 
-\* \* \*
-
-  
+* * *
 
 Mathias se narodil v parném červenci 1979, k početí tedy muselo dojít někdy během pobytu na Lesbosu. V červenci 1979 už Clemens s Kateřinou byli manželé. Brali se narychlo, aby to stihli před Mathiasovým narozením. Tehdy tomu nikdo nerozuměl, lidi si klepali na čelo. V kontextu rýsujícího se Clemensova životního oblouku to rozhodnutí ale přece jen smysl dává.
 
 Mladická nerozvážnost. Tak o tom později ironicky mluvila Katharina a myslela tím samozřejmě Clemensovu nerozvážnost. Později ho začala podezírat, že si tu svatbu objednal na truc: „Nedělal to ani tak kvůli mně, jako kvůli Hanně a jejím nacistickým rodičům, kteří tehdy ještě jako zázrakem – díky milosrdnosti spojeneckých vojsk! – byli mezi námi. Co jim Clemens nemohl říct a udělat v pětadvaceti, kdy se jich bál, udělal jim teď v čerstvých devětačtyřiceti. Dokonce je na tu svatbu pozval, nepřišli, ale našli by to snadno. Brali jsme se přesně tam, kde si bral Hannu. Nerotal, kopec, ten ruský kostel, byly to jeho lásky, procházel se tam, potkali jsme se tam, i to je pravda… Co je zvláštní a co aspoň pro mě dokonale ilustruje to největší mystérium života, je fakt, že ani teď v pětačtyřiceti neumím říct, jestli jsem byla úplná kráva, když jsem na ten provařený kostelík přistoupila… Když si tu situaci znovu představím, je to ta první myšlenka. Byla jsem úplná kráva. Po chvilce ale, sotva na sebe začnu být náročnější, musím říct, že konkrétně třeba v tomhle jednom případě nevím. Copak jsem tehdy někde ve Frankfurtu nebo kolem Frankfurtu měla nějaký svůj kostel, svoje místo? A pokud si to Clemens přál právě na Nerobergu, nebyla bych úplná kráva, pokud bych chtěla něco, nevím co? Když jsem nevěděla co…? Navíc přece nakonec nešlo o místo. Co bylo mnohem důležitější, a v tom měl Clemens pravdu, to byli moji rodiče. Otec zemřel, když jsem se válela na Lesbosu na pláži. Dověděla jsem se to až po příjezdu zpátky do Wiesbadenu, navíc od Jana. Mobilní telefony neexistovaly, neměla jsem šanci dovědět se to dřív… O půl roku později jsem si brala Clemense. Moje máma to věděla, zavolala jsem jí, seděla v Broumově a čekala… Na rozdíl od Clemense si nemyslela, že je možné cokoli udělat, psal se rok 1979, cestu do Německa by jí tehdy nepovolili. Seděla v Broumově a čekala, až se někde daleko vdám.“
 
-\* \* \*
-
-  
+* * *
 
 Jan Rabas se po tom smutném telefonátu a po Kateřinině svatbě na dlouhé roky odmlčel. Když se pak o něco později narodil Mathias, Kateřina si občas říkala, jestli se k Honzovi tahle informace donesla. Jak by to asi komentoval, ji nezajímalo.
 
@@ -345,17 +307,13 @@ Bylo jí pětadvacet a měla dítě. Jméno Mathiasovi vybral víceméně Cleme
 
 Mathias byl zdravý silný chlapec. Kateřina na něj sice často hleděla úplně bez lásky, ale s tím si uměla poradit, byla to v zásadě drobnost: „Tak nějak jsem to asi tušila už před porodem, byla jsem od přírody docela skeptická. Vysmívala jsem se konceptu bezdůvodné lásky. Vysmívala jsem se biologii i sektářství. Jenomže koncept nepodmíněné lásky člověku bohužel nedává na výběr. Biologie, nebo sekta? Pokud mám takovou možnost volby, s dovolením odmítnu jedno i druhé.“
 
-\* \* \*
-
-  
+* * *
 
 Ta skutečně první velká komplikace přišla až měsíc a půl po porodu. Clemens na tři dny bez jediného slova odešel z domu. Nepohádali se, nic takového. Clemens odešel v plné formě, Clemens docela šťastný otec, který rodičovství nechává z velké části na své novomanželce. Tedy prostě jen šťastný člověk.
 
 Když se toho prvního večera nevracel, nevěděla, co má dělat. Neměla komu zavolat. Z Clemensových rodičů už také žila pouze maminka. Ta sice dokonce byla na Clemensově druhé svatbě, přijela z Hanau, kde bydlela. Jenomže zrovna bezmála sedmdesátileté Emmě Kateřina zavolat nechtěla, k tomu by se nesnížila. Už na svatbě se Emma tvářila tak, že z jejího výrazu každý ihned poznal, že si říká, jestli se jí to celé náhodou nezdá. Kateřina jí teď přece nemohla volat s tím, že se ztratil Emmin devětačtyřicetiletý syn a jestli náhodou Emma neví, kde je.
 
-\* \* \*
-
-  
+* * *
 
 Noc byla hrozná. Na krku měla krom měsíc a půl starého dítěte i celou nerotalskou vilu, jejíž rozlehlé prostory s vysokými stropy a čistě bílými zdmi bez jediného obrazu, když v nich poprvé byla bez Clemense, působily úplně jinak než dřív; co se přes den a večer s Clemensem zdálo být funkční a _chic_, na ni teď jen vrhalo nesmysl­ný chlad. Krom toho měla na krku ještě tu děsnou Eilu.
 
@@ -365,9 +323,7 @@ Pokud nás v případě dětí vede rodičovské sektářství nebo biologie k�
 
 „Je to neuvěřitelné, ale psovodi si skutečně myslí, že jejich pes může udělat cokoli, a jejich lásku že to stejně nezmění. Většina psů naštěstí nejsou vrazi. Pes těžko založí a otevře koncentrační tábor, těžko zplynuje dvacet milionů lidí. Psovodi díkybohu nemusejí řešit všechny tyhle nepříjemné otázky. Co jim ale uniká, je to, že pes na to prostě nemá. Pes nezplynuje dvacet milionů lidí, protože na to nemá kapacitu, mozek, svaly, železniční tratě a logistické vybavení. Což ale v nejmenším neznamená, že by to neudělal, pokud by na to měl. Zlo, ať už lidské, nebo psí, se přece nepoměřuje svojí velikostí, ale tím, jak moc se v rámci toho kterého zvířecího druhu vykonané nebo jen zamýšlené zlo blíží svému možnému maximu, které je samozřejmě jiné u lidí a jiné u psů. Psí dobrotu a vlastně i nějakou zásadní odlišnost mezi psy a lidmi by šlo obhájit až ve chvíli, kdy dostaneme důkaz, že nějaký pes vymyslel koncentrační tábor, ale neudělal ho. Potřebujeme důkaz, že existuje pes, který zosnoval promyšlenou trojnásobnou vraždu, načež se z nějakých důvodů zdržel svého jednání. Pak můžeme začít chovat psy a milovat je… V základu je to prosté. Psovod miluje psa pod podmínkou, že ten zůstane němý, debilní, méněcenný.“
 
-\* \* \*
-
-  
+* * *
 
 Půl jedenácté večer a Clemens nikde. Noci byly v polovině srpna teplé, Eila ležela dole na terase. Kateřina v jednu chvíli s malým na ruce sešla dolů. Plakal, musela ho tišit. Otevřela dveře na terasu a pustila Eilu přímo do haly, do čerstvě zakázané zóny. Nevěděla, co ji k tomu vedlo.
 
@@ -377,9 +333,7 @@ Velkopanské chování a panovačný výraz najednou v Kateřině probraly kde
 
 Eila zakňučela a nějakým způsobem odešla zpátky na zahradu. Neútočila. Nerevanšovala se. Viditelně neměla žádné zranění, žádnou otevřenou ránu. Při chůzi se nepotácela. Vykazovala jen určité známky překvapení, snad i trochu pocitů bezpráví. Působila jemně, roztomile. „Jakým přesně způsobem odešla, a především co si tehdy sama v sobě odnášela, to ale dodnes nevím,“ napsala později Katharina.
 
-\* \* \*
-
-  
+* * *
 
 Druhý den už byl překvapivě mnohem lepší. Téměř se nevyspala, vstala však s energií a optimismem. Udělala si snídani a postupně si prošla celý dům. Halu s kuchyní v přízemí, ložnici a pokoje v patře. Na všechny ty místnosti se dívala poprvé zcela novým pohledem. Pak se ukázalo slunce, Kateřina vzala malého do náruče a sedli si na chvíli na zahradu. Naštěstí kojila, pro Mathiase tedy jídlo měla. Pro sebe ještě našla něco starého v lednici. Dala si na terase kávu, teď měla chvilku klidu. Malý usnul vedle ní v kočárku.
 
@@ -389,9 +343,7 @@ Její nálada se s každou další minutou lepšila. Zvykla si na samotu, najed
 
 Její štěstí v těch chvílích a vůbec po celý následující den a noc, až do Clemensova příjezdu, plynulo z otazníku. Z jediné jednoslovné a zcela jasné otázky. O odpověď přitom nešlo, opravdu šlo jenom o tu otázku, která se jako všepohlcující příkrov vznášela nad onou šedesátkou hodin, během nichž sama čekala doma na Nerotalu a nevěděla, co se děje. Ta otázka, kterou si Kateřina docela nechtěně v duchu pokládala, zněla: „Zemřel?“
 
-\* \* \*
-
-  
+* * *
 
 Vrátil se třetího dne odpoledne. Kateřina slyšela elektrický otvírač brány a pak štěrk pod jeho volvem.
 
@@ -399,9 +351,7 @@ Vyšla z domu a čekala na něj s malým v ruce na podestě. Nechávala to n
 
 Na otázku, zda zemřel, už odpověď měla. Spolu s odpovědí na tuhle otázku se ale před Kateřinou ihned vynořila další otázka, jejíž přítomnost už na rozdíl od té první nevzbuzovala žádnou radost. Byla pouze znepokojivá: „Přijde stařec, nebo přijde mladík?“
 
-\* \* \*
-
-  
+* * *
 
 Brala si ho a dítě s ním měla z lásky. Neuvěřitelně jí rozšířil obzory. V sexu. Dále co se týče cizího jazyka, němčiny, celého cizího světa. Vzal ji do Řecka, v budoucnu ji jistě vezme na desítky dalších míst; v jakém jiném případě mluvit o rozšiřování obzorů než v tomto. Fakt, že si mu řekla o dítě a o sňatek, byl výrazem vděku za tohle zmnožení světa a obzorů, které jí poskytl on. Rozmnožovali se. Pokud on Kateřině dokázal nabídnout stovky cest, stovky možností, stovky nových pohledů na věc, Kateřina mu dá dítě, a sňatkem pak všechnu hned dvojnásobnou mnohost opět spojí v jedno. Dávalo to smysl. Spíše než o lásku šlo o přirozený běh věcí.
 
@@ -409,9 +359,7 @@ Určitou roli v jejím návrhu a v tom, že se do dítěte a do svatby tak h
 
 Něco tak složitého, jako je láska mezi dvěma lidmi, bohužel nelze vysvětlovat jednoduše. Je to stejné jako s nakopnutou Eilou; stejně jako tehdy, když po Kateřinině kopu nebylo vidět, s čím nakopnutý pes odchází, i v případě vztahu dvou lidí nelze jít dál než k domněnkám. Milenci, sotva se jimi stanou, ihned stvoří němou jednotku. Nikdo neví, co si odnášejí, co nesou, a zda je to láska. Můžeme na ně hledět a domnívat se, víc nedokážeme. Co přesně se děje, neví vůbec nikdo. A samozřejmě ani oni ne.
 
-\* \* \*
-
-  
+* * *
 
 Brala si ho z lásky, na tom se po těch dvou dnech, kdy ji nechal beze slova samotnou na Nerotalu, nic nezměnilo. Problém byl jinde. Nezemřel, o tom se sám po dvou dnech uráčil přinést důkaz. Ale člověk přece nemusí zemřít, aby najednou přestal být. Nezapomněla na něj, nepřestala ho milovat, nic mu nevyčítala. Přesto však měla pocit, že pro ni zmizel, že se ocitl v prázdnu, ve vakuu, a vlastně přitom ani nebylo jasné, jestli je to jeho chyba. Možná za to mohl jen jeho věk a Clemens k tomu přidal pouze maličkou chybu tím, že se svým věkem neuměl pracovat, postavit se mu. Nebo se mu naopak přirozeně podvolit.
 
@@ -419,17 +367,13 @@ Vzala si ho, když mu bylo devětačtyřicet. Teď po jeho dvoudenní absenci al
 
 Jak s ním mohla a měla mluvit, jak se ho měla dotknout, ona, jeho stejně nehybná budoucnost?
 
-\* \* \*
-
-  
+* * *
 
 Šel k ní s hlavou trochu sklopenou. Nikoli ale studem, to viděla na první pohled. Měl převahu a nesl špatné zprávy. Otravovalo ho to. Když si sundal sluneční brýle a položil koženou cestovní tašku, všimla si, že má na tváři lehce začervenalou kůži, jak se mu to vždy stávalo v prvních dnech na horském sluníčku. V tu chvíli ji napadlo, že byl v Davosu.
 
 Pohladil malého po vláscích, stále beze slova.
 
-\* \* \*
-
-  
+* * *
 
 O minutu později už spolu seděli v hale. Cítil se jako u výslechu, aniž k tomu měl jediný důvod. Dal si pivo, plechovka mlaskla, dala mu radost.
 
@@ -473,9 +417,7 @@ Už od jejích prvních slov kroutil hlavou, nešlo tedy o odpověď na její p
 
 „Hanna,“ řekl.
 
-\* \* \*
-
-  
+* * *
 
 Jejich společný život se od té doby odvíjel po dráze, která na první pohled mohla působit jako kruhy, v jejichž rámci se s větší či menší pravidelností střídala období klidu s obdobími Clemensových nevěr. Kruh ubíhal, po určité době se vždy stočil k Hanně nebo k jiné milence. I z toho se mohla stát a stala se každodennost. Jejich vztah byl pevný, nerozbitný, uzavřený stejně jako jejich svatební prsteny. Důvody zvláštní pevnosti tohoto jednoho vztahu přitom byly stejné jako u všech lidí: byli spolu. Jejich vztah byl pevný jen proto a jen do té doby, dokud spolu byli. Žádné složitější vysvětlení v tomhle případě není třeba hledat.
 
@@ -483,15 +425,11 @@ Kateřina Clemensovi vytvářela dobré zázemí pro jeho podniky. Starala se o�
 
 Jejich společný život se od té doby odvíjel po dráze, která na první pohled mohla působit jako kruhy. Tyhle kruhy však v žádném případě nezůstávaly na místě.
 
-\* \* \*
-
-  
+* * *
 
 Malému Mathiasovi byl zhruba rok a půl, když si Clemens tuhle skutečnost poprvé uvědomil. Samozřejmě si ihned v duchu zkonstruoval tisíc a jedno vysvětlení, proč o žádný důkaz nejde, tudíž že všechno je dál přesně tak, jak to bylo dosud. V Clemensovi, který mluvil, byl ale ještě jeden Clemens, ten, který pedanticky zaznamenával každý sebemenší záchvěv a změnu, a následně je šikovně měnil v jen nenápadnou podrážděnost.
 
-\* \* \*
-
-  
+* * *
 
 Po svatbě spolu spali jen málo, v tom měl Clemens pravdu. Kateřina čekala Mathiase, pak se jim Mathias narodil, na sex neměla chuť zas z jiného důvodu.
 
@@ -507,9 +445,7 @@ To bylo fér, takto si rozdali karty a s těmito kartami se pak mělo hrát. T
 
 Clemens ale od určité chvíle na přirozený běh věcí nestačil. Nebyl schopný dostát jeho náročnosti ani udržet jeho tempo.
 
-\* \* \*
-
-  
+* * *
 
 Poprvé se to stalo už někdy týden po jejich seznámení. Tehdy si ji ještě vozil na Nerotal, bydlela oficiálně dál s Janem v Offenbachu. Vnímal ji jako hračku, jako kus nemluvného nábytku, skříň, u které bez ustání potřeboval zkoušet dveře či panty. Lezl do ní několikrát denně, prozkoumával ji, voněl k ní, vlhčil ji. Pokud se v jednom z těch mnoha případů stalo něco nečekaného, pokud se mu do ní třeba výjimečně nepodařilo vejít, protože jeho penis nebyl dostatečně ztopořený, nevadilo to. Ani on si z toho nic nedělal.
 
@@ -517,9 +453,7 @@ Stávalo se to i v Řecku. Potřetí nebo počtvrté za den už do ní vcháze
 
 V době po Mathiasově narození a po Clemensově dvou dnech s Hannou v Davosu už ale šlo o něco jiného. Omrzela se mu. Tak si tedy aspoň jeho problémy s erekcí vykládala Kateřina. Myslela si, že se mu nechce, nikoli že nemůže.
 
-\* \* \*
-
-  
+* * *
 
 Na tom by vlastně nic nebylo. Kateřina to chápala a byla ochotná bez dlouhých komentářů přijmout fakt, že přirozený běh věcí se přirozeně změnil. Z její strany mělo jít o velké gesto, o projev snad až přílišné rozumnosti a pochopení. Tělo se prostě okouká, fyzická vášeň se už po několika měsících otupí, jinak by to ostatně bylo k zbláznění. Přesně tak mu to řekla:
 
@@ -549,23 +483,17 @@ Zabolelo ji to. Vzbouřila se a přestala se bouřit.
 
 Bouřila se mezi vzbouřením se a klidem. Pokoušela se vyhrabat zpátky na nohy, další útok už naštěstí nepřicházel, naopak, Clemens se teď trochu snížil v kolenou a s viditelnou lítostí, či spíše se snahou přetočit čas se jí snažil sám pomoci zpátky na nohy, jako by čas šlo přetočit právě do této fáze.
 
-\* \* \*
-
-  
+* * *
 
 Co se dělo v následujících hodinách, dnech a letech, se do prostoru a do času rozbíhalo z jediného bodu, z toho asi nejdůležitějšího rozhodnutí v Kateřinině životě. Ta první chvilka, ona mikrosekunda, během které se mohlo stát cokoli, mikrosekunda, která vůbec nebyla v Kateřinině moci, a která si přesto Kateřinu nějakým pro člověka nepochopitelným způsobem vzala za základ, stala se úběžníkem všeho, co přišlo potom.
 
 Spolu s tímto Clemensovým útokem začala další životní fáze, která jako by celá pramenila právě v tomto útoku a v tom, co se k němu v prvních vteřinách navázalo z Kateřininy strany; bylo to, jako by se na chvíli zastavil dech, a tento dech, nepřítomný, hluchý, jako by vystřelil ven, jako chapadlo zraněné chobotnice, jeden záhyb napůl rozseknuté medúzy, opatřené přísavnými body, a tam, kam tento bolestí prostoupený záhyb stačil, tam, kam náhodně v bolesti vystřelil a došel, tam jako by k sobě tento záhyb přisál to, co se poté stalo Kateřininým rozhodnutím. Její rozhodnutí pramenilo v ní, bylo to její chapadlo, její záhyb, její rozhodnutí, ale ona sama jako by ho neměla v moci. Cosi se rozhodovalo místo ní; nebyla to úplně ona, ale nebyla to ani náhoda. Kateřinina podstata, dosud skrytá a nevědomá, vystoupala v té vteřině na povrch a ukázala, co chce.
 
-\* \* \*
-
-  
+* * *
 
 Clemens několik dlouhých dní čekal na rozhřešení, málem ji začal nosit na rukou a modlit se k bohu. A přitom mohl být klidný. Pokud mu totiž šlo o to, co bude dál a jestli s ním Kateřina zůstane, pak bylo dávno rozhodnuto. Odpuštění a to všechno, co máme ve zvyku zveličovat, je ničím v porovnání s oním prvním výstřelem v agónii svíjejícího se chapadla. Zde vzniká skutečnost, zde pramení následky.
 
-\* \* \*
-
-  
+* * *
 
 Tento útok zůstal až do Clemensovy smrti v lednu 1998 jediným svého druhu. Ačkoli žil velmi setrvačný život, pokud šlo o stále se vracející motivy a činy, tento útok zůstal osamoceným aktem.
 
@@ -581,9 +509,7 @@ Kateřina prostě nakonec byla ochotná i tuhle jednotlivost zasadit do přiroz
 
 Clemens ihned pochopil, že tentokrát jde o něco jiného, než o co šlo před časem, když během oné davoské aféry s Hannou Kateřina použila skoro tutéž větu. Pochopil to a dával si pak v tomhle jednom bodě pozor.
 
-\* \* \*
-
-  
+* * *
 
 Začali spolu hrát tenis, k nejbližším kurtům to měli tři minuty pěšky. Nerotalské kurty ale neměly nic společného s kurty v klubu „Oberrad 05“ v Offenbachu. Na Nerotalu šlo o životní styl, nikoli o sport. O drinky aperol spritz, nikoli o prašnou antuku.
 
@@ -596,8 +522,6 @@ Začínal mít své drobné radosti a zvyky a Kateřina se smutkem sledovala, 
 O dvacet let později totiž Katharina slyšela dávno posekanou trávu růst. To už byl Clemens po smrti, Mathias studoval na vysoké škole. Fakt, že ani Clemens, ani Mathias na přelomu tisíciletí nemohli promluvit o tom, jaký byl jejich společný rodinný život v roce 1980, z Kathariny s konečnou platností učinil vítězku. Po Clemensově smrti to byla ona jediná, kdo měla přístup k jejich společné minulosti. Vymýšlela si, přeceňovala se. Mathias měl často pravdu, když jí vyčítal, že blouzní a fabuluje.
 
 ## 5.
-
-  
 
 V květnu 1981, když byly Mathiasovi skoro dva roky, si Kateřina našla novou partnerku na tenis, dvaatřicetiletou Polku, která také žila na Nerotalu. Jmenovala se Malgorzata Majewska, domácky Gosia, a měla docela podobný osud jako Kateřina.
 
@@ -613,9 +537,7 @@ Přeměna takového rozsahu na Kateřinu tehdy nepůsobila jako zrada ideálů, 
 
 O pár let starší Gosia na Kateřinu ihned měla silný vliv. Na kurtech Kateřinu po pár měsících naučila tak kvalitní podání, tak rychlé, dobře zamířené a s takovým spinem, že ho prakticky nešlo vrátit. Gosiiny míčky při podání pravidelně dopadaly do úplného růžku výseče a vyskakovaly pryč z kurtu.
 
-\* \* \*
-
-  
+* * *
 
 Gosia s Kateřinou spolu mluvily německy a jejich rozhovory jim dělaly dobře. Pravidelné vyměňování si míčků na kurtu se střídalo s pravidelnou výměnou pohledů na Německo, na Wiesbaden, na situaci doma v Polsku a Československu.
 
@@ -629,9 +551,7 @@ V Polsku tehdy byla novinkou Solidarita, která vznikla v roce 1980 v gdaňsk
 
 Seděly v proutěných křeslech, v rukách chlazený aperol spritz, který jim zaplatil Clemens. Seděly na samém vrcholu, na absolutním výsluní. Nestínil jim nikdo a nic. Byly mladé, silné, akceschopné. Pokud svět v těch chvílích přál někomu jinému někde úplně jinde, pokud v těch chvílích svět ležel u nohou třeba Clemensovi a Hansovi, pak to v nejmenším nebylo vidět. (Pokud by třeba kdesi ve vesmíru skutečně byl ještě jeden jiný svět a pokud by ten svět v tu chvíli docela výjimečně mohl nahlédnout na naši Zemi, viděl by, a vůbec by o tom nepochyboval, že svět, o kterém jsme uvyklí říkat náš, patří Gosie Majewské-Schillerové a Kateřině či Katharině Walterové. A pokud by tomuto nahlížejícímu světu někdo z našeho světa přece jen naivně ukázal prstem jinam, třeba k čtyřiapadesátiletému Hansi Schillerovi, který jistě má své malé radosti, nahlížející svět by bez ohledu na bonton okamžitě vyprsknul smíchy.)
 
-\* \* \*
-
-  
+* * *
 
 Clemens s nimi hrával jen výjimečně, přece jen už ho trochu bolela záda. Navíc vůbec nerozuměl tomu, o čem se Kateřina s Gosiou baví. Byl dlouhodobým voličem středo-pravicové FDP, která ve svém programu kladla důraz na minimální zásahy státu do života občanů, nedotknutelné soukromé vlastnictví a volný trh. Rozklad východního bloku v roce 1989 Clemens vnímal jako definitivní souhlas se správností těchto idejí. Prostě už od mládí věděl, že celý svět za železnou oponou se mýlí. To mu stačilo. Nepotřeboval si zjišťovat víc. České nebo polské dějiny ho nezajímaly. Učit se kvůli Kateřině češtinu ho ani nenapadlo. Neměl o nic z toho zájem, neměl na nic z toho čas.
 
@@ -683,8 +603,6 @@ Clemens vnímal, že to je ponižující. Co ho ale překvapilo, neuměl se brá
 
 ## 6.
 
-  
-
 Navenek to vypadalo, že si žijí čím dál lépe. Ve skutečnosti si čím dál lépe žila Katharina. Příčin bylo hned několik. Důležité určitě bylo, že v roce 1984 malý Mathias nastoupil do základní školy na Philippsbergstraße asi deset minut pěšky od nerotalské vily.
 
 O jeho výchovu a dobré prospívání se už předtím starala krom Kathariny i chůva a později au pair. S Mathiasovým nástupem do prvního ročníku se ale Katharině přece jen ještě o ždibec ulevilo a přibylo volného času.
@@ -699,9 +617,7 @@ V cestě ke štěstí po třicítce Katharině nestály ani biologické hodiny.
 
 Jediné, co ji mohlo v tom čase znervózňovat, byl tikot ještě jiných hodin. Oficiálně byla matkou a manželkou, neoficiálně prostitutkou z Východu. Katharina si málokdy něco nalhávala a vlastně by ani neměla chuť nikomu tenhle výklad vyvracet; každý na něj měl právo, protože její manželství s Clemensem na první pohled přece muselo vypadat právě takto. Prostitutka z Východu. To nebyla nijak závratná kariéra, když člověk uvážil, že Katharina v Praze studovala filozofii, tu marxisticko-leninskou, ale i antickou či Kanta a Hegela.
 
-\* \* \*
-
-  
+* * *
 
 Katharina: „Když malý ve čtyřiaosmdesátém nastoupil do školy, potřeba něčeho dosáhnout se stala docela akutní. Clemens byl v té době málo doma, údajně dojednával obchody v Německu a jinde. Nepátrala jsem po tom, co přesně dělá, jen o Hanně jsem se vždy snažila mít přehled. Pokud nikam nejel s Hannou, pak jsem se o víc nezajímala. S Gosiou jsem se vídala méně než dřív, moc jiných přátel jsem neměla.
 
@@ -711,9 +627,7 @@ Co nás s Clemensem spojovalo, byla pornografie. Poté, co jsme v posteli něk
 
 Když jsem pak ve čtyřiaosmdesátém poprvé vzala do ruky blok a začala jsem v něm něco črtat, brzy jsem instinktivně došla k popisu právě tohoto z porna odvozeného světa. Psala jsem německy, nejdřív opatrně, později čím dál jistěji. Ve chvíli, kdy moje poznámky začaly mít úroveň, bylo jasno. Mojí povýšeností bude povýšené psaní.“
 
-\* \* \*
-
-  
+* * *
 
 Katharinin život v rozmezí let 1984, kdy do ruky ve svých třiceti poprvé vzala pero, až do roku 1988, kdy s Clemensem zažívali první a poslední velkou manželskou krizi, jde stručně popsat jako solidní život. Clemense za ty čtyři roky ani jednou nepodvedla, ačkoli měla pár dobrých příležitostí (instalatér!) a ačkoli Clemens nedokázal plně uspokojit její sexuální potřeby. Clemens se v sexu soustředil na sebe, přestože teoreticky rozuměl tomu, že k nejlepším výsledkům pro jednoho i pro druhého se v sexu dochází jinak: tím, že muž myslí na ženu a její dobro, do roztrhání těla, a žena na druhé straně, za takových podmínek docela přirozeně, dělá totéž. Naplnit ale něco takového v praxi by pro Clemense pravděpodobně znamenalo nepřijatelné překročení nějaké pro něj zásadní hranice.
 
@@ -723,21 +637,17 @@ Když pak v březnu 1988 přišel telefonát od Jana Rabase, byla to právě ta
 
 ## Intermezzo – Michel Jouvet a sny
 
-  
+> Neurovědci se ve svých názorech na původ a funkci snů dělí do tří skupin. První z nich snění považují za proces, kterým se mozek zbavuje přes den nastřádaného odpadu. Mozek podle téhle teorie v noci prochází peněženku a vyhazuje nepotřebné nebo prostě jen nečitelné účtenky. Druhá část ve snech vidí to, co slovo sen představuje v obecném jazykovém úzu: konstruování žádoucí reality. Poslední názorová skupina pak sny považuje za nahodilé probírání všeho, co v mozku leží; podle jejich teorie mozek ve snu nesoustavně probírá páté přes deváté, staré přes nové, jako by i  v těch chvílích spal, podřimoval, převaloval se ve spánku tam a sem.
 
-Neurovědci se ve svých názorech na původ a funkci snů dělí do tří skupin. První z nich snění považují za proces, kterým se mozek zbavuje přes den nastřádaného odpadu. Mozek podle téhle teorie v noci prochází peněženku a vyhazuje nepotřebné nebo prostě jen nečitelné účtenky. Druhá část ve snech vidí to, co slovo sen představuje v obecném jazykovém úzu: konstruování žádoucí reality. Poslední názorová skupina pak sny považuje za nahodilé probírání všeho, co v mozku leží; podle jejich teorie mozek ve snu nesoustavně probírá páté přes deváté, staré přes nové, jako by i  v těch chvílích spal, podřimoval, převaloval se ve spánku tam a sem.
+> Většina snů, které si po probuzení živě pamatujeme, probíhá ve fázi REM. Nervové buňky během REM fáze vykazují přibližně stejnou míru aktivity jako při plném vědomí. Jde o takzvaný paradoxní spánek. Spící člověk během REM fáze nejen spí a sní, ale v plném smyslu toho slova také myslí. Ve spánku by během fáze REM šlo skládat maturitu. A v mozku hudebníka, který večer cvičil obtížnou skladbu, se v REM fázi při vzpomínce na melodii aktivují nejen neurony sluchového centra, nýbrž i nervové buňky center řídících pohyb rukou a prstů. Houslistovy prsty jsou i ve spánku připraveny. Mohly by ihned spustit, ale nestane se tak. Navenek vidíme jen spícího člověka, prsty se ani nepohnou.
 
-Většina snů, které si po probuzení živě pamatujeme, probíhá ve fázi REM. Nervové buňky během REM fáze vykazují přibližně stejnou míru aktivity jako při plném vědomí. Jde o takzvaný paradoxní spánek. Spící člověk během REM fáze nejen spí a sní, ale v plném smyslu toho slova také myslí. Ve spánku by během fáze REM šlo skládat maturitu. A v mozku hudebníka, který večer cvičil obtížnou skladbu, se v REM fázi při vzpomínce na melodii aktivují nejen neurony sluchového centra, nýbrž i nervové buňky center řídících pohyb rukou a prstů. Houslistovy prsty jsou i ve spánku připraveny. Mohly by ihned spustit, ale nestane se tak. Navenek vidíme jen spícího člověka, prsty se ani nepohnou.
+> V pohybu jim brání mozeček a další mozkové struktury, které ve spánku vypínají kosterní svalstvo. Jde o obranný mechanismus: pokud by svaly během spánku byly plně aktivní, člověk by svůj sen prožíval i se všemi pohyby, o kterých se mu zdá, a pochopitelně by se při tom mohl zranit. Tahle obava je důvodná především ve fázi REM, kdy člověk sny prožívá stejně jako realitu. Pohodit ruku k lampičce nebo na vedlejší postel je naštěstí nejvíc, co v těch chvílích po fyzické stránce dokážeme. Stačilo by však vyřadit z funkce mozeček či Varolův most, a houslistovy dosud spící prsty by začaly hrát. A ten, kdo sní o tom, že vstává z postele a jde, vstane z postele a rozejde se.
 
-V pohybu jim brání mozeček a další mozkové struktury, které ve spánku vypínají kosterní svalstvo. Jde o obranný mechanismus: pokud by svaly během spánku byly plně aktivní, člověk by svůj sen prožíval i se všemi pohyby, o kterých se mu zdá, a pochopitelně by se při tom mohl zranit. Tahle obava je důvodná především ve fázi REM, kdy člověk sny prožívá stejně jako realitu. Pohodit ruku k lampičce nebo na vedlejší postel je naštěstí nejvíc, co v těch chvílích po fyzické stránce dokážeme. Stačilo by však vyřadit z funkce mozeček či Varolův most, a houslistovy dosud spící prsty by začaly hrát. A ten, kdo sní o tom, že vstává z postele a jde, vstane z postele a rozejde se.
+> Michel Jouvet, francouzský profesor z univerzity v Lyonu, v sedmdesátých letech s malým mozkem a okolními mozkovými strukturami experimentoval. Na mysli přitom měl právě onu výše nastíněnou teorii: pokud určitou část mozku vyřadíme z provozu, uvidíme, jak se spící ve snech chová. Sny spícího člověka se pro nás do jisté míry zhmotní, uvidíme je. Nebudeme se muset spoléhat na to, co si ráno snící člověk zapsal o svých snech do deníku. A nebudeme se muset spoléhat dokonce ani na psychoanalýzu.
 
-Michel Jouvet, francouzský profesor z univerzity v Lyonu, v sedmdesátých letech s malým mozkem a okolními mozkovými strukturami experimentoval. Na mysli přitom měl právě onu výše nastíněnou teorii: pokud určitou část mozku vyřadíme z provozu, uvidíme, jak se spící ve snech chová. Sny spícího člověka se pro nás do jisté míry zhmotní, uvidíme je. Nebudeme se muset spoléhat na to, co si ráno snící člověk zapsal o svých snech do deníku. A nebudeme se muset spoléhat dokonce ani na psychoanalýzu.
-
-Jouvet svým pokusným kočkám odstranil locus coeruleus, oblast takzvané „modré skvrny“ na spodině čtvrté mozkové komory, a zjistil, že kočičí sny s velkou pravděpodobností plní jistou kompenzační úlohu. Teorie o panu Jekyllovi a panu Hydovi se v éře po Jouvetových pokusech jeví být mnohem relevantnější, než jsme si kdy mohli myslet. Jouvet v podstatě u svých koček odhalil rozdvojenou osobnost: kočky, které byly v bdělém stavu klidné, hodné, hravé, nechávaly se hladit, necenily zuby, nesyčely a tak dále… Ty se ve spánku měnily v agresivní monstra.
+> Jouvet svým pokusným kočkám odstranil locus coeruleus, oblast takzvané „modré skvrny“ na spodině čtvrté mozkové komory, a zjistil, že kočičí sny s velkou pravděpodobností plní jistou kompenzační úlohu. Teorie o panu Jekyllovi a panu Hydovi se v éře po Jouvetových pokusech jeví být mnohem relevantnější, než jsme si kdy mohli myslet. Jouvet v podstatě u svých koček odhalil rozdvojenou osobnost: kočky, které byly v bdělém stavu klidné, hodné, hravé, nechávaly se hladit, necenily zuby, nesyčely a tak dále… Ty se ve spánku měnily v agresivní monstra.
 
 ## 7.
-
-  
 
 Z Jana Rabase se v emigraci stal bojovník proti železné oponě. Bojoval proti zdi, protože svět rozdělený zdmi mu byl proti mysli; stál o sbratření, o všeobecný mír, o lásku mezi všemi obyvateli Země. Po letech tápání konečně našel smysl svého života, když se postavil na stranu rozumu a dobra. Chtěl štěstí bez rozdílu pro všechny, včetně štěstí pro planetu Zemi. Věřil v nutnost uskromnění se, bojoval proti konzumní společnosti, proti bezohlednému ničení planety, proti nadnárodním korporacím, proti těžařským firmám a ropným koncernům.
 
@@ -747,9 +657,7 @@ Papírky? Není to směšné?
 
 Jan Rabas měl radikální názory.
 
-\* \* \*
-
-  
+* * *
 
 V roce 1988 mu bylo čtyřicet. Pracoval jako správce tenisových kurtů ve stejném klubu, kde kdysi vyučoval, a byl čerstvě rozvedený. Jeho manželství trvalo osm let a stejně jako v Kateřinině případě, i u něj se jednalo o nevyrovnaný svazek. Eva Kunze byla Němka a také byla podstatně starší, stejně jako Clemens. A skutečně šlo o tu ženu, se kterou Kateřina přistihla Jana tehdy v chatce u kurtů.
 
@@ -761,17 +669,13 @@ Už někdy v polovině osmdesátých let přišel do styku s lidmi, kteří v�
 
 Jan Rabas byl nepružný člověk. Mentální lenochod, který lpí na každém svém náhodném kroku. Postupně začínal připomínat ptáka zalepeného ropou.
 
-\* \* \*
-
-  
+* * *
 
 V roce 1988 ale Jan Rabas došel k Chartě 77. Smečka frankfurtských chartistů přitom byla smečkou dobrodruhů hned několika národností, zdaleka ne pouze Češi. Většinou lidé jako Adam Kuczek. Scházeli se v hospodě Walden u frankfurtského hlavního nádraží, jen kousek od čtvrti červených luceren, kde Jan před lety chodil do pornokina. Nešlo mezi nimi o žádné intelektuální debaty. Skupinka se zabývala obstaráváním finanční podpory a především dodávkami moderní techniky do ČSSR: xeroxů, počítačů a tiskáren. Ideologické podpory a vůbec jakéhokoli zdlouhavého přemýšlení už nebylo potřeba, o to se podle všeho plně funkčně starali lidé v Praze. Otázka už nestála zda, nýbrž kdy. Socialismus s lidskou tváří a jeho promýšlení zrovna v téhle Janově skupince nebyly na pořadu dne, všechno se skutečně točilo kolem peněz a moderní techniky. Komunikovalo se v číslech a datech. Byl konec osmdesátých let; v té době i ti dosud nejvytrvalejší myslitelé vyšli ze svých slonovinových věží a propadli videu.
 
 Kolem byl fascinující digitální svět. V západním bloku se rozvíjela kulturální studia, obor, který dal tisícům lidí příležitost věnovat se místo vědy a myšlení sledování seriálů, hraní videoher a čtení komiksů. Jak se schylovalo k pádu sovětského bloku, zdálo se, že kulturou je úplně všechno. Byl by to zázrak, pokud by se v rámci tohoto všeobecného rozmělnění nakonec nerozpadla i ona z cementu postavená berlínská zeď.
 
 ## 8.
-
-  
 
 Byl šestnáctý březen 1988. Od doby, kdy se Jan Rabas naposledy viděl se svojí Kateřinou, uběhlo dlouhých deset let. Honza se odmlčel brzy po Kateřinině svatbě a po tom telefonátu, kdy Kateřině oznámil, že jí v Broumově zemřel otec. Kateřina tehdy byla v době jeho úmrtí s Clemensem v Řecku, celé to bylo velmi nepříjemné. Honzovo odmlčení se mělo být morální lekcí, o tom Kateřina nepochybovala.
 
@@ -813,9 +717,7 @@ Když to říkala, připadala si jako ve snu. Z jejích úst vycházela slova, 
 
 Byla bohatá, měla solidní manželství, zdravé dítě a vypadala dobře. Myšlenka, že vypadá dobře, jí přitom v rozhodujícím momentě hlavou projela jako první. Pokud by věděla, že už dobře nevypadá, nescházela by se s ním. Měla všechno. Co mohl mít ve čtyřiceti on? Věděla, že ho ve všech směrech porazí o několik dlouhých koňských délek.
 
-\* \* \*
-
-  
+* * *
 
 Sotva se rozloučili, ihned vytočila telefonní číslo Clemensovy Motoroly DynaTAC, přenosného telefonu s rozměrem cihly, který si Clemens teprve před pár měsíci pořídil, aby šel s dobou. Řekla mu, že si musí odpoledne zajet vyřídit něco do Frankfurtu.
 
@@ -825,17 +727,13 @@ Zeptal se, co jede do Frankfurtu dělat a zda si bere jejich druhý vůz, malý
 
 „Ne, Clemensi, vezmu si volvo,“ řekla a bez rozloučení zavěsila.
 
-\* \* \*
-
-  
+* * *
 
 Ještě nestačila ani otevřít francouzská okna na terasu a telefon už zvonil zpět. Věděla, o co jde, věděla, že Clemens něco takového jako položení telefonu nesnese. Byla si jistá, že Clemens ihned sedne na vlak nebo si od někoho v továrně půjčí auto a pojede z Hattersheimu zpátky na Nerotal. Nic podobného mu ještě neudělala, ani ji to nenapadlo, netroufla by si. Jeho reakci zuřícího býka však dokázala odhadnout úplně přesně.
 
 Přesto telefon nezvedla. Rychle se oblékla a vzala klíčky od velkého volva, se kterým za ty dva roky, co ho měli, jela všehovšudy snad ani ne pětkrát.
 
-\* \* \*
-
-  
+* * *
 
 Zaparkovala na placeném parkovišti u frankfurtského nádraží a pár minut před půl pátou už stála pod hodinami.
 
@@ -845,9 +743,7 @@ Sedět doma a číst si, nic nedělat. To ve skutečnosti znamená pravý opak 
 
 V tu chvíli si vzpomněla na Oblomova, na hrdinu z Gončarovova románu. Oblomov byl mimořádně líný a pasivní, extrémní případ takzvaného zbytečného člověka. Oblomov na prvních asi sto padesáti stranách románu nikdy neopouští svůj pokoj a jen zřídka vyleze z postele. Katharina, když kdysi Gončarovův román četla, vnímala Oblomova jako člověka, který svůj život zklidnil, zvolnil, málem zastavil. Nyní, když jí bylo bez roku pětatřicet, už ale věc vnímala jinak: „Oblomov žil absolutně intenzivní život a tenhle jeho absolutně intenzivní život ho postupně semlel zaživa,“ řekla polohlasem, zatímco nad hlavou jí běžel čas frankfurtských nádražních hodin.
 
-\* \* \*
-
-  
+* * *
 
 Z myšlenek ji vyrušilo zaklepání na rameno. První, co zaregistrovala, byla jeho vyprahlost. Ještě víc zeštíhlel, propadly mu tváře, držel se trochu shrbený. Nechal si růst vousy, i to byl rozdíl oproti minulosti. Oblékl si u krku vytahané triko s nápisem The Beatles, přes něj sepranou džínovou košili, dole volné khaki kalhoty a sešmajdané boty. Nestyděl se za to, naopak. Pravděpodobně takto chodil ven při každé příležitosti, byť by byla jakkoli slavnostní. Co ale Katharinu zarazilo nejvíc, byl jeho účes.
 
@@ -901,9 +797,7 @@ Vybrali v asijském obchodě to nejdražší červené víno.
 
 Zaplatila ho.
 
-\* \* \*
-
-  
+* * *
 
 Bydlel ve třetím patře činžovního domu z poloviny padesátých let. Bylo to jako vracet se ve vzpomínkách. Sedli si na laciný světle hnědý koženkový gauč, Jan otevřel láhev.
 
@@ -949,9 +843,7 @@ Už se zvedala. Pak jí ale náhle došlo, že odejít nemůže. Sedla si a nal
 
 Bylo to téma z jejího zápisníku a zároveň jeden z důvodů, proč nakonec toho dne zůstala u Jana doma. Našla si v Honzovi úplně prvního posluchače.
 
-\* \* \*
-
-  
+* * *
 
 Konkrétně citovaná pasáž vyšla na měsíc přesně za dva roky, v březnu 1990 v malém wiesbadenském nakladatelství Tre Torri pod názvem _Zápisky kritické emigrantky_. Náklad byl 5000 kusů a prodal se skoro celý.
 
@@ -963,83 +855,75 @@ Katharina ve své prvotině z roku 1990 publikovala i následující odstavce.
 
 ## Z K. knihy
 
-  
+> Jana jsem neviděla deset let a říkám bez mučení, že jsem si na něj za těch deset let vzpomněla jen úplně výjimečně. Měla jsem svůj život, svého manžela a malého Mathiase.
 
-Jana jsem neviděla deset let a říkám bez mučení, že jsem si na něj za těch deset let vzpomněla jen úplně výjimečně. Měla jsem svůj život, svého manžela a malého Mathiase.
+> Potkali jsme se pod hodinami na frankfurtském nádraží. Hned jak jsem ho uviděla, napadlo mě, že zestárl, ale něco podobného si musel říct i on o mně. Myslím si, že ta slavná Hérakleitova sentence, nevstoupíš dvakrát do téže řeky, vznikla při nějakém podobném setkání milenců po deseti letech. Kdo by chtěl vstupovat do celulitidy nebo do řídkých umaštěných vlasů? Proměnili jsme se. Jan navíc už ani nepřipomínal řeku, spíše vyschlé koryto.
 
-Potkali jsme se pod hodinami na frankfurtském nádraží. Hned jak jsem ho uviděla, napadlo mě, že zestárl, ale něco podobného si musel říct i on o mně. Myslím si, že ta slavná Hérakleitova sentence, nevstoupíš dvakrát do téže řeky, vznikla při nějakém podobném setkání milenců po deseti letech. Kdo by chtěl vstupovat do celulitidy nebo do řídkých umaštěných vlasů? Proměnili jsme se. Jan navíc už ani nepřipomínal řeku, spíše vyschlé koryto.
+> Nejvíc mě ale iritovaly jeho dlouhé umaštěné vlasy svázané gumičkou. Viděla jsem v nich rezignaci, ale byla jsem si jistá, že Jan svůj účes vnímá jinak, pravděpodobně jako odznak příslušnosti k relativně chudému frankfurtskému předměstí, k dělnické třídě a ke krotkému amatérskému intelektualismu. Právě tenhle jeho omyl mě urážel. Chtěla bych po něm, aby stál hrdě. I se skromnějším rozpočtem přece jde zvednout hlavu a pořídit si z druhé ruky pěkné sako nebo oblek.
 
-Nejvíc mě ale iritovaly jeho dlouhé umaštěné vlasy svázané gumičkou. Viděla jsem v nich rezignaci, ale byla jsem si jistá, že Jan svůj účes vnímá jinak, pravděpodobně jako odznak příslušnosti k relativně chudému frankfurtskému předměstí, k dělnické třídě a ke krotkému amatérskému intelektualismu. Právě tenhle jeho omyl mě urážel. Chtěla bych po něm, aby stál hrdě. I se skromnějším rozpočtem přece jde zvednout hlavu a pořídit si z druhé ruky pěkné sako nebo oblek.
+> Nevím, jak to vnímal on, ale hned mi přišlo samozřejmé, že půjdeme k němu. Jela jsem na inspekci, to pro mě byla přidaná hodnota tohohle setkání. Nezapomněla jsem, jak se choval v těch měsících po našem příjezdu do Německa, ani na jeho tehdejší aspirace. Zajímalo mě, co mi může ukázat, čím se předvede.
 
-Nevím, jak to vnímal on, ale hned mi přišlo samozřejmé, že půjdeme k němu. Jela jsem na inspekci, to pro mě byla přidaná hodnota tohohle setkání. Nezapomněla jsem, jak se choval v těch měsících po našem příjezdu do Německa, ani na jeho tehdejší aspirace. Zajímalo mě, co mi může ukázat, čím se předvede.
+> Žil skromně v malém jednopokojovém bytě. Větší zrovna nepotřeboval, před rokem se rozvedl, jeho dva synové od té doby žili s matkou někde poblíž. Když se Jan později večer opil, prořekl se a já se měla dovědět, že si vzal jednu tlustou postarší Němku, se kterou mě kdysi podvedl. Nekomentovala jsem to.
 
-Žil skromně v malém jednopokojovém bytě. Větší zrovna nepotřeboval, před rokem se rozvedl, jeho dva synové od té doby žili s matkou někde poblíž. Když se Jan později večer opil, prořekl se a já se měla dovědět, že si vzal jednu tlustou postarší Němku, se kterou mě kdysi podvedl. Nekomentovala jsem to.
+> Mnohem víc než rodinná traumata mě zajímal jeho příklon k dobru. Dostávali jsme se k tomu málem v každé druhé větě. Charta 77, Greenpeace, třídění odpadu, Lékaři bez hranic, odbory, socialistická SPD. Jan kdysi hrál tenis, živil se jako trenér. V době popisovaného setkání, to už mu bylo čtyřicet, pracoval jako správce tenisových kurtů. Myslela jsem si, že se přirozeně od mládí zajímá o body: patnáct nula, třicet nula, čtyřicet nula, _game_, _set_, _match_. Tím vůbec nechci říct, že zájem o třicet nula je méně důležitý nebo méně chvályhodný než zájem o děti umírající na hladomor v Súdánu. Chci tím říct jen tolik, že v Janově případě, co jsem ho znala, nic nenasvědčovalo tomu, že kromě své čistě sobecké chuti vyhrát _match_ a přestěhovat se do čtvrti za řekou má k řešení jakoukoli jinou agendu. Když jsem se ho na to zeptala, odpověděl mi: „To tvoje neustálé rytí, Kateřino. Taková jsi nebyla, když jsem tě poznal. A povýšenost, furt udivená povýšenost… Ty by ses pravděpodobně s ironickým údivem ptala i našich prapředků, proč lezou ven z vody.“
 
-Mnohem víc než rodinná traumata mě zajímal jeho příklon k dobru. Dostávali jsme se k tomu málem v každé druhé větě. Charta 77, Greenpeace, třídění odpadu, Lékaři bez hranic, odbory, socialistická SPD. Jan kdysi hrál tenis, živil se jako trenér. V době popisovaného setkání, to už mu bylo čtyřicet, pracoval jako správce tenisových kurtů. Myslela jsem si, že se přirozeně od mládí zajímá o body: patnáct nula, třicet nula, čtyřicet nula, _game_, _set_, _match_. Tím vůbec nechci říct, že zájem o třicet nula je méně důležitý nebo méně chvályhodný než zájem o děti umírající na hladomor v Súdánu. Chci tím říct jen tolik, že v Janově případě, co jsem ho znala, nic nenasvědčovalo tomu, že kromě své čistě sobecké chuti vyhrát _match_ a přestěhovat se do čtvrti za řekou má k řešení jakoukoli jinou agendu. Když jsem se ho na to zeptala, odpověděl mi: „To tvoje neustálé rytí, Kateřino. Taková jsi nebyla, když jsem tě poznal. A povýšenost, furt udivená povýšenost… Ty by ses pravděpodobně s ironickým údivem ptala i našich prapředků, proč lezou ven z vody.“
+> „Rytí? Povýšenost? Jsem zvídavá. Zajímá mě to,“ řekla jsem trochu uraženě. „Navíc v tom úplně zbytečně cítíš kritiku té své podoby, kterou jsem znala já. Znovu říkám, že na zájmu o body není nic, co by šlo odsoudit. Přijde mi naopak mnohem důležitější zabývat se tím, co je blízko nás.“
 
-„Rytí? Povýšenost? Jsem zvídavá. Zajímá mě to,“ řekla jsem trochu uraženě. „Navíc v tom úplně zbytečně cítíš kritiku té své podoby, kterou jsem znala já. Znovu říkám, že na zájmu o body není nic, co by šlo odsoudit. Přijde mi naopak mnohem důležitější zabývat se tím, co je blízko nás.“
+> „Takže sobectví?“
 
-„Takže sobectví?“
+> „Ne, nejde o sobectví,“ pokračovala jsem podrážděně. „Jde o to, že body a míčky, když létají kolem tebe, jsou něčím, na co si můžeš sáhnout a co můžeš potvrdit nebo vyvrátit. Jak ale budeš řešit a rozsuzovat tenisový zápas, který se hraje někde v Súdánu?“
 
-„Ne, nejde o sobectví,“ pokračovala jsem podrážděně. „Jde o to, že body a míčky, když létají kolem tebe, jsou něčím, na co si můžeš sáhnout a co můžeš potvrdit nebo vyvrátit. Jak ale budeš řešit a rozsuzovat tenisový zápas, který se hraje někde v Súdánu?“
+> „Useknutá noha je useknutá noha. Nikdo by po světě neměl chodit s useknutou nohou, ne?“ namítl.
 
-„Useknutá noha je useknutá noha. Nikdo by po světě neměl chodit s useknutou nohou, ne?“ namítl.
+> „Ale tvoje peníze pro Lékaře bez hranic při tom jdou přes půlku světa,“ odvětila jsem. „Nevíš, jaký názor ty peníze mají, ztrácíš kontrolu. Peníze, které navíc pak chceš ode mě a od Clemense… A ještě jedna věc. Useknutá noha je useknutá noha, to je fakt. Ale co když je to noha člověka, který má na svědomí deset useknutých nohou? Dobře, Lékaři bez hranic si usmysleli, že by po světě nikdo neměl chodit s useknutou nohou, a vy Němci,“ řekla jsem mu, protože Jan mi v těch chvílích připadal jako mnohem větší Němec, než jsem byla třeba já, nebo dokonce Clemens, „vy Němci si myslíte totéž, což má své historické vysvětlení. Ale co když v Súdánu prostě platí, že useknutá noha se trestá useknutou nohou? Co když je to jejich posvátná kráva? Co když je to správné? Co když je to přirozený běh súdánských věcí? Možná to v Súdánu má svoji hlubokou logiku, že se tam sekají nohy.“
 
-„Ale tvoje peníze pro Lékaře bez hranic při tom jdou přes půlku světa,“ odvětila jsem. „Nevíš, jaký názor ty peníze mají, ztrácíš kontrolu. Peníze, které navíc pak chceš ode mě a od Clemense… A ještě jedna věc. Useknutá noha je useknutá noha, to je fakt. Ale co když je to noha člověka, který má na svědomí deset useknutých nohou? Dobře, Lékaři bez hranic si usmysleli, že by po světě nikdo neměl chodit s useknutou nohou, a vy Němci,“ řekla jsem mu, protože Jan mi v těch chvílích připadal jako mnohem větší Němec, než jsem byla třeba já, nebo dokonce Clemens, „vy Němci si myslíte totéž, což má své historické vysvětlení. Ale co když v Súdánu prostě platí, že useknutá noha se trestá useknutou nohou? Co když je to jejich posvátná kráva? Co když je to správné? Co když je to přirozený běh súdánských věcí? Možná to v Súdánu má svoji hlubokou logiku, že se tam sekají nohy.“
+> Chtěla jsem tím říct, že náš stvořitel člověka dobře uzpůsobil k tomu, aby člověk dokázal dobro a zlo rozeznávat ve svém příručním světě.
 
-Chtěla jsem tím říct, že náš stvořitel člověka dobře uzpůsobil k tomu, aby člověk dokázal dobro a zlo rozeznávat ve svém příručním světě.
+> „Dobrým příkladem je pocestný,“ pokračovala jsem, to už jsme byli opilejší. „Jdeš, vidíš člověka se zlomenou nohou, pomůžeš mu. Pokud z nohy teče krev, můžeš mu věřit, že mu z nohy teče krev. Ale kdo mu to udělal? Neudělal si to třeba sám, aby tě mohl okrást? To nevíš… Pokud na noze nic nevidíš, můžeš se pokusit nějak zjistit pravý stav věcí, noha může být zdeformovaná, pod kůží můžeš vidět hrbol, z čehož následně můžeš usoudit, že to může být zlomená noha. Můžeš tomu člověku pomoct. Všechno to ale bude jen velmi přibližné, nejasné, a to mluvím o člověku, který je metr od tebe.“
 
-„Dobrým příkladem je pocestný,“ pokračovala jsem, to už jsme byli opilejší. „Jdeš, vidíš člověka se zlomenou nohou, pomůžeš mu. Pokud z nohy teče krev, můžeš mu věřit, že mu z nohy teče krev. Ale kdo mu to udělal? Neudělal si to třeba sám, aby tě mohl okrást? To nevíš… Pokud na noze nic nevidíš, můžeš se pokusit nějak zjistit pravý stav věcí, noha může být zdeformovaná, pod kůží můžeš vidět hrbol, z čehož následně můžeš usoudit, že to může být zlomená noha. Můžeš tomu člověku pomoct. Všechno to ale bude jen velmi přibližné, nejasné, a to mluvím o člověku, který je metr od tebe.“
+> „Jak daleko je do Súdánu?“ zeptala jsem se. „Súdán je v Súdánu, zatímco ty sedíš na zadku v Offenbachu a cucáš si celý svět z prstu. Možná při tom máš dokonce pocit, že jsi díky tomu nějak významnější, nějak víc ve světě?“
 
-„Jak daleko je do Súdánu?“ zeptala jsem se. „Súdán je v Súdánu, zatímco ty sedíš na zadku v Offenbachu a cucáš si celý svět z prstu. Možná při tom máš dokonce pocit, že jsi díky tomu nějak významnější, nějak víc ve světě?“
+> Tohle samozřejmě vnímal jako útok. Sám dobře věděl, že mu ujel vlak. Jeho aktivity namířené k pádu železné opony ve skutečnosti nemířily k nějakému abstraktnímu dobru, nýbrž k jeho úplně konkrétnímu zájmu: pokud to v ČSSR krachne, Jan bude mít šanci změnit hrací hřiště, na kterém toho moc neukázal, a přejít zpátky do nižší ligy, kde pak třeba čas od času vyhraje. Pro Jana by ideální výhrou byl německý důchod ve svobodném Československu. Pokud mu něco přeji, pak je to právě toto: šťastný a bohatý důchod s markami v Čechách.
 
-Tohle samozřejmě vnímal jako útok. Sám dobře věděl, že mu ujel vlak. Jeho aktivity namířené k pádu železné opony ve skutečnosti nemířily k nějakému abstraktnímu dobru, nýbrž k jeho úplně konkrétnímu zájmu: pokud to v ČSSR krachne, Jan bude mít šanci změnit hrací hřiště, na kterém toho moc neukázal, a přejít zpátky do nižší ligy, kde pak třeba čas od času vyhraje. Pro Jana by ideální výhrou byl německý důchod ve svobodném Československu. Pokud mu něco přeji, pak je to právě toto: šťastný a bohatý důchod s markami v Čechách.
+> Řekla jsem mu to: „Já ti, Honzo, nevěřím, že bojuješ proti zdi nebo železné oponě. Tváříš se skromně, tváříš se, že by ses rozdal, ale jde ti o jediné. Chceš, aby padly hranice, protože vidíš, že stojíš na špatné straně. Na té, která tahá za kratší konce. V prvé řadě ti jde o pád zdi mezi Offenbachem a Nerotalem.“
 
-Řekla jsem mu to: „Já ti, Honzo, nevěřím, že bojuješ proti zdi nebo železné oponě. Tváříš se skromně, tváříš se, že by ses rozdal, ale jde ti o jediné. Chceš, aby padly hranice, protože vidíš, že stojíš na špatné straně. Na té, která tahá za kratší konce. V prvé řadě ti jde o pád zdi mezi Offenbachem a Nerotalem.“
+* * *
 
-\* \* \*
+> Moje návštěva pro něj musela být velkým zklamáním. Vyprávěl mi o tom, kam všude posílá své drobáky. Pak si řekl o peníze pro Nadaci Charty 77. To byl pravděpodobně jeden z hlavních důvodů, proč mi volal. Ale odmítla jsem ho, přestože jsem si uměla představit, jak moc mu to v jeho skupince uškodí. V nejmenším jsem se mu nechtěla mstít, ale ty peníze jsem prostě obstarat nemohla. Jednak jsem ke Clemensovým penězům neměla přístup, to byl jeden důvod. Ten druhý důvod ale byl stejně důležitý: nechtěla jsem, aby se v ČSSR cokoli měnilo. Vyhovovala mi přehlednost té situace. Socialismus konce osmdesátých let už se navíc dal docela pohodlně snášet. Připadalo mi, že v rámci planetární rovnováhy se vyplatí zachovat vedle našeho německého a západního dobra tohle úplně maličké zlo. Věděla jsem, že to bude k dobru všem.
 
-  
+* * *
 
-Moje návštěva pro něj musela být velkým zklamáním. Vyprávěl mi o tom, kam všude posílá své drobáky. Pak si řekl o peníze pro Nadaci Charty 77. To byl pravděpodobně jeden z hlavních důvodů, proč mi volal. Ale odmítla jsem ho, přestože jsem si uměla představit, jak moc mu to v jeho skupince uškodí. V nejmenším jsem se mu nechtěla mstít, ale ty peníze jsem prostě obstarat nemohla. Jednak jsem ke Clemensovým penězům neměla přístup, to byl jeden důvod. Ten druhý důvod ale byl stejně důležitý: nechtěla jsem, aby se v ČSSR cokoli měnilo. Vyhovovala mi přehlednost té situace. Socialismus konce osmdesátých let už se navíc dal docela pohodlně snášet. Připadalo mi, že v rámci planetární rovnováhy se vyplatí zachovat vedle našeho německého a západního dobra tohle úplně maličké zlo. Věděla jsem, že to bude k dobru všem.
+> Ptám se teď sama sebe, jak se stalo, že jsem se s Janem toho večera nakonec vyspala. Nepřitahoval mě, pravděpodobně ani já jeho. Navíc si za těch deset let odvykl. Viděla jsem ho sedět v našem volvu. Necítil se v něm, bylo na něj moc špičkové. Ve mně by se taky necítil a stejné by to bylo s každou jinou mého druhu. „To už není pro mě,“ pověděl by. „To je na mě už moc fajnový zboží.“
 
-\* \* \*
+> Takové věty jsou odporné. Lidé, kteří takové věty pronášejí, jsou odporní. A přesto jsem se s ním vyspala tím nejhorším možným způsobem; dělala jsem mu pomyšlení, nikdy dřív se mnou nic podobného nezažil.
 
-  
+> Zpětně si říkám, že jediným vysvětlením je ta moje teorie o míčku a o jeho odpálení. Nechtěla jsem pomáhat s useknutýma nohama v Súdánu, nechtěla jsem bourat berlínskou zeď, nechtěla jsem zachraňovat jiné prostředí než to úplně nejkonkrétnější, ve kterém sama žiji. Jan ale byl míček, který mi letěl přímo k ruce. Dlužila jsem mu to?
 
-Ptám se teď sama sebe, jak se stalo, že jsem se s Janem toho večera nakonec vyspala. Nepřitahoval mě, pravděpodobně ani já jeho. Navíc si za těch deset let odvykl. Viděla jsem ho sedět v našem volvu. Necítil se v něm, bylo na něj moc špičkové. Ve mně by se taky necítil a stejné by to bylo s každou jinou mého druhu. „To už není pro mě,“ pověděl by. „To je na mě už moc fajnový zboží.“
+> Navrhl, že zajdeme do baru Pantha Rei. To už jsme v sobě měli láhev vína a několik skleniček jeho laciné vodky. Bylo něco po sedmé večer. V té době už jsem dávno měla být doma na Nerotalu; Clemens mě před odjezdem varoval, že chce brzy večeřet. Malý Mathias už byl dávno doma ze školy. Čekali, že jim uvařím. Měla jsem rychle jet S-Bahnem do Wiesbadenu. Místo toho jsem ale sahala po klíčcích od auta. Jan mě naštěstí zastavil: „Kam bys jela? Jdeme za Kottovou!“
 
-Takové věty jsou odporné. Lidé, kteří takové věty pronášejí, jsou odporní. A přesto jsem se s ním vyspala tím nejhorším možným způsobem; dělala jsem mu pomyšlení, nikdy dřív se mnou nic podobného nezažil.
+> Jan neměl ani tušení, že jsem chtěla autem jet právě tam. Kde jsem nechala rozum?
 
-Zpětně si říkám, že jediným vysvětlením je ta moje teorie o míčku a o jeho odpálení. Nechtěla jsem pomáhat s useknutýma nohama v Súdánu, nechtěla jsem bourat berlínskou zeď, nechtěla jsem zachraňovat jiné prostředí než to úplně nejkonkrétnější, ve kterém sama žiji. Jan ale byl míček, který mi letěl přímo k ruce. Dlužila jsem mu to?
+> „Starý je po smrti, Mariusz, pamatuješ? A Kuczek je někde na severu, snad v Hamburku.“
 
-Navrhl, že zajdeme do baru Pantha Rei. To už jsme v sobě měli láhev vína a několik skleniček jeho laciné vodky. Bylo něco po sedmé večer. V té době už jsem dávno měla být doma na Nerotalu; Clemens mě před odjezdem varoval, že chce brzy večeřet. Malý Mathias už byl dávno doma ze školy. Čekali, že jim uvařím. Měla jsem rychle jet S-Bahnem do Wiesbadenu. Místo toho jsem ale sahala po klíčcích od auta. Jan mě naštěstí zastavil: „Kam bys jela? Jdeme za Kottovou!“
+> „Tam se hodí!“ odvětila jsem.
 
-Jan neměl ani tušení, že jsem chtěla autem jet právě tam. Kde jsem nechala rozum?
+> „Adriana ho samozřejmě opustila,“ dodal Jan. „Proto nikdy neměli děti, Adriana dobře věděla, proč si dává pozor.“
 
-„Starý je po smrti, Mariusz, pamatuješ? A Kuczek je někde na severu, snad v Hamburku.“
+> Když jsme tam přišli, zastihli jsme Adrianu za barem. Nalila nám, Jana vídala často. Moje přítomnost ji překvapila. Chvíli jsme se bavili směsicí češtiny, němčiny a polštiny o politice. Večírek se postupně měnil v předběžnou oslavu konce východního bloku, který fakticky přišel o rok a něco později. Solidarita, Lech Wałęsa, všechny ty slovní kódy pro změnu. V polských loděnicích tehdy zrovna stávkovali dělníci, to bylo něco pro Jana.
 
-„Tam se hodí!“ odvětila jsem.
+> „Měl bys tam odjet a dát se k nim, Honzo! Nebo k nějaké druhé kultuře,“ řekla jsem a musela jsem se tomu výrazu smát.
 
-„Adriana ho samozřejmě opustila,“ dodal Jan. „Proto nikdy neměli děti, Adriana dobře věděla, proč si dává pozor.“
+> Z rádia se zrovna ozval aktuální hit od Whitney Houston _I Wanna Dance With Somebody_ a mě nenapadlo nic jiného než chytit Jana, odstrčit dvě židle a nutit ho k tanci.
 
-Když jsme tam přišli, zastihli jsme Adrianu za barem. Nalila nám, Jana vídala často. Moje přítomnost ji překvapila. Chvíli jsme se bavili směsicí češtiny, němčiny a polštiny o politice. Večírek se postupně měnil v předběžnou oslavu konce východního bloku, který fakticky přišel o rok a něco později. Solidarita, Lech Wałęsa, všechny ty slovní kódy pro změnu. V polských loděnicích tehdy zrovna stávkovali dělníci, to bylo něco pro Jana.
+> Jan už byl z vodky skoro bez sebe. Sundal si triko, začal s ním mávat nad hlavou a skandoval u toho:
 
-„Měl bys tam odjet a dát se k nim, Honzo! Nebo k nějaké druhé kultuře,“ řekla jsem a musela jsem se tomu výrazu smát.
+> „Dru-hááááá… kul-tů-ra…! Dru-hááááá… kul-tů-ra!“
 
-Z rádia se zrovna ozval aktuální hit od Whitney Houston _I Wanna Dance With Somebody_ a mě nenapadlo nic jiného než chytit Jana, odstrčit dvě židle a nutit ho k tanci.
+> Kolem sedělo asi pět chlápků, podle mě všechno Poláci. Měli z toho srandu, vůbec se nedivili. Došlo mi, že Jan svůj život snáší jen proto, že na něj často zapomíná. Nehodlám ho za to soudit, ale za sebe říkám, že zrovna tento způsob vypnutí a zapomenutí na sebe mi přijde nežádoucí. Lepší slovo pro to nemám. Zrovna ode mě to ale může působit nepatřičně a pokrytecky. Je pravda, že moje manželství s Clemensem je rámováno opilostí. Jak jeho začátek tehdy v Davosu, tak jeho symbolické přerušení, pokud té jediné nevěře smím říct právě takto.
 
-Jan už byl z vodky skoro bez sebe. Sundal si triko, začal s ním mávat nad hlavou a skandoval u toho:
-
-„Dru-hááááá… kul-tů-ra…! Dru-hááááá… kul-tů-ra!“
-
-Kolem sedělo asi pět chlápků, podle mě všechno Poláci. Měli z toho srandu, vůbec se nedivili. Došlo mi, že Jan svůj život snáší jen proto, že na něj často zapomíná. Nehodlám ho za to soudit, ale za sebe říkám, že zrovna tento způsob vypnutí a zapomenutí na sebe mi přijde nežádoucí. Lepší slovo pro to nemám. Zrovna ode mě to ale může působit nepatřičně a pokrytecky. Je pravda, že moje manželství s Clemensem je rámováno opilostí. Jak jeho začátek tehdy v Davosu, tak jeho symbolické přerušení, pokud té jediné nevěře smím říct právě takto.
-
-Stejně jako tehdy v Davosu, i teď mi vodka rychle stoupala do hlavy, ale nebyla jsem na tom zdaleka tak špatně jako Jan. Padal mi k nohám. Míček, který jsem musela odrazit.
+> Stejně jako tehdy v Davosu, i teď mi vodka rychle stoupala do hlavy, ale nebyla jsem na tom zdaleka tak špatně jako Jan. Padal mi k nohám. Míček, který jsem musela odrazit.
 
 ## 10.
-
-  
 
 Katharina se probudila s bolavou hlavou. Jednu nohu měla na zemi, druhou na matraci. Vedle ležel Jan. Spal, zhluboka oddychoval. V levém koutku rtů měl chuchvalec seschlé pěny. Přišlo jí to nechutné.
 
@@ -1048,8 +932,6 @@ Pomalu vstala, posbírala oblečení a přešla do chodby. Až tam se potichu o
 Udělala, co měla. Když se vrátili z Pantha Rei, byl úplně opilý. Nechal by ji být, ani v té největší opilosti ho nenapadlo, že se k ní může přiblížit jinak než jako dítě, které hlavou nabíhá do břich dospělých; byl přesvědčený o tom, že k němu jde přespat jen proto, aby tak pozdě nemusela jezdit do Wiesbadenu. Už jen tohle by pro Katharinu byl dostatečný důvod, aby ho pak v posteli vysvlékla a začala prakticky s čímkoli, co by se mohlo jevit jako sex nebo pokusy o sex. Šlo o úctu a o sebeúctu.
 
 ## 11.
-
-  
 
 Přijela kolem jedenácté dopoledne. Mathias už byl ve škole, Clemens ho tam odvezl. Clemens sám na ni čekal, nešel do firmy. Rozhodl se, že v osmapadesáti je čas v SOLIDline definitivně skončit, jen si dál držet podíl. Nově chtěl být víc doma, věnovat se Mathiasovi a svým koníčkům, především golfu a obchodování s akciemi. Byl teď šedovlasým starším pánem. Z jeho tváře zmizel knírek, móda se mezitím proměnila. Místo knírku se nad pasem ukázalo pivní bříško. Zestárl a sám to vnímal, nejjasněji právě ve chvílích, jako byla tato.
 
@@ -1073,9 +955,7 @@ Udělalo se mu zle. Zrychlil se mu dech a sevřelo ho na hrudi. Jeho křesla, k
 
 Hleděl na ni přes zeď a nenáviděl ji.
 
-\* \* \*
-
-  
+* * *
 
 Katharinu překvapila jeho mírná reakce. Asi po čtvrt hodině nechala Eilu a šla za ním dovnitř. Viděla, že před ním leží album se starými fotografiemi.
 
@@ -1101,9 +981,7 @@ Katharině v těch chvílích pomalu začínalo docházet, že Clemens definiti
 
 V těch slovech bylo všechno.
 
-\* \* \*
-
-  
+* * *
 
 Katharina byla ráda. Že se s ní Clemens rozvede, ji poprvé napadlo už ve chvíli, kdy parkovala volvem před frankfurtským nádražím. K Janovi domů ale šla s tím, ať to Clemens klidně udělá. Už dávno nebyla mladá, a pokud měla v životě dostat ještě jednu šanci, právě teď byl nejvyšší čas říct si o ni. Kdo by u rozvodového soudu dostal malého, to nevěděla.
 
@@ -1111,17 +989,13 @@ Když o tom druhý den přemýšlela na zpáteční cestě do Wiesbadenu, dosp�
 
 Katharina k tomu později napsala toto: „Mathiasovo dětství jako by v jednotlivosti předjímalo situaci, která s obecnou platností nastoupila až v postmiléniu, kdy se bělochům přestaly rodit děti. Je tomu třeba rozumět doslova tak, že z toho mála, co se bělochům v postimiléniu narodilo, nic nevykazovalo znaky dětskosti, rozhodně ne déle než prvních několik týdnů… Tvrdí se, že za nízkou natalitou stojí sobectví postmileniálních rodičů, jejich pracovní vytížení, orientace pouze na sebe. Pravda je přitom jiná, přichází z druhé strany, je třeba otočit příčinu a následek. Pravda totiž v tomhle případě přichází z postmileniálních děloh. Co se rodí, jsou sobecké a zlé odpornosti, toť příčina, a obecná nechuť rodit, toť následek. Vidíme to kolem sebe, vidíme, co se urodilo. Zvedá se nám žaludek a je pochopitelné, že položíme karty na stůl a řekneme: pass.“
 
-\* \* \*
-
-  
+* * *
 
 Citovaný odstavec vyšel knižně až v roce 2002, čtyři roky po Clemensově smrti. Mathiasovi tehdy bylo třiadvacet a studoval v Berlíně na vysoké škole. Poklepal si tehdy na čelo, když si citovanou pasáž přečetl. S matkou nikdy neměl dobré vztahy, považoval ji za nerudnou a namyšlenou, přičemž – a to bylo na celé záležitosti trapné a pro ni jistě i bolestivé – Katharina pro svoji namyšlenost neměla až tak moc důvodů. Vycházely jí knížky, to byla pravda. Když se však člověk podíval na kontext, ve kterém vycházejí, jejich obsah hned začal vnímat jinak.
 
 Katharina vždy obdivovala a často se asi i snažila napodobit autory, jako byl Bernhard, Céline, Musil či Nietzsche. Líbila se jí grafická úprava a intelektuální sex-appeal knížek z nakladatelství Insel nebo Suhrkamp. Její vlastní texty však vycházely s obálkami, které střídmou estetiku těchto nakladatelských domů pouze napodobovaly, a to pouze do té míry, aby oslovily čerstvé čtyřicátnice, které ve zlomové životní fázi chtěly jít někam „dál“, „jinam“, „do sebe“, a nakonec v rámci této cesty skončily u jógy nebo u knížek Kathariny Walter. Obálky Katharininých textů musely být uzpůsobeny vkusu právě takových čtenářek. Musely do jisté míry vybočovat z toho, na co byly potenciální čtenářky zvyklé, musely být o kousek před nimi, ale ne zas příliš daleko, protože ruce Katharininých čtenářek skutečně kdykoli mohli na stanici S-Bahnu místo po knížce od Kathariny Walter sáhnout po ústřižku s telefonním číslem místní tělocvičny. Katharina za to asi nemohla, ale její knížky prostě byly prezentovány jako lehké čtivo a vycházely v nakladatelství, které vydalo ledacos od kuchařek přes ezoteriku a turistické průvodce. Čísla však byla slušná, pokud šlo o prodané výtisky. Katharina Walter v tomhle směru v Německu patřila do první dvacítky nejprodávanějších autorů.
 
 ## 12.
-
-  
 
 Katharina přeháněla. Mathias Walter byl selfmademan, nebo se za něj alespoň on sám považoval, a s tak složitým podnikem nikdo nezačne dřív než v patnácti. Jeho dětství by klidně šlo s trochou dobré vůle přeskočit. Měl rád počítačovou hru _Star Wars_. Krom toho miloval kino a video, v roce 1988 především postavu a stejnojmenný film s názvem _RoboCop_. V televizi sledoval německy dabovaný _Star Trek_, tedy další příběhy z vesmíru. Když pomineme fakt, že malý Mathias měl tatínka, který byl ve věku spíše dědečka, jeho dětství se nijak výrazně nelišilo od dětství dalších německých chlapců z dobrých rodin.
 
@@ -1145,9 +1019,7 @@ Ta jediná noc, kdy Katharina nebyla na Nerotalu a kdy Mathias až do desíti v
 
 Mathias Jana Rabase nikdy neviděl, ale v té době ho fascinovala představa, že má někde daleko jiného otce. Jednou v létě toho roku, to už byli zpátky z Čech a Eila byla po smrti, Mathias dokonce utekl z domova. Chtěl dojet do Frankfurtu a pak dál do Offenbachu. Dostal se jen na wiesbadenské nádraží, tam mu odmítli prodat lístek a zavolali městskou policii.
 
-\* \* \*
-
-  
+* * *
 
 Pokud šlo o školu, jeho výsledky byly v lepším průměru, ale nevynikaly. Několikrát byl trestaný za šikanu. Jestliže ještě před rokem na kontě neměl ani jednu sluncem upálenou žábu, o rok později jich už byly stovky, pokud ten obrázek trpící žáby přijmeme coby metaforické vyjádření dětské krutosti. Účastnil se skupinových nepravostí, zároveň už si ale pomalu začínal budovat povýšenecký odstup. Stále trpěl nadváhou.
 
@@ -1155,9 +1027,7 @@ V červnu 1988 mu skončila základní škola. Po prázdninách měl nastoupit 
 
 O tom, že nastoupí na gymnázium, rozhodli na poslední chvíli až v květnu. Mezi rodiči to byla doba permanentních tichých hádek a absolutního ticha v posteli; Clemens se dokonce po Katharinině nevěře přestěhoval do své pracovny. Otázka, proč se z ložnice nevystěhuje Katharina, se řešila déle než Mathiasovo další vzdělávání. O tom nakonec rozhodl Clemens, když prohlásil, že chce ze syna mít lékaře.
 
-\* \* \*
-
-  
+* * *
 
 Gymnázium Hily Heussové sídlilo v centru města kousek od hlavního náměstí v historické budově z roku 1889, uzpůsobené požadavkům konce tisíciletí; k dispozici byla mimo jiné i nově vybavená učebna výpočetní techniky. V době, kdy Mathias nastupoval, se chystaly velké oslavy sta let od založení gymnázia.
 
@@ -1165,53 +1035,47 @@ Rok 1989 ale nakonec přinesl jinou velkou událost. Mathias byl teprve ve druh�
 
 ## Z K. knihy
 
-  
+> Co jsem s tím převratem měla dělat? Lezlo mi to na nervy. Najednou všichni museli písemně i ústně reflektovat změny a svobodu na Východě. Pád berlínské zdi, československé předání moci a další události ve východní Evropě, to vše jako by se dělo jen kvůli německému střednímu a vysokému školství. Do té doby se na německých školách do úmoru omílal nacismus a německá vina. Dokonce i ten náš tlustý klučík přišel ještě koncem roku 1988 domů se zadáním, aby na dvou stránkách v krásně nalinkovaném sešitě svými slovy shrnul druhou světovou válku a roli Německa v této válce. Nikoho to nebavilo. Po roce 1989 se konečně tohle husté rýnské červené víno mohlo říznout vychlazenou _cold war_ sodovkou, čímž vznikl docela příjemný historický _spritz_. Pro popis tehdejší doby nenacházím lepší popis než tento: pád struktur.
 
-Co jsem s tím převratem měla dělat? Lezlo mi to na nervy. Najednou všichni museli písemně i ústně reflektovat změny a svobodu na Východě. Pád berlínské zdi, československé předání moci a další události ve východní Evropě, to vše jako by se dělo jen kvůli německému střednímu a vysokému školství. Do té doby se na německých školách do úmoru omílal nacismus a německá vina. Dokonce i ten náš tlustý klučík přišel ještě koncem roku 1988 domů se zadáním, aby na dvou stránkách v krásně nalinkovaném sešitě svými slovy shrnul druhou světovou válku a roli Německa v této válce. Nikoho to nebavilo. Po roce 1989 se konečně tohle husté rýnské červené víno mohlo říznout vychlazenou _cold war_ sodovkou, čímž vznikl docela příjemný historický _spritz_. Pro popis tehdejší doby nenacházím lepší popis než tento: pád struktur.
+> Viděla jsem to i na Mathiasově škole. Všechny pevné konstrukce se zřítily po berlínském vzoru a na rozvaliny lehla duchna dialogu. Zbyla samozřejmě ta učebna výpočetní techniky. Co nejrychleji to šlo, začalo se s přechodem od probírání koncentračních táborů k ťukání do klávesnic na dveře tam kdesi u sousedů. Ťuk, ťuk, ťuk! Tady Německá spolková republika, jak mě slyšíte, Čechoslováci? Místo Cyklonu B konečně e-maily. Komunikace a přátelství.
 
-Viděla jsem to i na Mathiasově škole. Všechny pevné konstrukce se zřítily po berlínském vzoru a na rozvaliny lehla duchna dialogu. Zbyla samozřejmě ta učebna výpočetní techniky. Co nejrychleji to šlo, začalo se s přechodem od probírání koncentračních táborů k ťukání do klávesnic na dveře tam kdesi u sousedů. Ťuk, ťuk, ťuk! Tady Německá spolková republika, jak mě slyšíte, Čechoslováci? Místo Cyklonu B konečně e-maily. Komunikace a přátelství.
+> Když malý přišel s tím, že jeho gymnázium bude navazovat partnerství s gymnáziem v Broumově a že do Broumova pravděpodobně už brzy pojednou na výměnu, pomyslela jsem si, jaká náhoda! Ale vlastně o žádnou náhodu nešlo. Wiesbaden byl i koncem osmdesátých let baštou reakce, do jisté míry stále nacistické doupě. Na Friedrichstraße sídlila hesenská zemská pobočka Sudetoněmeckého landsmanšaftu. Pokud si Mathiasovo gymnázium mělo vybrat partnerské město, přišlo mi zcela logické, že si najdou město někde v Sudetech.
 
-Když malý přišel s tím, že jeho gymnázium bude navazovat partnerství s gymnáziem v Broumově a že do Broumova pravděpodobně už brzy pojednou na výměnu, pomyslela jsem si, jaká náhoda! Ale vlastně o žádnou náhodu nešlo. Wiesbaden byl i koncem osmdesátých let baštou reakce, do jisté míry stále nacistické doupě. Na Friedrichstraße sídlila hesenská zemská pobočka Sudetoněmeckého landsmanšaftu. Pokud si Mathiasovo gymnázium mělo vybrat partnerské město, přišlo mi zcela logické, že si najdou město někde v Sudetech.
+> Pád zdi mi v každém případě nevyhovoval, znervózňoval mě, přesně jak jsem to předpověděla při rozhovoru s Janem Rabasem o rok a půl dřív. Navíc to znamenalo nutnost vyřešit množství praktických otázek. Musela jsem kupříkladu do Německa pozvat maminku, tak se to prostě tehdy dělalo; kdo měl někoho důležitého za zdí, automaticky ho po pádu zdi zval k sobě na návštěvu. Vládl nám tehdy duch doby, duch sbratření a opětovného zmaminkování. Mohla jsem duchu doby nastokrát namítat, že jsme v Čechách byli před pouhým rokem a že tím návštěvy z části považuji za vyřízené. Mohla jsem na stokrát argumentovat, že na návštěvu teď není vhodná doba, protože s Clemensem je to k nevydržení. Doba mi nedopřála sluchu. Velela pozvat maminku!
 
-Pád zdi mi v každém případě nevyhovoval, znervózňoval mě, přesně jak jsem to předpověděla při rozhovoru s Janem Rabasem o rok a půl dřív. Navíc to znamenalo nutnost vyřešit množství praktických otázek. Musela jsem kupříkladu do Německa pozvat maminku, tak se to prostě tehdy dělalo; kdo měl někoho důležitého za zdí, automaticky ho po pádu zdi zval k sobě na návštěvu. Vládl nám tehdy duch doby, duch sbratření a opětovného zmaminkování. Mohla jsem duchu doby nastokrát namítat, že jsme v Čechách byli před pouhým rokem a že tím návštěvy z části považuji za vyřízené. Mohla jsem na stokrát argumentovat, že na návštěvu teď není vhodná doba, protože s Clemensem je to k nevydržení. Doba mi nedopřála sluchu. Velela pozvat maminku!
+> „Takže Mathias pojede tam,“ řekl Clemens s despektem. „A tvoje máti sem, je to tak?“ zeptal se.
 
-„Takže Mathias pojede tam,“ řekl Clemens s despektem. „A tvoje máti sem, je to tak?“ zeptal se.
+> To už byl březen 1990, Mathiasovi bylo bez pár měsíců jedenáct let. Co jsem na to Clemensovi měla říct? Co se dělo, se mu také nelíbilo.
 
-To už byl březen 1990, Mathiasovi bylo bez pár měsíců jedenáct let. Co jsem na to Clemensovi měla říct? Co se dělo, se mu také nelíbilo.
+> „Můžeme naše manželství zachránit společným odporem ke svobodě,“ navrhla jsem vstřícně.
 
-„Můžeme naše manželství zachránit společným odporem ke svobodě,“ navrhla jsem vstřícně.
+> „A chce tam vůbec…? Chceš tam?“ otočil se Clemens k malému, který zrovna snídal před cestou do školy.
 
-„A chce tam vůbec…? Chceš tam?“ otočil se Clemens k malému, který zrovna snídal před cestou do školy.
+> Za poslední rok se Mathias trochu vytáhl, stále však trpěl nadváhou. Po Clemensovi měl husté hnědé vlasy a na buclatého kluka trochu moc úzké rty.
 
-Za poslední rok se Mathias trochu vytáhl, stále však trpěl nadváhou. Po Clemensovi měl husté hnědé vlasy a na buclatého kluka trochu moc úzké rty.
+> Mathias zakroutil hlavou a dál lžící bagroval sladké lupínky Kellogs s mlékem.
 
-Mathias zakroutil hlavou a dál lžící bagroval sladké lupínky Kellogs s mlékem.
+> „Tohle by neměl jíst. Je to samý cukr,“ řekla jsem Clemensovi.
 
-„Tohle by neměl jíst. Je to samý cukr,“ řekla jsem Clemensovi.
+> Clemens vzal ze stolu krabici a ukázal na nápis: „Vápník! Dodá denní dávku vápníku.“
 
-Clemens vzal ze stolu krabici a ukázal na nápis: „Vápník! Dodá denní dávku vápníku.“
+> Mathias později za svoji tloušťku, které se s vypětím sil zbavil až někdy v šestnácti nebo sedmnácti, vinil mě. Skutečnost ale byla taková, že ho v těch rozhodujících letech řídil spíše Clemens, přesněji řečeno, dával mu, o co si Mathias řekl. Díl viny přitom samozřejmě neslo i Clemensovo stáří. Clemens pocházel z válečné generace a „vápník“ pro něj jednoduše znamenal „zdraví“; že je v těch lupíncích krom „vápníku“ i kvantum cukru bez uvozovek, to bylo nad jeho chápání.
 
-Mathias později za svoji tloušťku, které se s vypětím sil zbavil až někdy v šestnácti nebo sedmnácti, vinil mě. Skutečnost ale byla taková, že ho v těch rozhodujících letech řídil spíše Clemens, přesněji řečeno, dával mu, o co si Mathias řekl. Díl viny přitom samozřejmě neslo i Clemensovo stáří. Clemens pocházel z válečné generace a „vápník“ pro něj jednoduše znamenal „zdraví“; že je v těch lupíncích krom „vápníku“ i kvantum cukru bez uvozovek, to bylo nad jeho chápání.
+> Mathias vzal prázdnou misku, zle se na mě podíval a třískl s miskou o zem. Pak dal otci pusu na tvář a odešel do školy.
 
-Mathias vzal prázdnou misku, zle se na mě podíval a třískl s miskou o zem. Pak dal otci pusu na tvář a odešel do školy.
+> „Víš, že tě na slovo poslouchá a málem ti zobe z ruky jen kvůli tomu, že ti je, kolik ti je?“ zeptala jsem se Clemense.
 
-„Víš, že tě na slovo poslouchá a málem ti zobe z ruky jen kvůli tomu, že ti je, kolik ti je?“ zeptala jsem se Clemense.
+> Co jsem pak dodala, jsem možná říkat neměla, ale stalo se:
 
-Co jsem pak dodala, jsem možná říkat neměla, ale stalo se:
+> „Mojí jedinou nadějí by byl oidipovský komplex,“ řekla jsem. „To jediné by mě v tomhle pekle mohlo spasit. Jeho chuť zavraždit tě. Jenomže,“ nadechla jsem se, zatímco jsem sklízela střepy z podlahy. „On tě zavraždit nechce, a to nikoli z toho důvodu, že by tě měl nějak bůhvíjak rád, ale prostě proto, že v tobě nevidí rivala. Nechce tě zabít, protože ho ani v podvědomí nenapadne, že bys se mnou mohl spát.“
 
-„Mojí jedinou nadějí by byl oidipovský komplex,“ řekla jsem. „To jediné by mě v tomhle pekle mohlo spasit. Jeho chuť zavraždit tě. Jenomže,“ nadechla jsem se, zatímco jsem sklízela střepy z podlahy. „On tě zavraždit nechce, a to nikoli z toho důvodu, že by tě měl nějak bůhvíjak rád, ale prostě proto, že v tobě nevidí rivala. Nechce tě zabít, protože ho ani v podvědomí nenapadne, že bys se mnou mohl spát.“
-
-A do tohohle měla přijet moje maminka.
+> A do tohohle měla přijet moje maminka.
 
 ## 14.
-
-  
 
 Nakonec se uskutečnila jen jedna cesta, Mathias do Broumova jet odmítl. Stará paní Sadovská si pobyt ve Wiesbadenu v rámci možností užila. Její odpor ke všemu německému však trval. Byla to její vůbec první cesta na Západ. Obměkčit se ji dařilo pouze nákupy. Snad nejlépe celý její pobyt vystihuje věta, kterou Helena Sadovská řekla hned ve chvíli, kdy ji její dcera oficiálně zvala: „Nebudu rušit.“
 
 ## 15.
-
-  
 
 Helena Sadovská zemřela v červnu 1995. Jen o dva měsíce později zemřel Hans Schiller, právník a manžel Katharininy polské přítelkyně Gosii. Clemensovi bylo pětašedesát a měl žít už pouhé dva roky. Šestnáctiletý Mathias se právě intenzivně začínal zajímat o své tělo; sportoval, přemýšlel o tom, co jí, a skutečně vypadal s každým měsícem lépe. Ze všech těch údajů o věku a stáří je ale tou nejzajímavější cifrou ta Katharinina. Bylo jí už jednačtyřicet.
 
@@ -1229,9 +1093,7 @@ O něco horší to ale bylo s literární kritikou. Ne že by její knihy krit
 
 Nedařilo se jí.
 
-\* \* \*
-
-  
+* * *
 
 Byla náladová, podrážděná, prakticky po celých těch sedm let od roku 1990, kdy jí vyšla první kniha, až do Clemensovy smrti. Její reakce se předem nikdy nedala odhadnout. Hodně záleželo na tom, jak se jí psalo. Někdy v polovině roku 1990, pár měsíců po vydání prvotiny, si v patře z nepoužívaného pokoje zařídila pracovnu. Vycházela z ní jako ve snách, nikdo na ni nesměl v první půlhodině promluvit. Clemens měl pocit, že tohle všechno přišlo až příliš rychle; ještě před půl rokem neměl ani tušení, že o půl roku později bude žít s někým, kdo celý svůj život – a podle všeho už docela dlouho – podřizuje literatuře.
 
@@ -1239,9 +1101,7 @@ Znovu začal pravidelně chodit s Eilou na Neroberg; po smrti první Eily si ih
 
 Ta otázka, která na jednu stranu byla poměrně na místě, mu zároveň připadala absurdní a spontánně by na ni odpověděl: „Ovšemže ne.“ Nikdo by mu sice nevěřil, že z něj nemluví nepřejícnost nebo že nejde o pomstu za bůhvíjaké Katharininy hříchy, takže o tom přímo takto s nikým nemluvil, zvláště před Hannou ne. Sám ale nejlépe věděl, že v tomhle případě skutečně nejde o nic jiného než pouze o zcela upřímný údiv.
 
-\* \* \*
-
-  
+* * *
 
 Katharinino psaní samozřejmě mělo dopady i v úplně praktických záležitostech. Clemens si na to v mnoha směrech postupně zvykl; v některých ohledech snáze, v jiných to bylo těžší. Tak trochu se v tomhle období vracel do dětství, do let střídmosti a nutného omezení se z válečných let.
 
@@ -1249,9 +1109,7 @@ Pokud šlo o jídlo, vaření a nakupování, to až tak velký problém nebyl
 
 Život v Clemensově případě čerpal svoji dynamiku z válečných let, vykládal se z minulosti, z doby Clemensova válečného dětství. Tam byl jeho úhelný kámen, odsud se jeho život rozevíral, nikoli z jakéhosi hypotetického budoucna, jako tomu bylo u Kathariny a u všech generací po ní. Pro Clemense a pro jeho generaci jídlo představovalo zdraví, nasycení a život, doslova přežití. Pro Katharinu a generace po ní na druhé straně jídlo představovalo nutné zlo a ohrožení života; zatímco Clemens si obrazně řečeno – a často i doslova – musel pro jídlo chodit, a čím víc se mu toho jídla podařilo najít a přinést, tím lépe, ke Katharině jídlo přicházelo jako v nějaké digitální hře a Katharina ho musela odmítat a sestřelovat. Musela sestřelovat všechno jídlo, které bylo nad míru, přičemž onou mírou bylo přežití. Oba v jídle viděli prostředek, jak zabránit smrti, každý ale v úplně jiném smyslu a především s úplně jiným znaménkem.
 
-\* \* \*
-
-  
+* * *
 
 V polovině srpna 1997 si po návratu z jedné z procházek na Neroberg poprvé na toaletě při splachování všiml, že má ve stolici sytě rudou příměs, pravděpodobně krev. Na hemeroidy nikdy netrpěl, tuhle variantu mohl téměř jistě vyloučit. Zároveň v poslední době trochu ztratil na váze, míval zácpu a celkově mu bylo hůře, než na co býval zvyklý.
 
@@ -1279,75 +1137,67 @@ Hanna pak zklamala samu sebe. Ale nemohla si pomoct. Měla pocit, že mluví se 
 
 „Ach, moje milá, jak ty můžeš psát knížky, když jsi úplně slepá!“ řekla jí a zavěsila.
 
-\* \* \*
-
-  
+* * *
 
 Ihned toho litovala, ale skutečně si nemohla pomoct. Nikdy neviděla jasněji, že Katharina je parazit, který přelezl odtamtud sem. A odtamtud přitom bude vždycky odjinud, ať se ti odtamtud snaží o cokoli. Evropa, humanita, vyspělost, to všechno stojí na Hannině straně a má to své přirozené geografické meze. Němci jako národ dělali v historii chyby, velké chyby, krom toho ale udělali i spoustu dobrých věcí, co se týče vzdělanosti, vědy, sjednocení Německa. Hanna ze sjednocení nadšená nebyla, stejně jako mnoho lidí ze starých spolkových zemí, ale vnímala sjednocení jako jejich národní povinnost, pomoc od Němců Němcům. Co ale pro Hannu bylo mnohem důležitější, byl charakter, povaha těch německých výkonů, ať už šlo o chyby, nebo o skvělost. Vždy to byly činy, které byly dělané s plným nasazením a s vědomím všech rizik. Schopnost dělat chyby a přijmout odpovědnost, třeba přijetí odpovědnosti za druhou světovou válku a za Hitlera, to všechno jsou projevy dospělosti, velikosti, sebejistoty. A vedle toho Katharinina povýšenost, její sprosté a zlé texty, u nichž vlastně vůbec není jasné, jestli k objektům svého zájmu přistupují svrchu, nebo naopak odspodu, jestli své postavy atakují od země, nebo z nadhledu, z převahy, nebo úplně zákeřně, jestli je to pravda, nebo fikce. A Katharinini bývalí spoluobčané zatím v Mnichově, Řezně a Pasově kradou v nákupních centrech a v obchoďácích, jsou toho plné noviny. Je to trapné a vzbuzuje to úplně stejné rozpaky, jako Katharininy knížky. Nenechat se chytit. O to Čechům jde.
 
 ## Z K. knihy
 
-  
+> Bylo mu teprve sedmašedesát let, prognóza ale nevypadala dobře. Dověděli jsme se to v půlce prosince, chvíli před svátky, Mathias už byl tři měsíce v Berlíně. Lékař mi řekl, že Clemens může žít ještě tak čtvrt roku, spíše méně. Operace připadala v úvahu, její výsledky ale byly nejisté a samozřejmě mohla celou záležitost ještě uspíšit.
 
-Bylo mu teprve sedmašedesát let, prognóza ale nevypadala dobře. Dověděli jsme se to v půlce prosince, chvíli před svátky, Mathias už byl tři měsíce v Berlíně. Lékař mi řekl, že Clemens může žít ještě tak čtvrt roku, spíše méně. Operace připadala v úvahu, její výsledky ale byly nejisté a samozřejmě mohla celou záležitost ještě uspíšit.
+> Rozhodně jsem byla pro operaci. Clemens byl proti. Podařilo se mi ho přemluvit. Zavolala jsem Mathiasovi do Berlína, vrátil se týden před operací, hned po vánočních svátcích, které ještě trávil v Berlíně.
 
-Rozhodně jsem byla pro operaci. Clemens byl proti. Podařilo se mi ho přemluvit. Zavolala jsem Mathiasovi do Berlína, vrátil se týden před operací, hned po vánočních svátcích, které ještě trávil v Berlíně.
+> Té nešťastné a rychle naplánované operace jsem okamžitě litovala. Ani v nejmenším nešlo o chirurgický zákrok, byla to operace čistě finanční. Z Clemensovy pojistky pro nemocnici odčerpala tisíce marek, jinak byla absolutně k ničemu.
 
-Té nešťastné a rychle naplánované operace jsem okamžitě litovala. Ani v nejmenším nešlo o chirurgický zákrok, byla to operace čistě finanční. Z Clemensovy pojistky pro nemocnici odčerpala tisíce marek, jinak byla absolutně k ničemu.
+> Clemens den po operaci upadl do kómatu a převezli ho na jiné oddělení v jiné budově. O týden později, konkrétně desátého ledna 1998 pár minut po poledni došlo k ireverzibilní ztrátě všech mozkových funkcí a zástavě spontánního dýchání. Clemensova ztuhlá tvář s očima zamazanýma vazelínou to ani v náznaku nezaregistrovala. Nemocnicím by se mělo zakázat, aby své podnikání zakládaly na pokusech o nemožné.
 
-Clemens den po operaci upadl do kómatu a převezli ho na jiné oddělení v jiné budově. O týden později, konkrétně desátého ledna 1998 pár minut po poledni došlo k ireverzibilní ztrátě všech mozkových funkcí a zástavě spontánního dýchání. Clemensova ztuhlá tvář s očima zamazanýma vazelínou to ani v náznaku nezaregistrovala. Nemocnicím by se mělo zakázat, aby své podnikání zakládaly na pokusech o nemožné.
+* * *
 
-\* \* \*
+> Mathias si myslel, že má ke svému otci mnohem blíž, než tomu bylo ve skutečnosti.
 
-  
+> Když se měl před Clemensovou operací vrátit na chvíli z Berlína, kde právě nastoupil na medicínu, udělala jsem všechno pro to, abych se o něj co nejlépe postarala. Clemens byl v nemocnici, poklidila jsem dům, připravila jsem Mathiasův pokoj, došla jsem nakoupit. Měla jsem v plánu udělat Mathiasovi radost, hlavně se s ním proboha nehádat, nedráždit ho. Domácnost jsem poslední dobou zanedbávala, to byl fakt, Mathiase to v době před jeho odjezdem do Berlína iritovalo. On sám měl rád uklizeno a čisto, jeho pokoj podle mě vůbec nevypadal jako typický pokoj osmnáctiletého mladíka. Ale byla to jeho věc, nemluvila jsem mu do toho, ačkoli jsem si myslela, že dělá chybu, když jen studuje a udržuje se v absolutní čistotě.
 
-Mathias si myslel, že má ke svému otci mnohem blíž, než tomu bylo ve skutečnosti.
+> V supermarketu REWE pod Nerotalem, když jsem se tam chtěla nechat inspirovat, hned mi do oka padla chlazená kachna. Málem mi při tom vhrkly slzy do očí, ať to zní jakkoli hloupě. Vzpomněla jsem si totiž na Clemense, na jeho apetit a na jedno z jeho oblíbených jídel. Pečenou kachnu s knedlíkem a se zelím miloval. Když se ode mě hned v začátcích našeho vztahu dověděl, že tohle jídlo máme rádi i v Čechách, prohlásil kachnu s knedlíkem za náš společný mezinárodní poklad. Od té doby už vyznával lásku jenom pečené kachně. Připadalo mu, že debatou o propečenosti plní svoji manželskou povinnost. Jakmile pochválil pečenou kachnu, vždy si v duchu udělal čárku, že pochválil jednou vodou i mě a Čechy.
 
-Když se měl před Clemensovou operací vrátit na chvíli z Berlína, kde právě nastoupil na medicínu, udělala jsem všechno pro to, abych se o něj co nejlépe postarala. Clemens byl v nemocnici, poklidila jsem dům, připravila jsem Mathiasův pokoj, došla jsem nakoupit. Měla jsem v plánu udělat Mathiasovi radost, hlavně se s ním proboha nehádat, nedráždit ho. Domácnost jsem poslední dobou zanedbávala, to byl fakt, Mathiase to v době před jeho odjezdem do Berlína iritovalo. On sám měl rád uklizeno a čisto, jeho pokoj podle mě vůbec nevypadal jako typický pokoj osmnáctiletého mladíka. Ale byla to jeho věc, nemluvila jsem mu do toho, ačkoli jsem si myslela, že dělá chybu, když jen studuje a udržuje se v absolutní čistotě.
+> Jeho pojídání pečené kachny bylo až legendární. Pokud bych to jen maličko přehnala, na Clemensův souboj s kachnou pravidelně každý rok čekal celý Davos. Clemens si ji objednával s dvojitou porcí zelí a knedlíků, lázně nelázně, a nakonec po něm zůstal jen vymetený talíř. Dokázal sníst úplně všechno včetně kostí. Bavil tím všechny kolem; on, bohatý zákazník v Davosu, dokáže s chutí sníst půlku pečené kachny se vším všudy: s kostmi, s kůžemi, s biskupem. Obdivovala jsem ho, sama bych kosti nebo kachní zadek nikdy nesnědla. Kůže, ty ano.
 
-V supermarketu REWE pod Nerotalem, když jsem se tam chtěla nechat inspirovat, hned mi do oka padla chlazená kachna. Málem mi při tom vhrkly slzy do očí, ať to zní jakkoli hloupě. Vzpomněla jsem si totiž na Clemense, na jeho apetit a na jedno z jeho oblíbených jídel. Pečenou kachnu s knedlíkem a se zelím miloval. Když se ode mě hned v začátcích našeho vztahu dověděl, že tohle jídlo máme rádi i v Čechách, prohlásil kachnu s knedlíkem za náš společný mezinárodní poklad. Od té doby už vyznával lásku jenom pečené kachně. Připadalo mu, že debatou o propečenosti plní svoji manželskou povinnost. Jakmile pochválil pečenou kachnu, vždy si v duchu udělal čárku, že pochválil jednou vodou i mě a Čechy.
+> Koupila jsem v REWE kachnu, zelí a knedlíky v prášku. Vařila jsem na Clemensovu počest a byla jsem přesvědčená, že Mathias moji snahu musí ocenit. Chtěla jsem Mathiase přesvědčit o tom, že mi křivdí. Chtěla jsem se mu omluvit za svoje nálady a podrážděnost.
 
-Jeho pojídání pečené kachny bylo až legendární. Pokud bych to jen maličko přehnala, na Clemensův souboj s kachnou pravidelně každý rok čekal celý Davos. Clemens si ji objednával s dvojitou porcí zelí a knedlíků, lázně nelázně, a nakonec po něm zůstal jen vymetený talíř. Dokázal sníst úplně všechno včetně kostí. Bavil tím všechny kolem; on, bohatý zákazník v Davosu, dokáže s chutí sníst půlku pečené kachny se vším všudy: s kostmi, s kůžemi, s biskupem. Obdivovala jsem ho, sama bych kosti nebo kachní zadek nikdy nesnědla. Kůže, ty ano.
+> Přijel a vše vypadalo docela v pořádku. Měl obavy, duchem byl někde jinde, jako první chtěl jet za svým otcem do nemocnice. Naposledy jsem ho viděla před dvěma měsíci, než odjel do Berlína. Zas o trochu zhubl, asi i cvičil. Řekla jsem mu, že je to podle mě dobře, že mu to prospívá, že nejde jen ležet v knížkách.
 
-Koupila jsem v REWE kachnu, zelí a knedlíky v prášku. Vařila jsem na Clemensovu počest a byla jsem přesvědčená, že Mathias moji snahu musí ocenit. Chtěla jsem Mathiase přesvědčit o tom, že mi křivdí. Chtěla jsem se mu omluvit za svoje nálady a podrážděnost.
+> Okamžitě vyletěl, zrovna jsem parkovala před nemocnicí:
 
-Přijel a vše vypadalo docela v pořádku. Měl obavy, duchem byl někde jinde, jako první chtěl jet za svým otcem do nemocnice. Naposledy jsem ho viděla před dvěma měsíci, než odjel do Berlína. Zas o trochu zhubl, asi i cvičil. Řekla jsem mu, že je to podle mě dobře, že mu to prospívá, že nejde jen ležet v knížkách.
+> „Mlč proboha, drž o tom hubu! Nechci, abys mě chválila, nechci, abys mi radila, nechci… Mlč, prosím tě. Zvládneš to?“
 
-Okamžitě vyletěl, zrovna jsem parkovala před nemocnicí:
+> Až později jsem pochopila, jak moc si komplikoval život a jak moc ho moje dobře míněná slova musela dráždit.
 
-„Mlč proboha, drž o tom hubu! Nechci, abys mě chválila, nechci, abys mi radila, nechci… Mlč, prosím tě. Zvládneš to?“
+> Ani s kachnou jsem neuspěla. Sotva jsme přijeli zpátky na Nerotal, Mathias si zalezl nahoru do pokoje. Zavolala jsem na něj, že ohřívám jídlo a že bude tak za čtvrt hodiny. Překvapil mě, za čtvrt hodiny skutečně sám od sebe sešel dolů. Pravděpodobně to mělo úplně jednoduché vysvětlení. Měl hlad. Trápil se hlady, aby zhubl, takže měl hlad, to dá rozum.
 
-Až později jsem pochopila, jak moc si komplikoval život a jak moc ho moje dobře míněná slova musela dráždit.
+> Měl hlad. Přišel sám od sebe dolů k jídlu. Ale odmítal jíst.
 
-Ani s kachnou jsem neuspěla. Sotva jsme přijeli zpátky na Nerotal, Mathias si zalezl nahoru do pokoje. Zavolala jsem na něj, že ohřívám jídlo a že bude tak za čtvrt hodiny. Překvapil mě, za čtvrt hodiny skutečně sám od sebe sešel dolů. Pravděpodobně to mělo úplně jednoduché vysvětlení. Měl hlad. Trápil se hlady, aby zhubl, takže měl hlad, to dá rozum.
+> Když jsem ho viděla stát nad tím pěkně prostřeným stolem, srdce mi ustrnulo. Nevím, jestli mi v tu chvíli bylo víc líto v nemocnici ležícího Clemense, nebo Mathiase. Hleděl na to tradiční a docela nekomplikované jídlo jako na neřešitelný rébus. Skláněl se nad stolem jako Hitler nad mapou se zaznačenými pozicemi sovětských armád blížících se k Berlínu. Děs, panika, úzkost, ale i vztek a odhodlání. Jak z toho uniknout? Kudy proklouznout ze sevření knedlíků?
 
-Měl hlad. Přišel sám od sebe dolů k jídlu. Ale odmítal jíst.
+> „No tak, Mathiasi, jednou za čas…,“ řekla jsem mu velmi citlivě. „Jednou za čas… Neboj se.“
 
-Když jsem ho viděla stát nad tím pěkně prostřeným stolem, srdce mi ustrnulo. Nevím, jestli mi v tu chvíli bylo víc líto v nemocnici ležícího Clemense, nebo Mathiase. Hleděl na to tradiční a docela nekomplikované jídlo jako na neřešitelný rébus. Skláněl se nad stolem jako Hitler nad mapou se zaznačenými pozicemi sovětských armád blížících se k Berlínu. Děs, panika, úzkost, ale i vztek a odhodlání. Jak z toho uniknout? Kudy proklouznout ze sevření knedlíků?
+> Na jedné straně jsem měla radost, že se zamyslel nad svojí výživou. Na druhé straně mě zase zklamávalo, jak moc byl důsledný. Krom toho jsem si uvědomila, co všechno musel prožívat před nemocnicí, když jsem ho pochválila za to, že zhubl a že se mu začaly rýsovat svaly. Iritovalo ho to, nutně to v něm muselo vzbudit v řadě další paniku. Nechtěl být jako já, chtěl být jako Clemens. Nechtěl, abych s ním souhlasila a abych ho chválila. Nechtěl byť i jen náznakem připustit, že jde spíše mojí cestou, že následuje moje rady a zastává moje postoje.
 
-„No tak, Mathiasi, jednou za čas…,“ řekla jsem mu velmi citlivě. „Jednou za čas… Neboj se.“
+> „Clemens je stará škola,“ řekla jsem mu, zatímco jsem si sama začala nandavat na talíř. „Zažil válku. Kachnu sní i s kostmi. Nemůžeš se s ním v tomhle směru poměřovat, Mathiasi.“
 
-Na jedné straně jsem měla radost, že se zamyslel nad svojí výživou. Na druhé straně mě zase zklamávalo, jak moc byl důsledný. Krom toho jsem si uvědomila, co všechno musel prožívat před nemocnicí, když jsem ho pochválila za to, že zhubl a že se mu začaly rýsovat svaly. Iritovalo ho to, nutně to v něm muselo vzbudit v řadě další paniku. Nechtěl být jako já, chtěl být jako Clemens. Nechtěl, abych s ním souhlasila a abych ho chválila. Nechtěl byť i jen náznakem připustit, že jde spíše mojí cestou, že následuje moje rady a zastává moje postoje.
+> Pak jsem dodala: „V životě nic není úplně jednoznačné, nic není černé nebo bílé. Tvůj otec pečenou kachnu miluje, proto jsem ji dneska upekla, kvůli němu. Jeho nemoc… Sám víš moc dobře, jak jedl, co měl rád. Nikdy mě v tomhle směru neposlouchal, měl svoji hlavu. Stokrát jsem mu říkala, že by měl jíst víc ovoce a zeleniny, stokrát jsem mu říkala, že salámy jsou samá sůl, tuky a bůhví co. Rozhodně nic zdravého. My už na to asi máme buňky, Mathiasi, máme na to čich, odhadneme to. On je ale úplně jiná generace.“
 
-„Clemens je stará škola,“ řekla jsem mu, zatímco jsem si sama začala nandavat na talíř. „Zažil válku. Kachnu sní i s kostmi. Nemůžeš se s ním v tomhle směru poměřovat, Mathiasi.“
+> Mathias mne ignoroval. Stál před problémem, dosud si nesedl, a řešil ho.
 
-Pak jsem dodala: „V životě nic není úplně jednoznačné, nic není černé nebo bílé. Tvůj otec pečenou kachnu miluje, proto jsem ji dneska upekla, kvůli němu. Jeho nemoc… Sám víš moc dobře, jak jedl, co měl rád. Nikdy mě v tomhle směru neposlouchal, měl svoji hlavu. Stokrát jsem mu říkala, že by měl jíst víc ovoce a zeleniny, stokrát jsem mu říkala, že salámy jsou samá sůl, tuky a bůhví co. Rozhodně nic zdravého. My už na to asi máme buňky, Mathiasi, máme na to čich, odhadneme to. On je ale úplně jiná generace.“
+> Knedlíky úplně odmítl, o těch v nejmenším nehodlal disku­tovat. Poté vzal z pekáče do prstů za úplný koneček jedno z kachních stehen. Úmyslně jsem mu je tam nechala obě, považovala jsem stehna za ty nejlepší kousky.
 
-Mathias mne ignoroval. Stál před problémem, dosud si nesedl, a řešil ho.
+> Položil si stehno na talíř, ani teď si ještě nesedl, a přesnými pohyby ze stehna svlékl krásně propečenou kůžičku. Pomyslela jsem při tom na jeho právě nastoupené studium. Mathias na medicíně bude na pravém místě, zvláště na chirurgii by se vyjímal.
 
-Knedlíky úplně odmítl, o těch v nejmenším nehodlal disku­tovat. Poté vzal z pekáče do prstů za úplný koneček jedno z kachních stehen. Úmyslně jsem mu je tam nechala obě, považovala jsem stehna za ty nejlepší kousky.
+> „Klidně jez,“ řekl, načež i s talířem a stehnem přešel k naší kuchyňské lince.
 
-Položil si stehno na talíř, ani teď si ještě nesedl, a přesnými pohyby ze stehna svlékl krásně propečenou kůžičku. Pomyslela jsem při tom na jeho právě nastoupené studium. Mathias na medicíně bude na pravém místě, zvláště na chirurgii by se vyjímal.
+> Pustil vodu nad dřezem, nohou klepl do šlapky odpadkového koše.
 
-„Klidně jez,“ řekl, načež i s talířem a stehnem přešel k naší kuchyňské lince.
-
-Pustil vodu nad dřezem, nohou klepl do šlapky odpadkového koše.
-
-Poté dvěma rychlými gesty, jako by po celý život nedělal nic jiného, jednou rukou hodil do odpadkového koše propečenou kachní kůži a druhou rukou vložil kachní stehno pod tekoucí vodu, aby ze stehna smyl všechen přebytečný tuk. Otec neotec.
+> Poté dvěma rychlými gesty, jako by po celý život nedělal nic jiného, jednou rukou hodil do odpadkového koše propečenou kachní kůži a druhou rukou vložil kachní stehno pod tekoucí vodu, aby ze stehna smyl všechen přebytečný tuk. Otec neotec.
 
 ## 17
-
-  
 
 Je otázka, zda Mathiasova láska k otci byla láskou k otci či neláskou k matce. Faktem je, že bez otce pro něj Nerotal a celý Wiesbaden ztratil smysl.
 
@@ -1359,9 +1209,7 @@ Pozoruhodným detailem přitom je, že Mathias na rozdíl od matky s Clemensem 
 
 Jak dobré měl Mathias pro odjezd důvody, těžko soudit. Pravda byla, že teprve v září nastoupil na náročnou školu, na berlínskou medicínu na Humboldtově univerzitě. Byla to jedna z nejprestižnějších škol v Německu a Mathias údajně už nemohl na univerzitě víc zanedbat. Zkouškové období mu mělo začít za pár dní.
 
-\* \* \*
-
-  
+* * *
 
 Berlín mu podle všeho svědčil. Když si znovu odskočil na pohřeb, to bylo čtrnáctého ledna, tedy pouhé tři dny po posledním odjezdu, přijel do Wiesbadenu ve výborné formě. Působil sebejistě. I jeho oblečení jako by bylo lepší; přivezl si trika s límečkem značky Lacoste, úzké plátěné kalhoty a kožené tenisky s bílou podrážkou. Působil jako fracek z univerzitního studentského bratrstva, přestože v Berlíně studoval na demokratické a spíše levicově zaměřené škole.
 
@@ -1383,9 +1231,7 @@ Berlín, pomyslela si Katharina, to musí být úplný blázinec.
 
 Vysvětlení však bylo jiné. Nešlo o bláznění, nýbrž o sex.
 
-\* \* \*
-
-  
+* * *
 
 Možná to nebyla pouhá náhoda, že Mathias přišel o panictví jen dva dny po úmrtí svého otce. V souvislosti s tou smrtí pocítil ohromnou absenci, úzkost i zlobu. Troufal si, na co by si jindy netroufl.
 

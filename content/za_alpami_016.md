@@ -5,8 +5,6 @@ contentType: prose
 
 ## 1.
 
-  
-
 Jeho let společnosti Air France z Paříže přistál brzy ráno třiadvacátého prosince 2007 ve Frankfurtu. Mathias byl unavený, klepal se zimou a bolela ho hlava.
 
 Sylviane předevčírem z hotelu odešla už kolem poledne, měl pak ještě sám pro sebe celý zbytek dne a noc. Přestože jinak pil jen výjimečně, koupil si po jejím odjezdu v hotelovém baru láhev whiskey. Druhý den pokračoval s pitím už u snídaně. Něco vypil i na letišti v Paříži, zatímco čekal na přestup.
@@ -21,9 +19,7 @@ Přes svátky intenzivně pracoval. Napsal dva odborné články, jeden na téma
 
 Vrátil svému životu rytmus: práce, každý druhý víkend Offenbach a Robert Johnson. Co zažil v Čadu, vnímal jako vybočení, které už se nemělo opakovat.
 
-\* \* \*
-
-  
+* * *
 
 Maria se vrátila za čtyři týdny, koncem ledna. Také ona si z Afriky krom mnoha silných zážitků odnášela i jedno tajemství.
 
@@ -41,9 +37,7 @@ Znala ho. Věděla, že se Mathias dokáže chovat jako rozmazlené dítě, ani 
 
 Mathias pro ni přijel na letiště, vzal si kvůli tomu na klinice na odpoledne volno. O Tomassovi mu nic neřekla.
 
-\* \* \*
-
-  
+* * *
 
 V březnu 2009 se jim v Berlíně narodila Magda. Dobře prospívala, rodiče byli šťastní.
 
@@ -57,9 +51,7 @@ Práce, rodina, techno. Ve všech třech sférách měl zcela otevřené pole p�
 
 Musel pryč. Takhle jí to řekl. Nejdřív to byl nápad, námět k diskusi. Už po čtvrt hodině se ale ukázalo, že je to nutnost. Vlastně to byla ta úplně první nutnost, před kterou ji postavil. Musím pryč. Maria si po jeho slovech instinktivně položila ruku na břicho, v němž už byl nový život.
 
-\* \* \*
-
-  
+* * *
 
 Znovu ta stejná otázka. Chtěla být co nejblíž Stuttgartu. Zvláště s dítětem se přece prarodiče budou hodit. Navíc stále doufala, že Mathias přestane jezdit do Offenbachu a začne místo toho jezdit jen o pár desítek kilometrů dál do Wiesbadenu za svojí matkou; další občasná chůva by taky přišla vhod. Norimberk, kde bydleli, byl z tohohle hlediska ideální místo. Mathias ale stále chtěl na sever. Do Brém nebo do Hamburku.
 
@@ -69,9 +61,7 @@ Teď ale nakonec byl pro Berlín. Když o tom později přemýšlel, vyšlo mu,
 
 Ve skutečnosti utíkal z jistoty do provizoria. Fakt, že vyvinul tolik energie na to, aby v Berlíně našel velmi solidní a trvalé bydlení, žádný pronájem, nýbrž koupi vlastní nemovitosti, s tím vůbec nebyl v rozporu. Všechno to do sebe navíc začalo zapadat poměrně brzy po jejich přestěhování, konkrétně pouhý měsíc poté, co se narodila Magda. Tehdy jeho život nabral zcela jiný směr.
 
-\* \* \*
-
-  
+* * *
 
 Koupil pro ně krásný rodinný dům se zahradou v Zehlendorfu, kousek od jezera Wannsee v někdejším Západním Berlíně. Dům jeho předchozí majitelé postavili podle kvalitního architektonického návrhu v polovině osmdesátých let na prázdné parcele, stál však v typicky předměstské rezidentní čtvrti s mnohem delší historií; jejich dvoupatrová vila s rovnou střechou a terasou v prvním patře, která trochu připomínala Mathiasův rodný dům ve Wiesbadenu, byla obklopena zelení a řadou domů z období mezi válkami.
 
@@ -81,25 +71,19 @@ Na ulici v Zehlendorfu člověk málem nepotkal živou duši. Bydleli zde přev
 
 Pokud v Berlíně existovalo místo, které bylo předurčené k tomu, aby v něm definitivně skončilo mládí, pak to byl právě Zehlendorf.
 
-\* \* \*
-
-  
+* * *
 
 Přestěhovali se v září 2008. Mathias hned nastoupil na klinice Charité. Maria prozatím zůstávala doma.
 
 V listopadu 2008 si Maria přímo v jejich domě v Zehlendorfu otevřela soukromou nefrologickou poradnu. Vystačila si s jednou sestrou, platila jí půl úvazku. Za čtyři měsíce se jí narodila Magda, tehdy za sebe do poradny našla záskok. Po pár měsících se ke své nové práci vrátila, když Magda aspoň trochu povyrostla a když k ní Maria mohla najmout slečnu na hlídání.
 
-\* \* \*
-
-  
+* * *
 
 V tu chvíli se Mathiasovy a Mariiny profesní dráhy rozešly. Práce v Charité byla bytostně expertní. Mathias pracoval na oddělení dětské dialýzy, prováděl punkce ledvin a transplantace. Po velkou část dne měl před ústy lékařskou roušku. Byla to práce, při které by se jakémukoli pozorovateli tajil dech.
 
 Maria na druhé straně roušku nepotřebovala. Během prvního půl roku od otevření své soukromé praxe si ji nasadila jen jednou; tehdy měla pocit, že na ni leze chřipka a nechtěla nakazit maminku s teprve půlročním miminkem. Většina její práce byla od začátku rutinní. Pacientů s chronickým onemocněním ledvin každý rok přibývalo, šlo o jednu z civilizačních chorob, a takoví pacienti potřebovali pravidelné kontroly. Mathias byl ostatně jedním z nich: co půl roku si musel nechat vyšetřit moč, změřit si tlak a podívat se, zda mu neotékají nohy. Přesně to teď dělala Maria: odesílala chronicky nemocné padesátníky na laboratorní vyšetření, kontrolovala výsledky, měřila tlak, poklepávala na záda, prohmatávala lýtka a kotníky. Při pohledu na její práci by se nikomu dech netajil.
 
-\* \* \*
-
-  
+* * *
 
 V posledních měsících si opět začala psát s Tomassem. Vyměnili si klidně i deset e-mailů týdně. Psala mu ještě den předtím, než porodila Magdu. A pak opět hned v první chvíli, kdy to šlo. Řešili každo­dennosti, často si vzpomněli na něco, co zažili v Africe. Nikoho nepomlouvali, nestěžovali si na své partnery a rodiny. Člověk by se v jejich e-mailech nedočetl nic o Mariiných pochybnostech, co se týkalo těhotenství nebo později mateřství. Jejich dopisování bylo velmi korektní, a Marii dokonce několikrát napadlo, že by si Mathias vlastně mohl kterýkoli z těch e-mailů přečíst, přesněji řečeno, že by si mohl přečíst nějaký zápis o obsahu oněch e-mailů, svodku, nějaké informační memo, jak na ně byli zvyklí v nemocnici v Erlangenu. Pokud by kterýkoli z těch e-mailů Mathias dostal přepsaný v bodech, v jakési sumarizaci na způsob „v tomto e-mailu se řešilo to a to“, pak by si mohl klidně přečíst celou jejich konverzaci. Ale v takové podobě, v jaké e-maily odesílali, by mu je neukázala ani náhodou.
 
@@ -107,17 +91,13 @@ Kvůli všemu tomu času, napadlo ji jednou. Z těch e-mailů, aby je Mathias m
 
 Stával se z ní velmi niterný, samotářský člověk. Její ochotu zůstat v Zehlendorfu, otevřít si tam praxi a vzdát se všech předchozích ambicí nejde vysvětlit jinak než tak, že se během těch devíti měsíců, kdy ji nosila v břiše, Maria zhlédla ve své ještě nenarozené dceři.
 
-\* \* \*
-
-  
+* * *
 
 Na Mathiase si nešlo stěžovat. Byl u porodu, v jeho domovské nemocnici Charité o Marii bylo skvěle postaráno. Sotva dostala malou k sobě na lůžko, Mathias pořídil svým telefonem fotografii, kterou pak spolu s velmi dojemnou zprávou odeslal do Stuttgartu a do Wiesbadenu. Mariiny rodiče pozval hned na první víkend na návštěvu, podívat se na Magdu, dům už viděli. Dojatý a nadšený Seba sice musel už v neděli zpátky, Marta ale zůstala s Marií v Zehlendorfu víc než měsíc; vypomáhala a těšila se ze své vnučky. Mathias se k Martě choval velmi ohleduplně a zcela přecházel její občasné slabší chvilky, přílišnou úzkostlivost střídanou záchvaty panovačnosti. I ke své matce na Mariino přání trochu změnil přístup. Slíbil Katharině, že za ní do Wiesbadenu co nejdříve všichni tři zajedou, a i do Berlína Katharinu určitě pozvou a ukážou jí dům, až bude trochu klidu. Všechno zařídil, postaral se. Vedle toho zvládal svoji náročnou práci.
 
 Byl to hrdý, až namyšlený otec.
 
-\* \* \*
-
-  
+* * *
 
 K nemocničním sestrám se kdysi choval bez výjimky uctivě, to Maria mohla dobře posoudit; v Erlangenu ho viděla v interakci se sestrami po několik let téměř denně. V Německu to navíc byla norma, psaná i nepsaná: pomocnému zdravotnickému personálu se garantovalo korektní zacházení; kvůli historickým zkušenostem to zvláště v Německu byla bedlivě střežená oblast. Nerovnosti mezi lékaři a sestrami – platové i jiné – byly příliš zřejmé na to, aby se v lidských myslích alespoň podprahově neobjevily úvahy o možné podřadnosti.
 
@@ -137,9 +117,7 @@ Maria po těch jeho slovech instinktivně zakroutila hlavou. A pak ještě jedn
 
 Nic takového Maria nechtěla dopustit.
 
-\* \* \*
-
-  
+* * *
 
 Poprvé se to stalo dva dny poté, co ze Zehlendorfu po měsíci hlídání a laskání Magdy odjela Mariina matka. Mathias se vrátil o tři hodiny později, než měl, až po desáté, a táhl z něho alkohol. Když ho sháněla na jeho mobilním telefonu, ozvala se jí schránka, byl nedostupný. Omluvil se jí, když konečně přišel, maličko se mu při tom pletl jazyk. V noci to pak trochu spravil tím, že vstával k malé.
 
@@ -150,8 +128,6 @@ Slíbil jí, že už se to nebude opakovat. Pracoval ale víc než deset hodin d
 Navíc s ním nemusela nutně trávit čas. Překvapilo ji to, ale bylo to tak. Magdu používala jen jako páku při vyjednávání; dokázala by se o ni postarat i sama. Obě byly velmi klidné a jedna z nich každou volnou chvilku věnovala psaní a čtení e-mailů.
 
 ## 2.
-
-  
 
 Piotr Kowalski se narodil roku 1975, jen tři roky před Marií, čtyři před Mathiasem. V případě téhle trojice však z mnoha důvodů nemělo smysl mluvit zrovna o spříznění věkem. Piotrovy zkušenosti, vzdělání, původ, to všechno bylo zcela jiné.
 
@@ -165,9 +141,7 @@ Za tu dobu získal kontakty na stovky doktorů a poznal desítky nemocnic v t�
 
 Jedna a jedna znamenalo: polští lékaři na Západ. Platy na Západě byly násobně vyšší, kvalifikovaných lékařů tam přitom byl trvalý nedostatek, a to zvláště v nových spolkových zemích, pokud šlo konkrétně o Německo. Lékaři z nových spolkových zemí se často snažili dostat do těch starých, čímž uvolňovali místo na východě Německa, a tak dále. Šlo o nekonečné evropské škatulata, hejbejte se.
 
-\* \* \*
-
-  
+* * *
 
 V roce 2006 Piotr v Německu spolu s dvěma německými partnery založil firmu LWK Loyalty GmbH. Pracovní agenturu, která polským lékařům zprostředkovávala práci v Německu, převážně v menších městech v Meklenbursku – Předním Pomořansku, Sasku a Braniborsku. Firma se raketově rozvíjela, už o rok později expan­dovala na nové trhy do Belgie a Holandska. Krom lékařů teď zprostředkovávali práci i sestrám a nižšímu zdravotnickému personálu. Nábor už se netýkal pouze Polska, ale i Česka, Slovenska a Maďarska.
 
@@ -177,9 +151,7 @@ Pokud šlo o sestry a další nižší zdravotnický personál, hledalo se vš
 
 Vztah agentury k doktorům fungoval v jiném režimu. Doktoři se hledali výhradně přes inzerci na odborných stránkách či přes pracovní veletrhy pro lékaře. Doktoři si na rozdíl od sester mohli vybrat místo působiště. Manažeři nabírali kontakty a představovali kandidáty klinikám. Pokud klient s kandidátem souhlasil, pozval ho na vlastní náklady na třídenní stáž, během které se kandidát měl osvědčit. V případě, že se tak stalo, doktor dostal smlouvu přímo od klienta a agentura inkasovala provizi za zprostředkování kontaktu; většinou šlo o částku rovnající se třem až šesti měsíčním platům agenturou dodaného lékaře.
 
-\* \* \*
-
-  
+* * *
 
 Nemocnice Charité v roce 2010 oslavila tři sta let od svého založení a jednalo se o jednoho z největších zaměstnavatelů v celém Berlíně; Charité zaměstnávala přes třináct tisíc lidí a jako univerzitní nemocnice sloužila od roku 2003 oběma hlavním berlínským univerzitám, jak Humboldtově, tak i Svobodné univerzitě Berlín. Za dob NDR šlo o nejprestižnější východoněmeckou lékařskou instituci. Po pádu berlínské zdi se Charité spojila v jeden celek s dalšími berlínskými univerzitními nemocnicemi.
 
@@ -187,276 +159,232 @@ Oddělení dětské a dorostové nefrologie na rozdíl od hlavní budovy sídli
 
 Přestože zaměstnávala tolik lidí, Charité nepatřila k typickým klientům LWK Loyalty.
 
-\* \* \*
-
-  
+* * *
 
 Přesto se spolu Mathias a Piotr potkali, a právě v Charité ve čtvrti Wedding. Stalo se to v dubnu 2009 a Mathiasovi tehdy stačilo, aby Piotr řekl jedno jediné slovo. A všechno do sebe ihned zapadlo.
 
 ## Z M. deníku
 
-30\. prosince 2016
+#### 30\. prosince 2016
 
-  
+> První, co jsem si pomyslel: Tohle nebude nějaký ten Adam Kuczek, o kterém matka psala v jedné ze svých mnoha autobiografií. Žádný polský židáček.
 
-První, co jsem si pomyslel: Tohle nebude nějaký ten Adam Kuczek, o kterém matka psala v jedné ze svých mnoha autobiografií. Žádný polský židáček.
+> Mluvil perfektní němčinou, klidně a bez výrazné gestikulace. Neskákal jako dítě v bazénku; Německo evidentně znal a už si ho užil dost. Dokázal mlčet, když nechtěl nic říct. Nepitvořil se, mluvil se mnou jako rovný s rovným. Nechtěl mi ani nic prodat. Bylo mu pětatřicet, ale působil jako člověk, který už má vyděláno. Jmenoval se Piotr, ale klidně se mohl jmenovat Gerhardt. Když jsme se trochu poznali, už jsem na něj nedokázal myslet jako na Piotra. Na sobě měl sako, košili a volnější levisky. Vysoký zhruba jako já, trochu statnější, ale ne tlustý. Bylo vidět, že o sebe pečuje. Zvlášť rychle si člověk všiml jeho pěkných zubů.
 
-Mluvil perfektní němčinou, klidně a bez výrazné gestikulace. Neskákal jako dítě v bazénku; Německo evidentně znal a už si ho užil dost. Dokázal mlčet, když nechtěl nic říct. Nepitvořil se, mluvil se mnou jako rovný s rovným. Nechtěl mi ani nic prodat. Bylo mu pětatřicet, ale působil jako člověk, který už má vyděláno. Jmenoval se Piotr, ale klidně se mohl jmenovat Gerhardt. Když jsme se trochu poznali, už jsem na něj nedokázal myslet jako na Piotra. Na sobě měl sako, košili a volnější levisky. Vysoký zhruba jako já, trochu statnější, ale ne tlustý. Bylo vidět, že o sebe pečuje. Zvlášť rychle si člověk všiml jeho pěkných zubů.
+* * *
 
-\* \* \*
+> Vlasy měl střižené na kratší patku, jako je tehdy nosil Lech Wałęsa nebo Helmut Kohl, ale mnohem upravenější. V tomhle směru mi Piotr připomínal televizního moderátora; někoho, kdo tou ohromnou nudou a usedlostí na hlavě platí daň své profesi, aniž si to vůbec uvědomuje. Vnímal jsem to jako promarněnou příležitost, až jakési faustovské téma ztraceného mládí, a přál bych mu své vlasy a svůj účes. Vlastně by to tak bylo správné: v roce 2009 jsem já měl mít Piotrovy vlasy a Piotrův účes, on měl mít ty mé, které už tehdy byly ležérní a svým způsobem i dekadentní. Totéž se týkalo slunečních brýlí, které jsem tehdy při každé příležitosti nosil ve vlasech já, zatímco je tam měl nosit Piotr. Také to byl první dárek, který ode mě Piotr dostal: klasické unisexové sluneční brýle Ray Ban, takzvané „pilotky“ za bezmála sto padesát euro.
 
-  
+* * *
 
-Vlasy měl střižené na kratší patku, jako je tehdy nosil Lech Wałęsa nebo Helmut Kohl, ale mnohem upravenější. V tomhle směru mi Piotr připomínal televizního moderátora; někoho, kdo tou ohromnou nudou a usedlostí na hlavě platí daň své profesi, aniž si to vůbec uvědomuje. Vnímal jsem to jako promarněnou příležitost, až jakési faustovské téma ztraceného mládí, a přál bych mu své vlasy a svůj účes. Vlastně by to tak bylo správné: v roce 2009 jsem já měl mít Piotrovy vlasy a Piotrův účes, on měl mít ty mé, které už tehdy byly ležérní a svým způsobem i dekadentní. Totéž se týkalo slunečních brýlí, které jsem tehdy při každé příležitosti nosil ve vlasech já, zatímco je tam měl nosit Piotr. Také to byl první dárek, který ode mě Piotr dostal: klasické unisexové sluneční brýle Ray Ban, takzvané „pilotky“ za bezmála sto padesát euro.
+> Seznámili jsme se na parkovišti před Charité na Virchowě, zablokoval jsem mu z nepozornosti svým audi výjezd ven.
 
-\* \* \*
+> Pondělí, únava po dvou nocích v Berghainu, únava z Magdy, únava z Marie, únava z dětských pacientů a z jejich ledvin. Únava ze života, který jsem si vybral a na který jsem se celý třásl. Únava ze života, který měl být triumfem, ale najednou ten plánovaný triumf, když přišel, nikoho nezajímal, a ani mě ne. Život bělocha v bílém tunelu: bílé pláště, bílé roušky, čisté ruce, rukavice, bonusy a provize. Trochu s tím ostatně souvisí i to moje pondělní parkování. Byl jsem zvyklý na asistenci; Charité se o nás doktory starala málem jako o nesvéprávné. Hned při nástupu jsem dostal pět různých karet včetně parkovací, plus vyhrazené místo na parkovišti v sekci pro lékaře. Plus kartu s číslem, na které jsem měl volat v případě potřeby jakékoli další asistence. Nakonec jsem neuměl sám ani zaparkovat.
 
-  
+> Kvůli mé špatně parkující audi tehdy musela Charité svolat válečnou poradu.
 
-Seznámili jsme se na parkovišti před Charité na Virchowě, zablokoval jsem mu z nepozornosti svým audi výjezd ven.
+* * *
 
-Pondělí, únava po dvou nocích v Berghainu, únava z Magdy, únava z Marie, únava z dětských pacientů a z jejich ledvin. Únava ze života, který jsem si vybral a na který jsem se celý třásl. Únava ze života, který měl být triumfem, ale najednou ten plánovaný triumf, když přišel, nikoho nezajímal, a ani mě ne. Život bělocha v bílém tunelu: bílé pláště, bílé roušky, čisté ruce, rukavice, bonusy a provize. Trochu s tím ostatně souvisí i to moje pondělní parkování. Byl jsem zvyklý na asistenci; Charité se o nás doktory starala málem jako o nesvéprávné. Hned při nástupu jsem dostal pět různých karet včetně parkovací, plus vyhrazené místo na parkovišti v sekci pro lékaře. Plus kartu s číslem, na které jsem měl volat v případě potřeby jakékoli další asistence. Nakonec jsem neuměl sám ani zaparkovat.
+> Piotrův nenápadný, avšak seriózní a spolehlivý Volkswagen Passat (něco jako Piotrův bojový prostředek, neviditelný, leč smrtící nervový plyn) stál u zdi za mou audi a nemohl se hnout. Piotr došel na recepci a docela klidně jim tam nahlásil, že v sekci vyhrazeného parkování stojí bílá Audi A4 s registrační značkou B:MB6781.
 
-Kvůli mé špatně parkující audi tehdy musela Charité svolat válečnou poradu.
+> Měli mě i se značkou v databázi. Hned potvrdili, co si myslel už Piotr, tedy že jde o auto někoho z lékařů.
 
-\* \* \*
+> Byla to patová situace. Odtáhnout, nebo třeba jenom s policejní asistencí zvednout a posunout auto doktora, to nemohli. Dojít pro mě ale taky nemohli, a to nejen kvůli tomu, že jsem podle rozpisu zrovna byl na sále, ale i proto, že se to prostě neslušelo, aby doktor někde s klíčkem od auta v ruce pobíhal po recepci a po parkovišti. Byla by to ulička hanby, pro všechny, navíc by to stálo hodně peněz.
 
-  
+> „Co tedy mám dělat?“ zeptal se Piotr znovu velmi klidně recepční.
 
-Piotrův nenápadný, avšak seriózní a spolehlivý Volkswagen Passat (něco jako Piotrův bojový prostředek, neviditelný, leč smrtící nervový plyn) stál u zdi za mou audi a nemohl se hnout. Piotr došel na recepci a docela klidně jim tam nahlásil, že v sekci vyhrazeného parkování stojí bílá Audi A4 s registrační značkou B:MB6781.
+> „Počkejte, prosím, budeme to řešit.“
 
-Měli mě i se značkou v databázi. Hned potvrdili, co si myslel už Piotr, tedy že jde o auto někoho z lékařů.
+> Černého Piotra jednoznačně držel v ruce on. Vypadal seriózně, ale nevypadal na doktora. Navíc nebyl jejich, nebyl z Charité. Nebyl ani politikem; neměl v ruce žádnou kartu, která by ho dostala na moji úroveň. Věděl to. Znal ten systém zevnitř i zvenku, měl nás všechny přečtené.
 
-Byla to patová situace. Odtáhnout, nebo třeba jenom s policejní asistencí zvednout a posunout auto doktora, to nemohli. Dojít pro mě ale taky nemohli, a to nejen kvůli tomu, že jsem podle rozpisu zrovna byl na sále, ale i proto, že se to prostě neslušelo, aby doktor někde s klíčkem od auta v ruce pobíhal po recepci a po parkovišti. Byla by to ulička hanby, pro všechny, navíc by to stálo hodně peněz.
+> „Dobře,“ odvětil, otočil se a odešel.
 
-„Co tedy mám dělat?“ zeptal se Piotr znovu velmi klidně recepční.
+> Mohl jim říct, že zná mého primáře a že s Charité dlouhodobě spolupracuje. V podstatě by to byla pravda. Zároveň se už na tomhle místě hodí říct, že pro LWK Loyalty byla Charité příliš nóbl, ta nejvyšší liga. Zaměstnávala sice tisíce lidí, ale při náborech rozhodně nespolupracovala s agenturou jako byla LWK Loyalty. To by Charité přišlo _schmutzig_. Charité měla své prověřené agentury. Celý ten systém byl dokonalejší než americká ústava, samé brzdy a rovnováhy. Do Charité Piotr nechodil jménem LWK Loyalty, nýbrž sám za sebe. Dostanu se k tomu.
 
-„Počkejte, prosím, budeme to řešit.“
+> Piotr se z recepce, když ho tam v podstatě odmítli, vrátil na parkoviště a odemkl svého bojového passata. Nasedl, nastartoval, zařadil a sešlápl plyn až k podlaze.
 
-Černého Piotra jednoznačně držel v ruce on. Vypadal seriózně, ale nevypadal na doktora. Navíc nebyl jejich, nebyl z Charité. Nebyl ani politikem; neměl v ruce žádnou kartu, která by ho dostala na moji úroveň. Věděl to. Znal ten systém zevnitř i zvenku, měl nás všechny přečtené.
+> Ozvala se rána a okamžitě začal houkat alarm v mé audi.
 
-„Dobře,“ odvětil, otočil se a odešel.
+* * *
 
-Mohl jim říct, že zná mého primáře a že s Charité dlouhodobě spolupracuje. V podstatě by to byla pravda. Zároveň se už na tomhle místě hodí říct, že pro LWK Loyalty byla Charité příliš nóbl, ta nejvyšší liga. Zaměstnávala sice tisíce lidí, ale při náborech rozhodně nespolupracovala s agenturou jako byla LWK Loyalty. To by Charité přišlo _schmutzig_. Charité měla své prověřené agentury. Celý ten systém byl dokonalejší než americká ústava, samé brzdy a rovnováhy. Do Charité Piotr nechodil jménem LWK Loyalty, nýbrž sám za sebe. Dostanu se k tomu.
+> Dokonce přijela policie. Na mě před operačním sálem čekala asistentka:
 
-Piotr se z recepce, když ho tam v podstatě odmítli, vrátil na parkoviště a odemkl svého bojového passata. Nasedl, nastartoval, zařadil a sešlápl plyn až k podlaze.
+> „Došlo k havárii, doktore Waltere, k autonehodě. Bohužel se to týká i vašeho vozu. Přijďte prosím co nejdřív na parkoviště. Ještě jednou se moc omlouvám, řešíme to.“
 
-Ozvala se rána a okamžitě začal houkat alarm v mé audi.
+> Podíval jsem se z okna v chodbě. Na sálu kvůli laminární klimatizaci žádná okna nejsou, při dlouhých operacích člověk dokonale ztrácí pojem o čase. Bylo pod mrakem, stejně jako když jsem odjížděl ze Zehlendorfu. Odhadoval jsem dvanáct, patnáct stupňů. Sníh už všechen roztál. Měl jsem za sebou punkci ledvin u sedmileté pacientky, odebrání části tkáně k bioptickému vyšetření, které mělo vyvrátit rakovinné bujení a určit přítomnost či nepřítomnost protilátek na žloutenku. To byl můj soukromý odhad: přechozená žloutenka typu A, následné postižení ledvin, hematurie a proteinurie, krev a bílkovina v moči. Přesně totéž, co já, včetně příčiny. Nikdy jsem nepochopil, jak mě matka mohla někdy v dětství nechat přechodit žloutenku.
 
-\* \* \*
+> „Nehoda?“ zeptal jsem se. „Na parkovišti, moje auto,“ ujistil jsem se.
 
-  
+> „Ano, omlouvám se, vrazil do vás. Nějaký člověk.“
 
-Dokonce přijela policie. Na mě před operačním sálem čekala asistentka:
+> V kanceláři jsem si přes plášť oblékl jarní bundu do pasu, kalhoty jsem si nechal pracovní. Chytil jsem své sluneční brýle a posadil jsem si je do vlasů, jako bych tušil, že potkám právě Piotra. Byl jsem rozhodnutý udělat scénu, hájit svou audi, zároveň jsem ale stále měl před očima záda té holčičky, do nichž jsem dělal díru, a nějak mi to nešlo dohromady. Působilo to až přízračně. Zároveň je ale třeba říct, že takhle tu situaci zpětně vidím já, tedy naprosto jiný člověk, než kým jsem byl tehdy. Totéž se týká únavy z Marie, z Magdy, z medicíny: tak to vnímám zpětně. Ani ta dětská zádíčka tehdy možná nehrála žádnou roli; je dost pravděpodobné, že jsem v nich viděl jen práci.
 
-„Došlo k havárii, doktore Waltere, k autonehodě. Bohužel se to týká i vašeho vozu. Přijďte prosím co nejdřív na parkoviště. Ještě jednou se moc omlouvám, řešíme to.“
+> Ta havárie mi nakonec asi vůbec nepřišla přízračná, nýbrž otravná. Byl jsem přesvědčený, že to všechno ještě půjde a že jen stačí odstraňovat ze života drobné komplikace a čekat; až Magda povyroste, až najdu sílu zvolnit pracovní tempo, až mi lidi přestanou najíždět do audi.
 
-Podíval jsem se z okna v chodbě. Na sálu kvůli laminární klimatizaci žádná okna nejsou, při dlouhých operacích člověk dokonale ztrácí pojem o čase. Bylo pod mrakem, stejně jako když jsem odjížděl ze Zehlendorfu. Odhadoval jsem dvanáct, patnáct stupňů. Sníh už všechen roztál. Měl jsem za sebou punkci ledvin u sedmileté pacientky, odebrání části tkáně k bioptickému vyšetření, které mělo vyvrátit rakovinné bujení a určit přítomnost či nepřítomnost protilátek na žloutenku. To byl můj soukromý odhad: přechozená žloutenka typu A, následné postižení ledvin, hematurie a proteinurie, krev a bílkovina v moči. Přesně totéž, co já, včetně příčiny. Nikdy jsem nepochopil, jak mě matka mohla někdy v dětství nechat přechodit žloutenku.
+* * *
 
-„Nehoda?“ zeptal jsem se. „Na parkovišti, moje auto,“ ujistil jsem se.
+> Sotva mě uviděli přicházet k parkovišti – zmerčili mě na sto metrů –, hned ke mně vyslali posilu, opět tu mladou asistentku, která mi svým neustálým omlouváním se lezla na nervy. Tehdy jsem ještě neviděl její hodnotu; její a takových, jako byla ona.
 
-„Ano, omlouvám se, vrazil do vás. Nějaký člověk.“
+> Mluvila o překot, byl to _briefing_, jaký se v rychlosti dává generálovi, který se v džípu blíží k nějakému válečnému masakru:
 
-V kanceláři jsem si přes plášť oblékl jarní bundu do pasu, kalhoty jsem si nechal pracovní. Chytil jsem své sluneční brýle a posadil jsem si je do vlasů, jako bych tušil, že potkám právě Piotra. Byl jsem rozhodnutý udělat scénu, hájit svou audi, zároveň jsem ale stále měl před očima záda té holčičky, do nichž jsem dělal díru, a nějak mi to nešlo dohromady. Působilo to až přízračně. Zároveň je ale třeba říct, že takhle tu situaci zpětně vidím já, tedy naprosto jiný člověk, než kým jsem byl tehdy. Totéž se týká únavy z Marie, z Magdy, z medicíny: tak to vnímám zpětně. Ani ta dětská zádíčka tehdy možná nehrála žádnou roli; je dost pravděpodobné, že jsem v nich viděl jen práci.
+> „Přijela policie, ale nejde ani o přestupek, nic s ním neudělají, moc mě to mrzí, omlouvám se, vše samozřejmě půjde z jeho pojistky, a pokud by to nešlo, vše zařídí nemocnice, nemusíte se o nic starat, jen vás teď na vteřinu potřebujeme k sepsání…“
 
-Ta havárie mi nakonec asi vůbec nepřišla přízračná, nýbrž otravná. Byl jsem přesvědčený, že to všechno ještě půjde a že jen stačí odstraňovat ze života drobné komplikace a čekat; až Magda povyroste, až najdu sílu zvolnit pracovní tempo, až mi lidi přestanou najíždět do audi.
+> „Protokolu,“ doplnil jsem. „Kdo to je? Doktor?“ zeptal jsem se.
 
-\* \* \*
+> Zakroutila hlavou. Docela pohrdlivě. Byla na straně Charité, na straně doktorů, na mé straně.
 
-  
+> „Headhunter,“ řekla.
 
-Sotva mě uviděli přicházet k parkovišti – zmerčili mě na sto metrů –, hned ke mně vyslali posilu, opět tu mladou asistentku, která mi svým neustálým omlouváním se lezla na nervy. Tehdy jsem ještě neviděl její hodnotu; její a takových, jako byla ona.
+> Kdyby mohla, odplivla by si, kvůli mně, jí to bylo jedno, panák jako panák. Vůbec by si nás nevšimla, ani jednoho, ani Piotra, ani mě, nenaplňovali jsme její plakátové představy (Benicio del Toro, George Clooney, Russell Crowe), nebo by se s námi vychrápala, s oběma, zvlášť i dohromady, nezáleželo by na ničem jiném než na situaci. Oba jsme pro ni byli vzduch i potenciální peněženky i potenciální lásečky, to chci říct. Že mezi námi neviděla moc rozdílů, ale musela dělat, že je vidí, to chci říct. Úplně stručně: byli jsme všichni tři na jedné hrací ploše, já, Piotr a nějaká asistentka. To jsem tehdy nevnímal. Intuitivně jsem tomu možná začal aspoň trochu rozumět teprve ve chvíli, kdy řekla to slovo „headhunter“.
 
-Mluvila o překot, byl to _briefing_, jaký se v rychlosti dává generálovi, který se v džípu blíží k nějakému válečnému masakru:
+> Při tom slově mi škublo v rozkroku.
 
-„Přijela policie, ale nejde ani o přestupek, nic s ním neudělají, moc mě to mrzí, omlouvám se, vše samozřejmě půjde z jeho pojistky, a pokud by to nešlo, vše zařídí nemocnice, nemusíte se o nic starat, jen vás teď na vteřinu potřebujeme k sepsání…“
+* * *
 
-„Protokolu,“ doplnil jsem. „Kdo to je? Doktor?“ zeptal jsem se.
+> Bylo to čumákem do čumáku. Na dlažbu z jednoho auta vytekl olej nebo brzdová kapalina, viděl jsem tmavou louži. Vedle kousky plastu a skla ze světlometů. Byla to novodobá potopa a v prostředku této novodobé potopy, po pás v bahně či bouračce, úplně klidný Piotr Kowalski se svými funkčně upravenými vlasy a zářící tváří.
 
-Zakroutila hlavou. Docela pohrdlivě. Byla na straně Charité, na straně doktorů, na mé straně.
+> „To je vaše auto?“ zeptal se. „Ujela mi noha. Polibek smrti,“ řekl s úsměvem a ukázal na auta.
 
-„Headhunter,“ řekla.
+> „Piotr Kowalski,“ dodal a napřáhl ke mně ruku.
 
-Kdyby mohla, odplivla by si, kvůli mně, jí to bylo jedno, panák jako panák. Vůbec by si nás nevšimla, ani jednoho, ani Piotra, ani mě, nenaplňovali jsme její plakátové představy (Benicio del Toro, George Clooney, Russell Crowe), nebo by se s námi vychrápala, s oběma, zvlášť i dohromady, nezáleželo by na ničem jiném než na situaci. Oba jsme pro ni byli vzduch i potenciální peněženky i potenciální lásečky, to chci říct. Že mezi námi neviděla moc rozdílů, ale musela dělat, že je vidí, to chci říct. Úplně stručně: byli jsme všichni tři na jedné hrací ploše, já, Piotr a nějaká asistentka. To jsem tehdy nevnímal. Intuitivně jsem tomu možná začal aspoň trochu rozumět teprve ve chvíli, kdy řekla to slovo „headhunter“.
+> Už jsem chtěl spustit, když najednou… Jeho dlaň na mě působila stejným dojmem jako ta Sylvianina. Byla suchá, pevná, zároveň hebká i zkušená.
 
-Při tom slově mi škublo v rozkroku.
+> Sklonil jsem se k pochroumaným čelním maskám, abych získal trochu času, a zkoumal jsem míru poškození. Zkusil jsem vzít za kousek plastu. Zůstal mi v ruce. Překvapovalo mě, jak málo to se mnou dělá. V hlavě mi při tom stále zněla jeho poslední slova. Polibek smrti.
 
-\* \* \*
+> „Nebo polibek života,“ řekl jsem, když jsem vstal od aut.
 
-  
+> „Pojistku máte, je to tak?“ zeptal jsem se.
 
-Bylo to čumákem do čumáku. Na dlažbu z jednoho auta vytekl olej nebo brzdová kapalina, viděl jsem tmavou louži. Vedle kousky plastu a skla ze světlometů. Byla to novodobá potopa a v prostředku této novodobé potopy, po pás v bahně či bouračce, úplně klidný Piotr Kowalski se svými funkčně upravenými vlasy a zářící tváří.
+> Piotr kývl.
 
-„To je vaše auto?“ zeptal se. „Ujela mi noha. Polibek smrti,“ řekl s úsměvem a ukázal na auta.
+* * *
 
-„Piotr Kowalski,“ dodal a napřáhl ke mně ruku.
+> Pro obě auta přijela odtahová služba a odvezla je do servisu. Zavolal jsem Marii, co se stalo. S Piotrem jsme si dali večer sraz v Mitte, v baru Reingold na Novalisstraße, který jsme oba znali.
 
-Už jsem chtěl spustit, když najednou… Jeho dlaň na mě působila stejným dojmem jako ta Sylvianina. Byla suchá, pevná, zároveň hebká i zkušená.
+> Byl to můj nápad. Zavětřil jsem v tom Polákovi dým pekelný, Mefista a černého dirigenta. Zároveň jsem tehdy hledal jakoukoli záminku, abych se mohl napít a dát si lajnu. Po Magdině narození jsem pil denně. Práci to ale nijak neovlivnilo ani Maria ve většině případů nic nepoznala. Měl jsem dobrou desítku rituálů, jak a co… Kdy a jak… Sklenička rumu, koks, pivo, domů.
 
-Sklonil jsem se k pochroumaným čelním maskám, abych získal trochu času, a zkoumal jsem míru poškození. Zkusil jsem vzít za kousek plastu. Zůstal mi v ruce. Překvapovalo mě, jak málo to se mnou dělá. V hlavě mi při tom stále zněla jeho poslední slova. Polibek smrti.
+> S kokainem jsem přitom začal až v Berlíně. Charité byla plná stresu a koksu, který od stresu pomáhal. Byli jsme vlci v bílých pláštích.
 
-„Nebo polibek života,“ řekl jsem, když jsem vstal od aut.
+#### 30\. prosince 2016 – večer
 
-„Pojistku máte, je to tak?“ zeptal jsem se.
+> Přišel na čas, přesně v sedm. O autech už nepadlo ani slovo, nikdy jsme se za to jeden druhému neomluvili. Nebyl to ani jeho, ani můj styl. Jediný rozdíl mezi námi byl v tom, že Piotr se neomluvil úmyslně, zatímco mě to ani nenapadlo. Tohle ostatně o našem vztahu a o mém dalším vývoji platilo i v obecnější rovině: nešlo nakonec o nic jiného než o to, že jsem vedle Piotra začal důsledně a vědomě dělat to, co už jsem v malém stejně dělal.
 
-Piotr kývl.
+> Zeptal se mě, jestli znám profesora Mazura:
 
-\* \* \*
+> „Urolog, Polák, slyšel jste o něm?“
 
-  
+> Zakroutil jsem hlavou.
 
-Pro obě auta přijela odtahová služba a odvezla je do servisu. Zavolal jsem Marii, co se stalo. S Piotrem jsme si dali večer sraz v Mitte, v baru Reingold na Novalisstraße, který jsme oba znali.
+> „No, je s vámi krátce,“ pokračoval a měřil si mě očima. „Víte, co dělám, že ano? Mazur je hlava, skutečná kapacita. Doteď byl v Gdaňsku, jeho předci snad byli Němci… A co vy po mně vlastně chcete?“ zeptal se přímo.
 
-Byl to můj nápad. Zavětřil jsem v tom Polákovi dým pekelný, Mefista a černého dirigenta. Zároveň jsem tehdy hledal jakoukoli záminku, abych se mohl napít a dát si lajnu. Po Magdině narození jsem pil denně. Práci to ale nijak neovlivnilo ani Maria ve většině případů nic nepoznala. Měl jsem dobrou desítku rituálů, jak a co… Kdy a jak… Sklenička rumu, koks, pivo, domů.
+> Na sobě měl stejnou košili a sako co ráno. V klopě zapíchnutý odznáček s překříženými vlajkami; polskou a německou. Toho jsem si všiml až teď.
 
-S kokainem jsem přitom začal až v Berlíně. Charité byla plná stresu a koksu, který od stresu pomáhal. Byli jsme vlci v bílých pláštích.
+> „Chci jít na hajzl a dát si tam lajnu,“ řekl jsem mu upřímně. „A stát se headhunterem,“ dodal jsem.
 
-30\. prosince 2016 – večer
+> Myslel jsem to jako vtip. Chtěl jsem mu dát najevo, že je úplná nula z Polska.
 
-  
+> „Zrovna sháníme někoho do Prahy,“ řekl na to klidně. Můj tón úmyslně přeslechl. „Můžete se přihlásit. Máte nějaké zkušenosti s lidskými zdroji? Požadujeme vysokou školu a jazyky.“
 
-Přišel na čas, přesně v sedm. O autech už nepadlo ani slovo, nikdy jsme se za to jeden druhému neomluvili. Nebyl to ani jeho, ani můj styl. Jediný rozdíl mezi námi byl v tom, že Piotr se neomluvil úmyslně, zatímco mě to ani nenapadlo. Tohle ostatně o našem vztahu a o mém dalším vývoji platilo i v obecnější rovině: nešlo nakonec o nic jiného než o to, že jsem vedle Piotra začal důsledně a vědomě dělat to, co už jsem v malém stejně dělal.
+> „Díky,“ odvětil jsem podrážděně. „Praha? Moje matka je Češka. A já jsem špičkový lékař. Nevím, jestli se to k vám doneslo, ale doktoři většinou takhle nekončí. Musíte někoho zabít, abyste odešel. Musí vám to sakra nejít, abyste vůbec začal uvažovat, že toho necháte. Klepající se ruce, deset diagnóz po sobě, který byly těsně vedle…“
 
-Zeptal se mě, jestli znám profesora Mazura:
+> „Skočte si na ten záchod,“ řekl a znalecky popotáhl nosem, což mi přišlo skandální, protože na lajně koksu podle mě bylo místo jenom pro jednoho z nás; buď ho bral on, a pak jsem já byl špatně, nebo jsem ho bral já, a pak měl z lajny koksu hodně rychle sesednout on.
 
-„Urolog, Polák, slyšel jste o něm?“
+> „Dojdu,“ řekl jsem mu. „Až se mi bude chtít.“
 
-Zakroutil jsem hlavou.
+> „Už se vám chce.“
 
-„No, je s vámi krátce,“ pokračoval a měřil si mě očima. „Víte, co dělám, že ano? Mazur je hlava, skutečná kapacita. Doteď byl v Gdaňsku, jeho předci snad byli Němci… A co vy po mně vlastně chcete?“ zeptal se přímo.
+> „Jo? Dejte mi pokoj, jo?“
 
-Na sobě měl stejnou košili a sako co ráno. V klopě zapíchnutý odznáček s překříženými vlajkami; polskou a německou. Toho jsem si všiml až teď.
+> „Takhle s vámi nebude řeč. Bude?“
 
-„Chci jít na hajzl a dát si tam lajnu,“ řekl jsem mu upřímně. „A stát se headhunterem,“ dodal jsem.
+> „Máte ženu a děti?“ zeptal se.
 
-Myslel jsem to jako vtip. Chtěl jsem mu dát najevo, že je úplná nula z Polska.
+> „Jistě,“ odvětil jsem a napil jsem se rumu. „Chlastáte, Piotře? Nebo jenom koksujete?“ řekl jsem a instinktivně jsem se hned rozhlédl, jestli mě někdo nesleduje.
 
-„Zrovna sháníme někoho do Prahy,“ řekl na to klidně. Můj tón úmyslně přeslechl. „Můžete se přihlásit. Máte nějaké zkušenosti s lidskými zdroji? Požadujeme vysokou školu a jazyky.“
+> Takhle jsem se neznal. Přesněji řečeno, takhle jsem se znal jenom já, ale venku mezi lidmi z toho doteď nebylo vůbec nic. To až ty poslední týdny v Berlíně.
 
-„Díky,“ odvětil jsem podrážděně. „Praha? Moje matka je Češka. A já jsem špičkový lékař. Nevím, jestli se to k vám doneslo, ale doktoři většinou takhle nekončí. Musíte někoho zabít, abyste odešel. Musí vám to sakra nejít, abyste vůbec začal uvažovat, že toho necháte. Klepající se ruce, deset diagnóz po sobě, který byly těsně vedle…“
+> „Afrika,“ řekl jsem zamyšleně. „Co jsem přijel z Afriky… Co tedy pijete?“
 
-„Skočte si na ten záchod,“ řekl a znalecky popotáhl nosem, což mi přišlo skandální, protože na lajně koksu podle mě bylo místo jenom pro jednoho z nás; buď ho bral on, a pak jsem já byl špatně, nebo jsem ho bral já, a pak měl z lajny koksu hodně rychle sesednout on.
+> „Colu,“ řekl. „Přestal jsem s alkoholem, už jsou to dva roky. I s kokainem. Jenom kurev jsem se nevzdal.“
 
-„Dojdu,“ řekl jsem mu. „Až se mi bude chtít.“
+> Tu poslední větu řekl opatrně a zcela jiným tónem. Byl to pokusný balónek. Přetahovali jsme se jako dvě koťata.
 
-„Už se vám chce.“
+> „Trpíte, Poláku?“ řekl jsem. „Zapřáhli vás do našeho německého slovníku? Taháte teď, polskej rolník, německý slova, který se zatoulaly? Taháte je v potu tváře přes pole zpátky k jejich maminkám? Já koks, vy kokain, já chlast, vy alkohol…? Božínku, tolik distingovanosti!“ řekl jsem. „Jak nějakej sluha. Jen těch kurev jste se nevzdal,“ zasmál jsem se.
 
-„Jo? Dejte mi pokoj, jo?“
+> Zároveň jsem ale obdivoval, jak přesně se trefoval, když do hry opakovaně vnášel své téma. Tehdy mě poprvé v životě napadlo – co když se vidím špatně? Nebo ještě jinak, ale se stejným výsledkem – co když mě lidi vidí špatně?
 
-„Takhle s vámi nebude řeč. Bude?“
+> Tyhle dvě otázky na mě ve vteřině dýchly sklepem a absolutní samotou. Do té doby jsem nikdy neměl tak silný pocit hluchoty a němoty, úplného odstřižení od lidí. Připadal jsem si jako mumie v hrobce; ruce křížem, jako ty dvě vlaječky na jeho klopě. Německá zůstávala, polskou nahradila česká, a pak rychle pod ně, mumie a smrt.
 
-„Máte ženu a děti?“ zeptal se.
+> Zvedl jsem se a v mrákotách jsem odešel na záchod. Viděl jsem před sebou jakousi snovou schránu, snad obrovský bankovní trezor, třeba takový, jaký měl strýček Skrblík, který v něm skákal šipky do hromady zlata a peněz. Až na to, že ten můj trezor byl prázdný. Jen v jednom rohu se krčily Maria, Magda a titul doktora medicíny. Zabíraly dohromady tak jedno procento; devětadevadesát procent prostoru dál čekalo na vyplnění. V mých třiceti letech.
 
-„Jistě,“ odvětil jsem a napil jsem se rumu. „Chlastáte, Piotře? Nebo jenom koksujete?“ řekl jsem a instinktivně jsem se hned rozhlédl, jestli mě někdo nesleduje.
+> „Pošlete mi smlouvu. Klidně ještě dneska,“ řekl jsem mu, když jsem se vrátil ke stolu. „Tady máte můj e-mail,“ dal jsem mu vizitku.
 
-Takhle jsem se neznal. Přesněji řečeno, takhle jsem se znal jenom já, ale venku mezi lidmi z toho doteď nebylo vůbec nic. To až ty poslední týdny v Berlíně.
+> Pobavilo ho to. Měl pocit, že jsme si užili. Dohozením profesora Mazura si přesně téhož dne vydělal deset tisíc euro, jak jsem později zjistil. Všechno mu vycházelo.
 
-„Afrika,“ řekl jsem zamyšleně. „Co jsem přijel z Afriky… Co tedy pijete?“
+> Na ulici jsme se rozloučili, každý jsme šli jiným směrem. Já na U-Bahn na Rosa-Luxemburg-Platz, on pěšky dál po Schönhauser Allee směrem k židovskému hřbitovu, kde bydlel.
 
-„Colu,“ řekl. „Přestal jsem s alkoholem, už jsou to dva roky. I s kokainem. Jenom kurev jsem se nevzdal.“
+> „Opravdu je to na mně vidět?“ zeptal jsem se v poslední chvíli s úplně vážnou tváří. „Akné? Centimetry?“
 
-Tu poslední větu řekl opatrně a zcela jiným tónem. Byl to pokusný balónek. Přetahovali jsme se jako dvě koťata.
+> Kývl. Podle mě ale vůbec nevěděl, na co se ptám.
 
-„Trpíte, Poláku?“ řekl jsem. „Zapřáhli vás do našeho německého slovníku? Taháte teď, polskej rolník, německý slova, který se zatoulaly? Taháte je v potu tváře přes pole zpátky k jejich maminkám? Já koks, vy kokain, já chlast, vy alkohol…? Božínku, tolik distingovanosti!“ řekl jsem. „Jak nějakej sluha. Jen těch kurev jste se nevzdal,“ zasmál jsem se.
+* * *
 
-Zároveň jsem ale obdivoval, jak přesně se trefoval, když do hry opakovaně vnášel své téma. Tehdy mě poprvé v životě napadlo – co když se vidím špatně? Nebo ještě jinak, ale se stejným výsledkem – co když mě lidi vidí špatně?
+> Druhý den dopoledne mi od něj přišel e-mail:
 
-Tyhle dvě otázky na mě ve vteřině dýchly sklepem a absolutní samotou. Do té doby jsem nikdy neměl tak silný pocit hluchoty a němoty, úplného odstřižení od lidí. Připadal jsem si jako mumie v hrobce; ruce křížem, jako ty dvě vlaječky na jeho klopě. Německá zůstávala, polskou nahradila česká, a pak rychle pod ně, mumie a smrt.
+> „Dobrý den! Návrh smlouvy v příloze, naše webové stránky si najdete. Výdělek pak je čistě na vás. Deset tisíc euro měsíčně je však velmi reálných. Jedu teď na pár dní do Varšavy. V pátek vás ale zvu k sobě na večírek. Schönhauser Allee 73. Po osmé. Myslím si, že váš život potřebuje změnu. Říkal jste, že mluvíte česky?
 
-Zvedl jsem se a v mrákotách jsem odešel na záchod. Viděl jsem před sebou jakousi snovou schránu, snad obrovský bankovní trezor, třeba takový, jaký měl strýček Skrblík, který v něm skákal šipky do hromady zlata a peněz. Až na to, že ten můj trezor byl prázdný. Jen v jednom rohu se krčily Maria, Magda a titul doktora medicíny. Zabíraly dohromady tak jedno procento; devětadevadesát procent prostoru dál čekalo na vyplnění. V mých třiceti letech.
+> PK“
 
-„Pošlete mi smlouvu. Klidně ještě dneska,“ řekl jsem mu, když jsem se vrátil ke stolu. „Tady máte můj e-mail,“ dal jsem mu vizitku.
+> Bylo to víc peněz, než kolik jsem měl v Charité. Tehdy jsem si myslel, že moje rozhodnutí zásadně ovlivnil právě tenhle fakt. Krom toho jsem věřil, že se k medicíně vrátím, a úmyslně jsem při tom ignoroval skutečnost, že výpověď daná Charité po půl roce ze mě přinejmenším v Berlíně dělá personu non grata.
 
-Pobavilo ho to. Měl pocit, že jsme si užili. Dohozením profesora Mazura si přesně téhož dne vydělal deset tisíc euro, jak jsem později zjistil. Všechno mu vycházelo.
+> Během toho půl roku investovali prakticky jen oni: čas, know-how, parkovací a jiné karty. Teď to zas všechno budou muset rušit. Později jsem se dověděl, že něco takového se alespoň na mém oddělení nestalo dobrých deset let. K tomu všemu se samozřejmě ještě musí připočítat absolutní degradace mého životopisu. Svým rozhodnutí přejít do LWK Loyalty jsem polil benzínem a podpálil album s těmi nejvzácnějšími poštovními známkami, které jsem v něm doteď se zatajeným dechem rovnal pinzetou. A najednou – _Hoř, ty zkurvysyne, hoř!_ Aby si někdo v mém postavení a s mým vzděláním do životopisu napsal práci pro LWK Loyalty, to nepřipadalo v úvahu. Musel bych v životopisu raději nechat prázdno nebo uvádět „sabbatical“.
 
-Na ulici jsme se rozloučili, každý jsme šli jiným směrem. Já na U-Bahn na Rosa-Luxemburg-Platz, on pěšky dál po Schönhauser Allee směrem k židovskému hřbitovu, kde bydlel.
+> Dnes už samozřejmě vím, že mě lákaly právě všechen ten popel a špína. Ve špíně je hodně moudrosti, přesně polovina. Kupříkladu Piotrova autohavárie. To bylo velmi svobodné a moudré rozhodnutí. Piotr usedl na svého hřebce a rozjel se proti německým tankům.
 
-„Opravdu je to na mně vidět?“ zeptal jsem se v poslední chvíli s úplně vážnou tváří. „Akné? Centimetry?“
+* * *
 
-Kývl. Podle mě ale vůbec nevěděl, na co se ptám.
+> S nikým jsem své rozhodnutí nekonzultoval, dokonce ani s Marií ne. Mluvili jsme spolu poslední dobou jen málo, byla teď uzavřenější než dřív. Náš vztah však byl pevný, o tom jsme podle mě ani jeden nepochybovali. Později, když už jsem dal výpověď z Charité (musel jsem nakonec zaplatit penále) a podepsal dohodu o spolupráci s LWK Loyalty, jsem Marii svůj krok vysvětlil únavou. Náročností práce, kterou jsem neuměl skloubit s rodinou, s oběma svými děvčátky. Byl jsem na Marii hodný a vážil jsem si jí. Na tom se nic nezměnilo ani v dalších letech.
 
-\* \* \*
+> Doteď si pamatuji, co přesně jsem Marii tehdy řekl. Z dnešního pohledu ta slova zněla až prorocky: „LWK Loyalty a Piotr, to pro mě bude něco podobného, jako pro tebe tehdy byl Čad. Potřebuju pauzu, Marie.“
 
-  
+> Znělo to prorocky, zároveň ale absurdně, protože Maria do Čadu jela činit dobro. Zatímco po mé spanilé jízdě shořela půlka Evropy.
 
-Druhý den dopoledne mi od něj přišel e-mail:
+* * *
 
-  
+> Napsal jsem mu:
 
-  
+> „Zdravím zpátky. Asi vás to překvapí, ale rozhodl jsem se, že je to práce pro mne. Pokud jde o ten pátek a vaše pozvání na večírek, mám v plánu jít do Berghainu. Předtím bych se ale na hodinku mohl stavit.
 
-„Dobrý den! Návrh smlouvy v příloze, naše webové stránky si najdete. Výdělek pak je čistě na vás. Deset tisíc euro měsíčně je však velmi reálných. Jedu teď na pár dní do Varšavy. V pátek vás ale zvu k sobě na večírek. Schönhauser Allee 73. Po osmé. Myslím si, že váš život potřebuje změnu. Říkal jste, že mluvíte česky?
+> Odpadlík  
+> MW“
 
-PK“
+* * *
 
-Bylo to víc peněz, než kolik jsem měl v Charité. Tehdy jsem si myslel, že moje rozhodnutí zásadně ovlivnil právě tenhle fakt. Krom toho jsem věřil, že se k medicíně vrátím, a úmyslně jsem při tom ignoroval skutečnost, že výpověď daná Charité po půl roce ze mě přinejmenším v Berlíně dělá personu non grata.
+> Když jsem ten e-mail odesílal, měl jsem skvělý pocit. Volání dálek… Na začátku nešlo o nic jiného než o tohle. Plachetnice, otevřené moře, zasyčení otevírané plechovky s pivem… Jižní, nebo severní moře? Teď zpětně mi tohle přijde jako ta vůbec nejzajímavější otázka. Nebo možná existuje ještě jedna o trochu zajímavější. Východní, nebo západní moře?
 
-Během toho půl roku investovali prakticky jen oni: čas, know-how, parkovací a jiné karty. Teď to zas všechno budou muset rušit. Později jsem se dověděl, že něco takového se alespoň na mém oddělení nestalo dobrých deset let. K tomu všemu se samozřejmě ještě musí připočítat absolutní degradace mého životopisu. Svým rozhodnutí přejít do LWK Loyalty jsem polil benzínem a podpálil album s těmi nejvzácnějšími poštovními známkami, které jsem v něm doteď se zatajeným dechem rovnal pinzetou. A najednou – _Hoř, ty zkurvysyne, hoř!_ Aby si někdo v mém postavení a s mým vzděláním do životopisu napsal práci pro LWK Loyalty, to nepřipadalo v úvahu. Musel bych v životopisu raději nechat prázdno nebo uvádět „sabbatical“.
+#### 30\. prosince 2016 – noc
 
-Dnes už samozřejmě vím, že mě lákaly právě všechen ten popel a špína. Ve špíně je hodně moudrosti, přesně polovina. Kupříkladu Piotrova autohavárie. To bylo velmi svobodné a moudré rozhodnutí. Piotr usedl na svého hřebce a rozjel se proti německým tankům.
+> Berghain byl původně klub především pro gay komunitu. Od začátku tady byly darkrooms, jednalo se o fundamentální součást celého konceptu: sex, drogy a rokenrol. Jen na místě rokenrolu bylo techno a všechno mělo po německém způsobu svůj čas a místo.
 
-\* \* \*
+> Po příchodu do Berlína jsem v Berghainu trávil téměř každý víkend a viděl jsem jeho postupnou proměnu. V _darkrooms_ brzy člověk mohl přijít k sexu i s holkou. Z Berghainu se stal velmi populární prostor, „další velká věc“ nebo „místo, kde to žije“, a všichni se hecovali, kdo dokáže zajít dál. Tohle je třeba si uvědomit. Ty nejšílenější věci se nedějí tak, že by po světě chodila nějaká úplně šílená slepička a snášela úplně šílená vejce. Ty nejšílenější věci se dějí tak, že v sobě zcela nezkušená šestnáctiletá holka nosí představu, že někde po světě chodí úplně šílená slepička, co snáší úplně šílená vejce, a tahle fikce pak tu holku natolik vyhecuje, že jí to jednou skutečně ujede; holka si vezme o papír nebo o piluli víc, a stane se něco šíleného. Kluby jako Berghain fungovaly právě na tomhle modelu; šestnáctileté holky výše uvedeného typu byly palivem Berghainu a kluci a chlapi, kterým to ujíždělo před deseti nebo dvaceti lety, čekali u stěn na příležitost. Jak říkám, hodně za ně udělal mýtus. Drogy a mýtus.
 
-  
+> Mluvím jako znalec, ale tehdy před sedmi lety, když jsme se s Marií přistěhovali do Berlína, jsem byl spíše na straně těch šestnáctiletých slepiček, přestože už mi bylo třicet. Vím, že jsem tady psal o svých zářezech a o tom, že jsem měl na svatbě dva tucty lidí, kteří všichni vypadali, že by mohli rozdávat zkušenosti; ale nebylo to tak. V podstatě jsme všichni byli _wannabees_. Žili jsme v přesvědčení, že život je jinde a že se nám nespravedlivě vyhýbá. Ale měl bych asi mluvit jen za sebe. Tak tedy já jsem měl takový pocit. Drogy v mé ruce? Smály se mi a přestávaly působit.
 
-S nikým jsem své rozhodnutí nekonzultoval, dokonce ani s Marií ne. Mluvili jsme spolu poslední dobou jen málo, byla teď uzavřenější než dřív. Náš vztah však byl pevný, o tom jsme podle mě ani jeden nepochybovali. Později, když už jsem dal výpověď z Charité (musel jsem nakonec zaplatit penále) a podepsal dohodu o spolupráci s LWK Loyalty, jsem Marii svůj krok vysvětlil únavou. Náročností práce, kterou jsem neuměl skloubit s rodinou, s oběma svými děvčátky. Byl jsem na Marii hodný a vážil jsem si jí. Na tom se nic nezměnilo ani v dalších letech.
+> Když jsem studoval, podařilo se mi v berlínských klubech sbalit dvě tři holky, to je pravda. Malou Frauke jsem podváděl, ale podváděl jsem ji s holkama na její úrovni, nikdy jsem nedokázal jít výš. Ty zážitky, které jsem měl bokem, klidně mohly stát ve středu, v jednom velkém nudném proudu s těmi, kterých se mi dostávalo s Frauke. Byly to mainstreamové zážitky. V podstatě to nebyla nevěra. Marii jsem pak podvedl jen jednou, v Čadu se Sylviane.
 
-Doteď si pamatuji, co přesně jsem Marii tehdy řekl. Z dnešního pohledu ta slova zněla až prorocky: „LWK Loyalty a Piotr, to pro mě bude něco podobného, jako pro tebe tehdy byl Čad. Potřebuju pauzu, Marie.“
+> Berghain byl můj kostel, do kterého jsem bezvýsledně chodil prosit o zázrak.
 
-Znělo to prorocky, zároveň ale absurdně, protože Maria do Čadu jela činit dobro. Zatímco po mé spanilé jízdě shořela půlka Evropy.
+* * *
 
-\* \* \*
+> Piotr mi po deseti minutách odepsal:
 
-  
+> „Berghain? Co to je? Půjdeme s vámi. Omlouvám se, nemůžu to teď googlovat!“
 
-Napsal jsem mu:
+* * *
 
-  
-
-  
-
-„Zdravím zpátky. Asi vás to překvapí, ale rozhodl jsem se, že je to práce pro mne. Pokud jde o ten pátek a vaše pozvání na večírek, mám v plánu jít do Berghainu. Předtím bych se ale na hodinku mohl stavit.
-
-Odpadlík  
-MW“
-
-\* \* \*
-
-  
-
-Když jsem ten e-mail odesílal, měl jsem skvělý pocit. Volání dálek… Na začátku nešlo o nic jiného než o tohle. Plachetnice, otevřené moře, zasyčení otevírané plechovky s pivem… Jižní, nebo severní moře? Teď zpětně mi tohle přijde jako ta vůbec nejzajímavější otázka. Nebo možná existuje ještě jedna o trochu zajímavější. Východní, nebo západní moře?
-
-30\. prosince 2016 – noc
-
-  
-
-Berghain byl původně klub především pro gay komunitu. Od začátku tady byly darkrooms, jednalo se o fundamentální součást celého konceptu: sex, drogy a rokenrol. Jen na místě rokenrolu bylo techno a všechno mělo po německém způsobu svůj čas a místo.
-
-Po příchodu do Berlína jsem v Berghainu trávil téměř každý víkend a viděl jsem jeho postupnou proměnu. V _darkrooms_ brzy člověk mohl přijít k sexu i s holkou. Z Berghainu se stal velmi populární prostor, „další velká věc“ nebo „místo, kde to žije“, a všichni se hecovali, kdo dokáže zajít dál. Tohle je třeba si uvědomit. Ty nejšílenější věci se nedějí tak, že by po světě chodila nějaká úplně šílená slepička a snášela úplně šílená vejce. Ty nejšílenější věci se dějí tak, že v sobě zcela nezkušená šestnáctiletá holka nosí představu, že někde po světě chodí úplně šílená slepička, co snáší úplně šílená vejce, a tahle fikce pak tu holku natolik vyhecuje, že jí to jednou skutečně ujede; holka si vezme o papír nebo o piluli víc, a stane se něco šíleného. Kluby jako Berghain fungovaly právě na tomhle modelu; šestnáctileté holky výše uvedeného typu byly palivem Berghainu a kluci a chlapi, kterým to ujíždělo před deseti nebo dvaceti lety, čekali u stěn na příležitost. Jak říkám, hodně za ně udělal mýtus. Drogy a mýtus.
-
-Mluvím jako znalec, ale tehdy před sedmi lety, když jsme se s Marií přistěhovali do Berlína, jsem byl spíše na straně těch šestnáctiletých slepiček, přestože už mi bylo třicet. Vím, že jsem tady psal o svých zářezech a o tom, že jsem měl na svatbě dva tucty lidí, kteří všichni vypadali, že by mohli rozdávat zkušenosti; ale nebylo to tak. V podstatě jsme všichni byli _wannabees_. Žili jsme v přesvědčení, že život je jinde a že se nám nespravedlivě vyhýbá. Ale měl bych asi mluvit jen za sebe. Tak tedy já jsem měl takový pocit. Drogy v mé ruce? Smály se mi a přestávaly působit.
-
-Když jsem studoval, podařilo se mi v berlínských klubech sbalit dvě tři holky, to je pravda. Malou Frauke jsem podváděl, ale podváděl jsem ji s holkama na její úrovni, nikdy jsem nedokázal jít výš. Ty zážitky, které jsem měl bokem, klidně mohly stát ve středu, v jednom velkém nudném proudu s těmi, kterých se mi dostávalo s Frauke. Byly to mainstreamové zážitky. V podstatě to nebyla nevěra. Marii jsem pak podvedl jen jednou, v Čadu se Sylviane.
-
-Berghain byl můj kostel, do kterého jsem bezvýsledně chodil prosit o zázrak.
-
-\* \* \*
-
-  
-
-Piotr mi po deseti minutách odepsal:
-
-„Berghain? Co to je? Půjdeme s vámi. Omlouvám se, nemůžu to teď googlovat!“
-
-\* \* \*
-
-  
-
-Musel jsem okamžitě vstát a jít se podívat do zrcadla. Nevěřil jsem, že mám na tváři tu tvář, kterou si myslím. Piotrova existence na mě měla právě takový vliv. Stále se vracející akné a botox, který jsem si do tváří začal píchat o tři roky později, abych je měl mladší a jemnější, to všechno přímo souviselo s tímto Polákem.
+> Musel jsem okamžitě vstát a jít se podívat do zrcadla. Nevěřil jsem, že mám na tváři tu tvář, kterou si myslím. Piotrova existence na mě měla právě takový vliv. Stále se vracející akné a botox, který jsem si do tváří začal píchat o tři roky později, abych je měl mladší a jemnější, to všechno přímo souviselo s tímto Polákem.
 
 ## 4.
-
-  
 
 Piotr Kowalski vlastnil třetinu LWK Loyalty a bral si třetinu zisků. Všichni tři spolumajitelé přitom už asi rok fungovali spíše jako akcio­náři, zatímco o řízení se staral pětičlenný berlínský management. Piotr si mohl dát nohy na stůl. Pokud se k němu nějakým způsobem mimo strukturu LWK Loyalty dostal kontakt na lékaře, který měl zájem odejít pracovat na Západ, jako se to stalo kupříkladu s profesorem Mazurem z Gdaňsku, Piotr si teoreticky mohl dělat, co chtěl; bylo ale přinejmenším slušné prodat takový kontakt přes agenturu, a Piotr to tak většinou i dělal. V případě profesora Mazura z Gdaňsku šlo o výjimku. Piotr domluvil Mazurovi v Charité třídenní stáž, během které po celý čas fungoval jako jeho pravá ruka. Mazur se v Charité osvědčil, Piotr od kliniky dostal provizi. Agenturní praxe byla stejná, jen peníze šly nejdřív všechny do agentury. Konkrétní náborář z nich pak dostal jen menší část. Pokud jakýkoli zaměstnanec agenturu obešel, jednalo se o hrubé porušení smlouvy, za které byly vysoké smluvní pokuty.
 
@@ -466,17 +394,13 @@ Sám sebe vnímal jako člověka, který za druhé dělá špinavou práci. Jeho
 
 Na rozdíl od Alexandera a Uweho byl připravený na válku.
 
-\* \* \*
-
-  
+* * *
 
 V Mathiasovi Piotr na začátku viděl mladíčka, kterému místo krve po bradě ještě stále teče mléko. Není pitevna jako pitevna a není krev jako krev. Piotr znal Ukrajince a Rusy, i jim občas LWK Loyalty zajistila práci, ačkoli k tomu z různých důvodů docházelo jen výjimečně. Byli to vždy špičkoví odborníci. Nešlo o žádné doktory v hnědých mundúrech a válenkách, které byli diváci na celém světě zvyklí vídat v televizi po výbuchu Černobylské elektrárny a kteří pro Západ od té doby symbolizovali ruské nebo ukrajinské zdravotnictví. Špičkoví odborníci. I přesto však Rusové pocházeli z jiných piteven a viděli litry jiné krve než třeba Poláci. Právě v tom možná spočívalo ono mystérium: ruská krev, do které ruští lékaři tak dlouho hleděli, než odešli na Západ, z nich dělala lidi, kteří byli na válku ještě připravenější než Piotr.
 
 Mathias byl na samém chvostu tohohle od Východu slábnoucího řetězce. Piotr dokonce vůbec pochyboval, že Mathias kdy přišel do kontaktu se skutečnou krví.
 
 ## 5.
-
-  
 
 Na tom večírku u sebe doma v Schönhauser Allee, na který Piotr Mathiase pozval, se stala jedna nešťastná příhoda. Stala se na Ilince.
 
@@ -512,9 +436,7 @@ Piotr na sobě měl čistě bílou košili, u krku si rozepnul dva knoflíčky.
 
 „O někom takovém, jako jste vy, píše moje matka,“ řekl. „Nejste žádná konkrétní postava, Piotře, ale někdo jako vy je za každým jejím textem. Nepíše o ničem jiném než o vás, mám ten dojem.“
 
-\* \* \*
-
-  
+* * *
 
 Mathias si na skleněném stolku s pomocí kreditní karty připravil lajnu z Piotrovy krabičky. Dal si ji, nakopla ho.
 
@@ -568,9 +490,7 @@ Zakroutila hlavou a sedla si. Za detektivní činnost ji nikdo neplatil.
 
 Mathias měl chuť dát jí znovu facku. Teď už si však netroufl. Místo toho se oblékl do trenek a do trika a začal hledat.
 
-\* \* \*
-
-  
+* * *
 
 Byla to krásná bílá zubní korunka. Našel ji na světle šedém koberci jen asi metr od postele. Vystřelila při orgasmu z Piotrových úst, trefila se Mathiasovi do hrudníku, odrazila se od něj a pak dopadla na Ilinčina záda. Ilinca ji při práci setřásla na podlahu.
 
@@ -582,15 +502,11 @@ Nad dolním rtem téměř v prostředku se při Piotrových slovech ukázal odp
 
 Mathias kývl. Slyšel o tom.
 
-\* \* \*
-
-  
+* * *
 
 S Ilincou se pak u Piotra scházeli každý pátek, pokud byl Mathias v Berlíně. Vcelku se k ní chovali hezky, pokud ale šlo o sex, nebrali na ni žádné ohledy. Stejně jako později v případě Mathiasova pražského bytu, i v sexu Piotrův vkus a chutě posloužily Mathiasovi jako vzor. Ilinca byla jejich pojítkem, sadou nástrojů, kterou na posteli mistr rozbaloval před svým žákem. Ona umělá bílá keramická korunka, která při jejich prvním setkání s Ilincou vylétla na metr daleko z Piotrových úst, a zahnědlý pahýl, který se pod ní ukázal, symbolicky vyznačily metu, ke které se měl Mathias blížit.
 
-\* \* \*
-
-  
+* * *
 
 Sex se rychle stal osou Mathiasova života. Stejně rychle se také potvrdilo, co Mathias už tušil: že takový sex, jako měl s Ilincou, dokáže mít pouze s někým, jako byla Ilinca.
 
