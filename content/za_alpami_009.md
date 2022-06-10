@@ -3,6 +3,8 @@ title: "I\\. Mathias a\_Dominika"
 contentType: prose
 ---
 
+<section>
+
 ## 1.
 
 V aplikaci, kterou ve svém mobilním telefonu značky Motorola používal k psaní textových zpráv, měl Mathias Walter k dispozici série miniaturních obrázků – „stickerů“ –, které mohl přiřadit ke zprávám či jimi text zprávy zcela nahradit.
@@ -15,6 +17,10 @@ Mathias při psaní stickery používal jen málokdy s výjimkou jednoho obráz
 
 Autorem obrázků ze série Shiba Inu byl pravděpodobně jakýsi Aiko Kuninoi. Tohle jméno aspoň stálo ve sticker storu po rozkliknutí detailů hned pod titulem:
 
+</section>
+
+<section>
+
 Shiba Inu
 
 Aiko Kuninoi FREE
@@ -22,6 +28,10 @@ Aiko Kuninoi FREE
 This pup is the pick of the litter.
 
 DOWNLOADED
+
+</section>
+
+<section>
 
 Ta delší věta, pokud na ni stačily Mathiasovy znalosti anglického jazyka, podle něj znamenala zhruba: „Tohle štěně je výběr z vrhu.“ Možná: „Tohle štěně, to je tedy něco!“
 
@@ -31,7 +41,13 @@ Shiba na vodítku. A vedle shiby ještě další pes. Vodítka nejsou napnutá,
 
 Mathias sticker opakovaně používal, aniž věděl, jakou emoci nebo jaký duševní či tělesný stav obrázek oficiálně vyjadřuje. Když v aplikaci prošel kategorie, které na základě metadat sdružovaly obrázky z různých sérií se stejnou náladou, v některých z nich sice štěně shibu našel (v kategorii „Happy“ byl zobrazen shiba v momentě, kdy se vítá se svým pánem), leč po shibovi čichajícímu k zadku ve všech kategoriích pátral marně. Pokud chtěl Mathias tento nezařaditelný výjev přidat ke zprávě, musel ho vybrat přímo z adresáře Shiba Inu.
 
+  
+  
+
 ![](../Images/obrazek_2.jpg)
+
+  
+  
 
 Co tím obrázkem Mathias Walter chtěl říct?
 
@@ -57,7 +73,13 @@ Vyměnili si v angličtině pár informací a přesunuli se z Tinderu na jino
 
 Dominika reagovala do minuty. V odpovědi mu poslala následující obrázek:
 
+  
+  
+
 ![](../Images/obrazek_1.jpg)
+
+  
+  
 
 Sešli se ještě téhož dne. Náhodou se tak stalo devátého listopadu 2016 a Evropa se právě dověděla, že prezidentské volby ve Spojených státech Amerických k málem všeobecnému údivu vyhrál republikánský kandidát Donald J. Trump. Ten Donald Trump, který chtěl postavit zeď mezi Spojenými státy a Mexikem. Ten Donald Trump, který se k ženám, aspoň podle svých slov, choval dost nevybíravě: přitáhl si je a prostě je chytal za kundy.
 
@@ -232,3 +254,5 @@ Mathias se na chvíli odmlčel, jako by vyčkával s pantoflem v ruce nad pavo
 „Ne, tvoji matku, tu čarodějnici!“ vykřikl otec a málem při těch slovech pustil volant.
 
 Katharina zůstala klidná.
+
+</section>

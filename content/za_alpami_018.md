@@ -3,6 +3,8 @@ title: IV\. Krize
 contentType: prose
 ---
 
+<section>
+
 ## Z M. deníku
 
 #### 1\. ledna 2017 – odpoledne
@@ -55,7 +57,15 @@ contentType: prose
 
 > „Frauke? Chtěl bych tě vidět. Šlo by to?“ A pak jsem ke zprávě přidal svůj oblíbený sticker:
 
+</section>
+
+<section>
+
 ![](../Images/obrazek_21.jpg)
+
+</section>
+
+<section>
 
 > Nemohl jsem přestat myslet na matku. Bylo jí jednašedesát a za poslední tři roky nepublikovala žádnou knihu. Od července 2015 už druhý měsíc sváděla v denním tisku a v časopisech svůj osamělý boj s oficiálním německým postojem k uprchlické krizi. Varovala před německou sebeláskou, která se podle ní projevovala v proimigračním nadšení. Scény vítání uprchlíků na německých nádražích si v jednom článku troufla přirovnat k vítání Hitlera v kterémkoli německém městě po roce 1933. Něco takového ji okamžitě v německém veřejném prostoru té doby vyřadilo na periferii, což Katharina určitě dokázala předem odhadnout.
 
@@ -249,6 +259,10 @@ Už z Německa byla zvyklá sahat do lidských těl, pod kůži, do břicha, š
 
 Nerozuměla tomu. Hned chvíli poté, co Mathias po jejich návratu z Říma odjel do Prahy a ona uložila děti, sedla ke svému notebooku MacBook Air a napsala Tomassovi následující e-mail:
 
+</section>
+
+<section>
+
 > „Tomassi, před chvílí jsme se vrátili z Ostie. Stýskalo se mi.
 
 > Mathias se mě těsně před odletem domů zeptal na jednu velmi podivnou věc. Má nemocné ledviny, nejde ale o nic akutního. Nicméně zeptal se mě, jestli bych mu dala svoji ledvinu, pokud by bylo třeba… Šílené…! Řekla jsem mu, že o tom budu přemýšlet, že to není jen tak. Urazil se, že prý tedy počká na verdikt. Asi jsem mu na to rovnou měla odpovědět, že není na co čekat, že mu ji samozřejmě dám, jiná odpověď přece ani neexistuje… Bude o něj dobře postaráno. Dostane nejlepší zdravotní péči a moji ledvinu, pokud ji kdy vůbec bude potřebovat; podle statistik jeho onemocnění končí kolapsem ledvin zhruba ve třiceti procentech případů. Ty víš, že ho mám ráda. Pojistím ho svým vlastním tělem, už teď je ta ledvina jeho. Já ji jenom udržuji při životě. Jsem něco jako jeho mrazák.
@@ -289,7 +303,14 @@ Když se Evropa devátého listopadu odpoledne dověděla překvapivý výsledek
 
 Zeď, Piotře! Zeď! Slyšíš? Tohle slovo jsme za poslední čtvrt století skoro zapomněli. Patřilo jedině mezi Židy a Araby, do Palestiny, do toho žloutku naší civilizace. Ale celej rozumnej bílek už měl bejt navždy beze zdí. Fajn. Ale podle mě grandiózní omyl. Tady v Praze mi stačí, abych pověděl, že jsem z Berlína, stačí k tomu trochu německej přízvuk a saab kabrio, a mám kolem sebe tak vysokou a krásnou zeď, že ty holky nemůžou odolat. Škrábou se ke mně po tý zdi jako březí kočky. A naše LWK…? Žiju už skoro čtyřicet let a nevidím kolem sebe nic jinýho než zdi. Sotva jedna padne, hned se ukáže další. Stavění zdí podle mě člověka uspokojí na mnohem delší dobu než jejich občasný boření… Jsi tam? Pozdravuj Marii, pokud se uvidíte. Na Trumpa, cheers!“
 
+  
+  
+
 ![](../Images/obrazek_22.jpg)
+
+</section>
+
+<section>
 
 Piotr si Mathiasovy zprávy četl na telefonu, ale neodepisoval. Byl zrovna ve Varšavě, kde si stále pronajímal byt, přestože varšavská pobočka LWK Loyalty přinášela s každou další měsíční uzávěrkou méně zisků.
 
@@ -305,7 +326,13 @@ Mathiasovy zprávy byly zprávami z jiného světa, a pokud Mathias od Piotra 
 
 Zareagoval na Mathiasovu zprávu asi až po dvou hodinách a jeho odpověď byla stručná:
 
+  
+  
+
 ![](../Images/obrazek_3.jpg)
+
+  
+  
 
 V té chvíli už ale měl Mathias jiné starosti.
 
@@ -455,15 +482,39 @@ V té chvíli už ale měl Mathias jiné starosti.
 
 > Odepsala mi po čtvrt hodině:
 
+</section>
+
+<section>
+
 ![](../Images/obrazek_4.jpg)
+
+</section>
+
+<section>
 
 > A pak hned:
 
+</section>
+
+<section>
+
 ![](../Images/obrazek_5.jpg)
+
+</section>
+
+<section>
 
 > Nakonec:
 
+</section>
+
+<section>
+
 ![](../Images/obrazek_6.jpg)
+
+</section>
+
+<section>
 
 > Podobné drama jsem nehodlal opakovat. Piotrovi jsem napsal e-mail. O nějaké neurčité krizi, o nabíjení se, o józe a o meditacích. Slíbil jsem, že LWK Loyalty nebude na mé pauze nic tratit. Byl to nesmysl, ale stejně jsem e-mail odeslal. Už při psaní mi došlo, že mi na práci v LWK nezáleží. Byl jsem připravený skončit a vlastně jsem si ani neuměl představit, že by to mohlo dopadnout jinak.
 
@@ -811,7 +862,13 @@ Zapnul telefon a po dvou měsících se poprvé připojil na internet. Přečet
 
 Na Messengeru měl dobrou padesátku zpráv, ale ta poslední od jeho matky byla docela nahoře. Přišla mu včera a byla stručná:
 
+  
+  
+
 ![](../Images/obrazek_7.jpg)
+
+  
+  
 
 Měl by zavolat Marii, ale neudělal to. Vypnul telefon, nasadil si na hlavu kapuci svého černého duffle kabátu a díval se z okna.
 
@@ -904,3 +961,5 @@ Zvedla oči a podívala se k horám. Nikdy předtím v Churu nebyla, v noci 
 Okolní hory člověka zdržují, není lehké se sem dostat. Ohromnou vzdálenost mezi Berlínem a Norimberkem po dálnici skoro projela rychleji než pár desítek kilometrů přes Alpy; vzdálenosti na Google Maps jsou v tomhle směru zavádějící, člověk se jimi nesmí nechat zmást. Umíme budovat tunely a estakády, kdysi nepředstavitelné stavby, ale Alpy jsou pro nás dál svým způsobem nepřekonatelné. Neumíme zařídit, aby nám nekomplikovaly život; na tom se za poslední staletí nic nezměnilo. Nejde je nevidět a nezmenšují se. Kumulují v sobě čas.
 
 „Na netrpělivé lidi to tady musí působit nesnesitelně svíravě,“ řekla a šla zkontrolovat děti.
+
+</section>

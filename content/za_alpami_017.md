@@ -3,6 +3,8 @@ title: III\. Periferie
 contentType: prose
 ---
 
+<section>
+
 ## 1.
 
 V Čechách byl naposledy ještě před pádem železné opony, konkrétně v létě 1988, ve svých devíti letech. Tehdy byl v Katharinině rodné zemi poprvé a naposledy. Odmítl jet nejen na výměnný pobyt s gymnáziem do Broumova, nýbrž i na pohřeb své babičky v roce 1995.
@@ -116,3 +118,5 @@ Ten malý byt na Letné, který koupil v srpnu 2011 a který do konce roku nec
 * * *
 
 > V roce 2015 už Ilinca uměla docela obstojně německy. I ona už se blížila třicítce. Nechala nerozumu a vzala práci v nemocnici v Berlíně. V tomhle případě se LWK Loyalty zachovala ukázkově: Ilinca za intenzivní kurzy, které LWK organizovala pro české a další sestry a na kterých vydělávala majlant, neplatila ani euro a odcházela z nich s nejlepšími výsledky; drželi jsme jí s Piotrem hlavu nad učebnicí tak dlouho, dokud si do ní tu němčinu nenatloukla. Držet Ilinčinu hlavu, to jsme s Piotrem uměli.
+
+</section>

@@ -3,6 +3,8 @@ title: ''
 contentType: prose
 ---
 
+<section>
+
 ## 1.
 
 Mathias odjel studovat do Berlína. Z provinčního západoněmeckého Wiesbadenu ve staré spolkové zemi, kde se všechno točilo kolem cen pozemků a finančnictví, do velkoměsta, které fakticky bylo na druhé straně, na Východě, a kde byl šev mezi jedním a druhým Německem víc než symbolický; v Berlíně šlo o šev doslovný, citelný, hmatatelný. Nikde v Německu ho nešlo nahmatat lépe.
@@ -147,9 +149,17 @@ Mathias dlouho neváhal. Na nabídku přitom nekývl ani tak kvůli matce nebo k
 
 Zabralo mu to asi tři hodiny. Nakonec se rozhodl, že se vyhne tématu matka. Místo toho básnil o ženské kráse, mládí a svěžesti:
 
+</section>
+
+<section>
+
 _její kůže byla vypnutá  
 jako plachty  
 do nichž se opírá příroda_
+
+</section>
+
+<section>
 
 Pokud by měl říct, do jaké míry to všechno bral vážně, odpovídalo by se mu kupodivu docela těžko. Na jedné straně to samozřejmě byl jen ohromný vtip, který měl zároveň ilustrovat Mathiasovu genialitu; doktor s nulovými literárními zkušenostmi a ambicemi bez problému píše a tiskne docela povedené básně.
 
@@ -607,6 +617,10 @@ Ještě někoho na internetu našla. Tentokrát spíše náhodou. Jednalo se o 
 
 Mathiase nekontaktovala. Janovi ale ihned napsala e-mail. Psala česky:
 
+</section>
+
+<section>
+
 > „Milý Jene!
 
 > Gratuluji k úspěchu v Čechách a doufám, že volby vyhrajete. Natřete jim to…! _Game, set… totální unie svobody_…! Ale ty to znáš, však jsi tady žil.
@@ -627,17 +641,29 @@ Mathiase nekontaktovala. Janovi ale ihned napsala e-mail. Psala česky:
 
 Odepsal jí až skoro po čtvrt roce, po červnových volbách do české Poslanecké sněmovny, v nichž koalice křesťanských demokratů s US-DEU získala čtrnáct procent. Jan Rabas v Olomouci kandidoval ze čtvrtého místa tamní kandidátky US-DEU a do parlamentu se nedostal:
 
+</section>
+
+<section>
+
 > „Milá Kateřino, Katharino. Jo, znám pár tvých knížek, takže znám a chápu i tón tvého e-mailu. Nemůžeš si pomoct. Musíš pořád do někoho bodat. Jsi tak povýšená, až to hezké není. Tvoje věc, já jsem v každém případě rád, že to mezi nám skončilo dřív, než se v tobě všechna ta zloba probrala. Za všechna přání a informace ti děkuji a jdi k čertu.
 
 > JR“
 
 Odepsala mu obratem:
 
+</section>
+
+<section>
+
 > „OMG, ty jsi ale vůl!
 
 > KW“
 
 Od Jana přišel další e-mail opět až asi po měsíci:
+
+</section>
+
+<section>
 
 > „Kateřino, ahoj, promiň mi. Ty volby tady. Ujelo mi to.
 
@@ -660,6 +686,10 @@ Od Jana přišel další e-mail opět až asi po měsíci:
 > Jan“
 
 Katharina opět odpověděla obratem:
+
+</section>
+
+<section>
 
 > „Milý Jene.
 
@@ -1130,3 +1160,5 @@ Počkal, až budou zpátky v hotelu.
 * * *
 
 Ráno jednadvacátého prosince 2007 odjela do Am Timanu. Už v osm ji vyzvedl řidič, shodou okolností mladý a statný černoch. Mathiasovi v čadské N’Djameně do odletu zbývalo čtyřiadvacet hodin.
+
+</section>
