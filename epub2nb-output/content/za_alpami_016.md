@@ -3,6 +3,8 @@ title: II\. Hauptstadt
 contentType: prose
 ---
 
+<section>
+
 ## 1.
 
 Jeho let společnosti Air France z Paříže přistál brzy ráno třiadvacátého prosince 2007 ve Frankfurtu. Mathias byl unavený, klepal se zimou a bolela ho hlava.
@@ -511,3 +513,5 @@ S Ilincou se pak u Piotra scházeli každý pátek, pokud byl Mathias v Berl�
 Sex se rychle stal osou Mathiasova života. Stejně rychle se také potvrdilo, co Mathias už tušil: že takový sex, jako měl s Ilincou, dokáže mít pouze s někým, jako byla Ilinca.
 
 Začala jeho cesta do hlubin noci.
+
+</section>

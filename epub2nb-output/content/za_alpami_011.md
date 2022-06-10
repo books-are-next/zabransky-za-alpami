@@ -3,6 +3,8 @@ title: "III\\. Katharina a\_Clemens"
 contentType: prose
 ---
 
+<section>
+
 ## 1.
 
 Osmačtyřicetiletý spolumajitel továrny na výrobu trubkových motorů do stínící techniky Clemens Walter, ročník 1930, toho dne vyrazil na svoji pravidelnou procházku na vrcholek kopce Neroberg. Z dolního nerotalského parku tam vedla historická lanovka, na cestě k vrcholu krom venkovních lázní tajného rady Wilhelma von Opela stála i další známá wiesbadenská stavba, ruský ortodoxní kostel, který dal roku 1847 na památku své předčasně zesnulé manželky vystavět velkovévoda Adolf. Nezalesněné části kopce pokrývaly vinice, z vrcholku byl výhled na Wiesbaden i na Mohuč. Občerstvit se šlo v restauraci Der Turm. Clemensovy procházky s Eilou u nohy vedly od vily v Nerobergstrafte k ruskému kostelu, pak dál lesem na vrchol, kde se u horní stanice lanovky s Eilou napojili na takzvanou „Philosophenweg“, po které se po západním úbočí kopce vraceli dolů na Nerotal. O sobotách a o nedělích, kdy se po značených trasách na Neroberg vydávaly malé zástupy, Clemens volil různé zkratky, aby se výletníkům vyhnul.
@@ -1252,3 +1254,5 @@ Po čtyřech letech masturbování se prostě cítil jako matador. Věděl, jak�
 Poklus s taškou před poklopcem na špinavou vlakovou toaletu, kde se čurá a kadí, byl pro osmnáctiletého Mathiase čímsi zcela výjimečným. Jako by do jeho poklidného dlouhodobého vztahu vtrhla vášeň a Mathias se té vášni s velkou nechutí podvolil. Vyhonil si ho, za neustálého škubání vlaku, nějak kvůli mrtvému otci, nějak z mrtvého otce, nějak přes otce, nějak z otcovy vůle, a pak v otcově vůli pokračoval i v Berlíně. Najednou měl ohromný drive. Zuřivý, úzkostný drive, který ho během pouhých dvou dnů stihl prohnat po cestě, obestavěné pevným železným hrazením, z bodu A do bodu B, od letité masturbace až k prvnímu pohlavnímu styku, jako by ta hrazení kolem cesty Mathiasovi nedávala na výběr, nebo mu z jiné perspektivy značila cestu, stejně jako je tomu v případě dobytka, jemuž farmář nedává na výběr, nebo mu značí cestu od kravína k hale s porážkou.
 
 Mathias, když přijel do Berlína, věděl, že chce holku. Věděl, že chce holku, a věděl, že na to bude muset jít přes hudbu.
+
+</section>

@@ -3,6 +3,8 @@ title: Epilog
 contentType: prose
 ---
 
+<section>
+
 Sešli se v půl jedenácté ráno v Café Martinsplatz na náměstí před katedrálou svatého Martina. Maria, její rodiče, Piotr s Judytou a Mathias. Dali si po probuzení vědět po esemeskách, místo navrhli Caiazzovi. Bydleli kousek odtud a katedrála byla nepřehlédnutelnou dominantou třicetitisícového města.
 
 Všichni byli nevyspalí a někteří pociťovali zbytečnost téhle švýcarské epizody. Bylo nevlídně, zima a těžké mraky v nevyspáni zalézaly pod kůži.
@@ -43,4 +45,10 @@ Mathias vzal do ruky telefon a bez efektu ho hodil proti tvrdému sklu výlohy.
 
 Sám, malý a bledý.
 
+</section>
+
+<section>
+
 > _Dopsáno v Broumově 21. července 2017._
+
+</section>

@@ -3,6 +3,8 @@ title: "II\\. Kateřina a\_Jan"
 contentType: prose
 ---
 
+<section>
+
 Kateřina Sadovská, Katka, jak jí tehdy všichni říkali, do Spolkové republiky odešla v roce 1977 s Janem Rabasem, svojí první velkou láskou. Když utíkala, bylo jí třiadvacet a studovala filozofii na pražské univerzitě. Janovi, vystudovanému inženýru, bylo o sedm let víc. Oba pocházeli ze stejné společenské vrstvy, z takzvaných slušných rodin. Slušné rodiny byly v tehdejší Československé socialistické republice zároveň chudými rodinami.
 
 Seznámili se ve sportovním klubu „Sparta ČKD“ v hlavním městě. To bylo Kateřině rovných dvacet. Jan, který se v Praze na rozdíl od ní narodil, byl Kateřininým trenérem tenisu. Zároveň to byl její úplně první kluk, Kateřina s ním přišla o panenství. Stalo se to až v jejích jednadvaceti, možná o rok nebo dva později, než bývalo u dívek z jejích vrstev zvykem. Jan si tehdy na první sex musel počkat dlouhých osm měsíců. Vydržel to, čímž Kateřině podal důkaz o upřímnosti svého citu.
@@ -246,3 +248,5 @@ Jednoho červnového sobotního rána, když neměla službu v Pantha Rei, vypr
 V turistickém centru přímo na nádraží si vzala plánek města. Rozhodla se, že z nádraží půjde na sever k Zámeckému náměstí, kde stály nejstarší či nejvýznamnější stavby, Stará radnice a městský zámek vévodů z Nassau. Poté pokračovala po elegantní Wilhelmstraße, dokud nedošla ke krajinnému parku Warmer Damm a k lázeňskému trojúhelníku. Součástí lázeňské kolonády byla i nejdelší sloupová hala v Evropě, pokud tedy Kateřina textu z plánku dobře rozuměla.
 
 U termálního léčivého pramene v parku Kochbrunnen, v nejsevernější části centra její plánek končil. Za černou linkou, která oddělovala plánek od bílého ořezu, byla na vrchní straně letáku už jen šipka ukazující dál na sever a popisek „Nerotal 2,5 km“.
+
+</section>

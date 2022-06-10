@@ -3,6 +3,8 @@ title: I\. Kolonie
 contentType: prose
 ---
 
+<section>
+
 ## Z M. deníku
 
 #### 17\. prosince 2016
@@ -310,3 +312,5 @@ contentType: prose
 > Napadlo mě, že i ona musí rozumět mým oblíbeným rytmům, v zásadě tribálním, kopírujícím tlukot lidského srdce. Ale kupodivu jsem k ní díky tomu nenašel cestu, spíše naopak. Musel bych se propadnout studem, kdyby mě nějakým zázrakem mohla vidět v těch chvílích, kdy stojím v klubu Robert Johnson v Offenbachu a hýbu se do rytmu.
 
 > A dnes? Pokud bych před ní směl utajit jen jednu věc, kdybychom se teď po deseti letech měli potkat, pak bych znovu utajil právě toto: já, sedmatřicetiletý Mathias Walter, stojím v klubu Robert Johnson, kde mi další mladá generace, kterou jsem tam zažil, říká „techno děda“, motoricky hýbu hlavou a rukama a dělám… absolutně nevím co.
+
+</section>
