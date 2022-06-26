@@ -8,7 +8,8 @@
       "publisher": "Městská knihovna v Praze",
       "modified": "2021-06-02T00:00:00.000Z",
       "isbn": "978-80-274-1602-8",
-      "publisherShort": "mkp"
+      "publisherShort": "mkp",
+      "contentType": "prose"
     },
     "elements": {
       "title": "MLP.uroven1.*\nMLP.uroven2.kapitola\nMLP.uroven2.basne\nMLP.uroven2.kapitola.dopis\nMLP.uroven2.kapitola.upraven\ne.booknadpis2\ne.booknadpis2bezodstrnkovn\ne.booknadpis2probasne\ne.bookobsah\nheading.id.2\nmlpuroven1.*\nmlpuroven2.*\nMLP.UROVEN2.BASNE.II\nMLP.UROVEN2.KAPITOLA\nMLP.UROVEN2.PARAL\nMLP.uroven1.PARAL",
@@ -24,12 +25,12 @@
       "brAfter": ".+0.12\n.+12.12\n.+0.12.\n.+12.12.\ne.bookversebezpredsazeni.*za.*\ne.bookodsazeniodstavce.*za.*",
       "blockquote": "MLP.DENIK\nMLP.dopis.*\nMLP.citat\nMLP.prima.rec\ne.bookdopis\ne.bookprozatextkurzivadoprava",
       "figure": "MLP.obrazky.*\nmlpobrazky",
+      "centered": ".*uprostred.*",
+      "verse": "MLP.verse.*",
       "em": ".*kurziva.*\n.*-I-.*\n.*-I\n.*_I_.*\n.*_I\nMLP.venovani\nMLP.verse.*\nMLP.titulka.prekladatel\nMLP.pozn.pod.carou\nMLP.scenicke.poznamky\ne.booktextvenovani.*\nmlpvenovani.*\nmlpversei",
       "strong": "MLP.tiraz.autor.a.nazev\nMLP.tiraz.podnazev\nMLP.licence.paragraf\n.*tucne.*\n.*tucna.*\n.*-B-\n.*-B\n.*_B_\n.*_B\nMLP.prima.rec\nMLP.prima.rec.bez.mezery\ne.booktirazautoradilo\nmlptextb\nmlptirazautoranazev",
       "remove": "",
-      "ignore": "",
-      "centered": ".*uprostred.*",
-      "verse": "MLP.verse.*"
+      "ignore": ""
     },
     "structure": [
       {
@@ -95,8 +96,8 @@
             "hungry": false,
             "devoured": false,
             "hiddenTitle": true,
-            "children": [],
-            "title": "Věnování"
+            "title": "Poznámka autora",
+            "children": []
           },
           {
             "filename": "za_alpami_006.md",
@@ -108,8 +109,8 @@
             "hungry": false,
             "devoured": false,
             "hiddenTitle": true,
-            "children": [],
-            "title": "Citát"
+            "title": "Citát",
+            "children": []
           },
           {
             "filename": "za_alpami_007.md",
@@ -121,8 +122,8 @@
             "hungry": false,
             "devoured": false,
             "hiddenTitle": false,
-            "children": [],
-            "title": "Prolog"
+            "title": "Prolog",
+            "children": []
           },
           {
             "filename": "za_alpami_008.md",
@@ -134,6 +135,7 @@
             "hungry": false,
             "devoured": false,
             "hiddenTitle": false,
+            "title": "DÍL PRVNÍ",
             "children": [
               {
                 "filename": "za_alpami_009.md",
@@ -145,8 +147,8 @@
                 "hungry": false,
                 "devoured": false,
                 "hiddenTitle": false,
-                "children": [],
-                "title": "I. Mathias a Dominika"
+                "title": "I. Mathias a Dominika",
+                "children": []
               },
               {
                 "filename": "za_alpami_010.md",
@@ -158,8 +160,8 @@
                 "hungry": false,
                 "devoured": false,
                 "hiddenTitle": false,
-                "children": [],
-                "title": "II. Kateřina a Jan"
+                "title": "II. Kateřina a Jan",
+                "children": []
               },
               {
                 "filename": "za_alpami_011.md",
@@ -171,11 +173,10 @@
                 "hungry": false,
                 "devoured": false,
                 "hiddenTitle": false,
-                "children": [],
-                "title": "III. Katharina a Clemens"
+                "title": "III. Katharina a Clemens",
+                "children": []
               }
-            ],
-            "title": "DÍL PRVNÍ"
+            ]
           },
           {
             "filename": "za_alpami_012.md",
@@ -187,6 +188,7 @@
             "hungry": false,
             "devoured": false,
             "hiddenTitle": false,
+            "title": "DÍL DRUHÝ",
             "children": [
               {
                 "filename": "za_alpami_013.md",
@@ -200,8 +202,7 @@
                 "hiddenTitle": false,
                 "children": []
               }
-            ],
-            "title": "DÍL DRUHÝ"
+            ]
           },
           {
             "filename": "za_alpami_014.md",
@@ -213,6 +214,7 @@
             "hungry": false,
             "devoured": false,
             "hiddenTitle": false,
+            "title": "DÍL TŘETÍ",
             "children": [
               {
                 "filename": "za_alpami_015.md",
@@ -224,8 +226,8 @@
                 "hungry": false,
                 "devoured": false,
                 "hiddenTitle": false,
-                "children": [],
-                "title": "I. Kolonie"
+                "title": "I. Kolonie",
+                "children": []
               },
               {
                 "filename": "za_alpami_016.md",
@@ -237,8 +239,8 @@
                 "hungry": false,
                 "devoured": false,
                 "hiddenTitle": false,
-                "children": [],
-                "title": "II. Hauptstadt"
+                "title": "II. Hauptstadt",
+                "children": []
               },
               {
                 "filename": "za_alpami_017.md",
@@ -250,8 +252,8 @@
                 "hungry": false,
                 "devoured": false,
                 "hiddenTitle": false,
-                "children": [],
-                "title": "III. Periferie"
+                "title": "III. Periferie",
+                "children": []
               },
               {
                 "filename": "za_alpami_018.md",
@@ -263,11 +265,10 @@
                 "hungry": false,
                 "devoured": false,
                 "hiddenTitle": false,
-                "children": [],
-                "title": "IV. Krize"
+                "title": "IV. Krize",
+                "children": []
               }
-            ],
-            "title": "DÍL TŘETÍ"
+            ]
           },
           {
             "filename": "za_alpami_019.md",
@@ -279,8 +280,8 @@
             "hungry": false,
             "devoured": false,
             "hiddenTitle": true,
-            "children": [],
-            "title": "Epilog"
+            "title": "Epilog",
+            "children": []
           },
           {
             "filename": "za_alpami_020.md",
@@ -552,6 +553,6 @@
       "user": "books-are-next",
       "repo": "zabransky-za-alpami"
     },
-    "generatedAt": 1654949096875
+    "generatedAt": 1656231652672
   }
 }
