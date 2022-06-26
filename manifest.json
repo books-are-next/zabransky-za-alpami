@@ -1,0 +1,801 @@
+{
+  "preview": {
+    "isPreview": false
+  },
+  "title": "Za Alpami",
+  "author": "David Zábranský",
+  "publisher": "Městská knihovna v Praze",
+  "languageCode": "cs",
+  "root": "main",
+  "identifier": "zabransky-za-alpami-0bb10a6",
+  "revision": "0bb10a6",
+  "readingOrder": [
+    "promo.html",
+    "za_alpami_005.html",
+    "za_alpami_006.html",
+    "za_alpami_007.html",
+    "za_alpami_008.html",
+    "za_alpami_009.html",
+    "za_alpami_010.html",
+    "za_alpami_011.html",
+    "za_alpami_012.html",
+    "za_alpami_013.html",
+    "za_alpami_014.html",
+    "za_alpami_015.html",
+    "za_alpami_016.html",
+    "za_alpami_017.html",
+    "za_alpami_018.html",
+    "za_alpami_019.html",
+    "colophon.html"
+  ],
+  "generatedAt": {
+    "date": "Sun Jun 26 2022 08:22:08 GMT+0000 (Coordinated Universal Time)",
+    "unix": 1656231728252
+  },
+  "documents": [
+    {
+      "title": "Městská knihovna v Praze",
+      "file": "promo.html",
+      "words": 0,
+      "chars": 0,
+      "ideas": 0,
+      "role": "chapter",
+      "order": 0,
+      "prev": null,
+      "next": "za_alpami_005.html",
+      "toc": []
+    },
+    {
+      "title": "Za Alpami",
+      "file": "za_alpami_005.html",
+      "words": 7,
+      "chars": 34,
+      "ideas": 1,
+      "role": "chapter",
+      "order": 1,
+      "prev": "promo.html",
+      "next": "za_alpami_006.html",
+      "toc": [
+        {
+          "index": 0,
+          "level": 1,
+          "name": null,
+          "id": null,
+          "children": []
+        }
+      ]
+    },
+    {
+      "title": "Za Alpami",
+      "file": "za_alpami_006.html",
+      "words": 71,
+      "chars": 375,
+      "ideas": 4,
+      "role": "chapter",
+      "order": 2,
+      "prev": "za_alpami_005.html",
+      "next": "za_alpami_007.html",
+      "toc": [
+        {
+          "index": 0,
+          "level": 1,
+          "name": null,
+          "id": null,
+          "children": []
+        }
+      ]
+    },
+    {
+      "title": "Prolog",
+      "file": "za_alpami_007.html",
+      "words": 254,
+      "chars": 1695,
+      "ideas": 4,
+      "role": "chapter",
+      "order": 3,
+      "prev": "za_alpami_006.html",
+      "next": "za_alpami_008.html",
+      "toc": [
+        {
+          "index": 0,
+          "level": 1,
+          "name": "Prolog",
+          "id": null,
+          "children": []
+        }
+      ]
+    },
+    {
+      "title": "DÍL PRVNÍ",
+      "file": "za_alpami_008.html",
+      "words": 2,
+      "chars": 9,
+      "ideas": 1,
+      "role": "chapter",
+      "order": 4,
+      "prev": "za_alpami_007.html",
+      "next": "za_alpami_009.html",
+      "toc": [
+        {
+          "index": 0,
+          "level": 1,
+          "name": "DÍL PRVNÍ",
+          "id": null,
+          "children": []
+        }
+      ]
+    },
+    {
+      "title": "I. Mathias a Dominika",
+      "file": "za_alpami_009.html",
+      "words": 4622,
+      "chars": 28639,
+      "ideas": 109,
+      "role": "chapter",
+      "order": 5,
+      "prev": "za_alpami_008.html",
+      "next": "za_alpami_010.html",
+      "toc": [
+        {
+          "index": 0,
+          "level": 1,
+          "name": "I. Mathias a Dominika",
+          "id": null,
+          "children": [
+            {
+              "index": 1,
+              "level": 2,
+              "name": "1.",
+              "id": "1",
+              "children": []
+            },
+            {
+              "index": 2,
+              "level": 2,
+              "name": "2.",
+              "id": "2",
+              "children": []
+            },
+            {
+              "index": 3,
+              "level": 2,
+              "name": "3.",
+              "id": "3",
+              "children": []
+            },
+            {
+              "index": 4,
+              "level": 2,
+              "name": "4.",
+              "id": "4",
+              "children": []
+            },
+            {
+              "index": 5,
+              "level": 2,
+              "name": "5.",
+              "id": "5",
+              "children": []
+            },
+            {
+              "index": 6,
+              "level": 2,
+              "name": "6.",
+              "id": "6",
+              "children": []
+            }
+          ]
+        }
+      ]
+    },
+    {
+      "title": "II. Kateřina a Jan",
+      "file": "za_alpami_010.html",
+      "words": 6177,
+      "chars": 37875,
+      "ideas": 104,
+      "role": "chapter",
+      "order": 6,
+      "prev": "za_alpami_009.html",
+      "next": "za_alpami_011.html",
+      "toc": [
+        {
+          "index": 0,
+          "level": 1,
+          "name": "II. Kateřina a Jan",
+          "id": null,
+          "children": []
+        }
+      ]
+    },
+    {
+      "title": "III. Katharina a Clemens",
+      "file": "za_alpami_011.html",
+      "words": 31817,
+      "chars": 192113,
+      "ideas": 567,
+      "role": "chapter",
+      "order": 7,
+      "prev": "za_alpami_010.html",
+      "next": "za_alpami_012.html",
+      "toc": [
+        {
+          "index": 0,
+          "level": 1,
+          "name": "III. Katharina a Clemens",
+          "id": null,
+          "children": [
+            {
+              "index": 1,
+              "level": 2,
+              "name": "1.",
+              "id": "1",
+              "children": []
+            },
+            {
+              "index": 2,
+              "level": 2,
+              "name": "2.",
+              "id": "2",
+              "children": []
+            },
+            {
+              "index": 3,
+              "level": 2,
+              "name": "3.",
+              "id": "3",
+              "children": []
+            },
+            {
+              "index": 4,
+              "level": 2,
+              "name": "4.",
+              "id": "4",
+              "children": []
+            },
+            {
+              "index": 5,
+              "level": 2,
+              "name": "5.",
+              "id": "5",
+              "children": []
+            },
+            {
+              "index": 6,
+              "level": 2,
+              "name": "6.",
+              "id": "6",
+              "children": []
+            },
+            {
+              "index": 7,
+              "level": 2,
+              "name": "Intermezzo – Michel Jouvet a sny",
+              "id": "intermezzo-michel-jouvet-asny",
+              "children": []
+            },
+            {
+              "index": 8,
+              "level": 2,
+              "name": "7.",
+              "id": "7",
+              "children": []
+            },
+            {
+              "index": 9,
+              "level": 2,
+              "name": "8.",
+              "id": "8",
+              "children": []
+            },
+            {
+              "index": 10,
+              "level": 2,
+              "name": "Z K. knihy",
+              "id": "zk-knihy",
+              "children": []
+            },
+            {
+              "index": 11,
+              "level": 2,
+              "name": "10.",
+              "id": "10",
+              "children": []
+            },
+            {
+              "index": 12,
+              "level": 2,
+              "name": "11.",
+              "id": "11",
+              "children": []
+            },
+            {
+              "index": 13,
+              "level": 2,
+              "name": "12.",
+              "id": "12",
+              "children": []
+            },
+            {
+              "index": 14,
+              "level": 2,
+              "name": "Z K. knihy",
+              "id": "zk-knihy-1",
+              "children": []
+            },
+            {
+              "index": 15,
+              "level": 2,
+              "name": "14.",
+              "id": "14",
+              "children": []
+            },
+            {
+              "index": 16,
+              "level": 2,
+              "name": "15.",
+              "id": "15",
+              "children": []
+            },
+            {
+              "index": 17,
+              "level": 2,
+              "name": "Z K. knihy",
+              "id": "zk-knihy-2",
+              "children": []
+            },
+            {
+              "index": 18,
+              "level": 2,
+              "name": "17",
+              "id": "17",
+              "children": []
+            }
+          ]
+        }
+      ]
+    },
+    {
+      "title": "DÍL DRUHÝ",
+      "file": "za_alpami_012.html",
+      "words": 2,
+      "chars": 9,
+      "ideas": 1,
+      "role": "chapter",
+      "order": 8,
+      "prev": "za_alpami_011.html",
+      "next": "za_alpami_013.html",
+      "toc": [
+        {
+          "index": 0,
+          "level": 1,
+          "name": "DÍL DRUHÝ",
+          "id": null,
+          "children": []
+        }
+      ]
+    },
+    {
+      "title": "Za Alpami",
+      "file": "za_alpami_013.html",
+      "words": 27172,
+      "chars": 162489,
+      "ideas": 518,
+      "role": "chapter",
+      "order": 9,
+      "prev": "za_alpami_012.html",
+      "next": "za_alpami_014.html",
+      "toc": [
+        {
+          "index": 0,
+          "level": 1,
+          "name": null,
+          "id": null,
+          "children": [
+            {
+              "index": 1,
+              "level": 2,
+              "name": "1.",
+              "id": "1",
+              "children": []
+            },
+            {
+              "index": 2,
+              "level": 2,
+              "name": "Z K. knihy",
+              "id": "zk-knihy",
+              "children": []
+            },
+            {
+              "index": 3,
+              "level": 2,
+              "name": "3.",
+              "id": "3",
+              "children": []
+            },
+            {
+              "index": 4,
+              "level": 2,
+              "name": "Z K. knihy",
+              "id": "zk-knihy-1",
+              "children": []
+            },
+            {
+              "index": 5,
+              "level": 2,
+              "name": "5.",
+              "id": "5",
+              "children": []
+            },
+            {
+              "index": 6,
+              "level": 2,
+              "name": "6.",
+              "id": "6",
+              "children": []
+            },
+            {
+              "index": 7,
+              "level": 2,
+              "name": "7.",
+              "id": "7",
+              "children": []
+            },
+            {
+              "index": 8,
+              "level": 2,
+              "name": "8.",
+              "id": "8",
+              "children": []
+            },
+            {
+              "index": 9,
+              "level": 2,
+              "name": "9.",
+              "id": "9",
+              "children": []
+            },
+            {
+              "index": 10,
+              "level": 2,
+              "name": "Z K. knihy",
+              "id": "zk-knihy-2",
+              "children": []
+            },
+            {
+              "index": 11,
+              "level": 2,
+              "name": "11.",
+              "id": "11",
+              "children": []
+            },
+            {
+              "index": 12,
+              "level": 2,
+              "name": "12.",
+              "id": "12",
+              "children": []
+            }
+          ]
+        }
+      ]
+    },
+    {
+      "title": "DÍL TŘETÍ",
+      "file": "za_alpami_014.html",
+      "words": 2,
+      "chars": 9,
+      "ideas": 1,
+      "role": "chapter",
+      "order": 10,
+      "prev": "za_alpami_013.html",
+      "next": "za_alpami_015.html",
+      "toc": [
+        {
+          "index": 0,
+          "level": 1,
+          "name": "DÍL TŘETÍ",
+          "id": null,
+          "children": []
+        }
+      ]
+    },
+    {
+      "title": "I. Kolonie",
+      "file": "za_alpami_015.html",
+      "words": 5754,
+      "chars": 34180,
+      "ideas": 141,
+      "role": "chapter",
+      "order": 11,
+      "prev": "za_alpami_014.html",
+      "next": "za_alpami_016.html",
+      "toc": [
+        {
+          "index": 0,
+          "level": 1,
+          "name": "I. Kolonie",
+          "id": null,
+          "children": [
+            {
+              "index": 1,
+              "level": 2,
+              "name": "Z M. deníku",
+              "id": "zm-deníku",
+              "children": []
+            }
+          ]
+        }
+      ]
+    },
+    {
+      "title": "II. Hauptstadt",
+      "file": "za_alpami_016.html",
+      "words": 10295,
+      "chars": 62127,
+      "ideas": 225,
+      "role": "chapter",
+      "order": 12,
+      "prev": "za_alpami_015.html",
+      "next": "za_alpami_017.html",
+      "toc": [
+        {
+          "index": 0,
+          "level": 1,
+          "name": "II. Hauptstadt",
+          "id": null,
+          "children": [
+            {
+              "index": 1,
+              "level": 2,
+              "name": "1.",
+              "id": "1",
+              "children": []
+            },
+            {
+              "index": 2,
+              "level": 2,
+              "name": "2.",
+              "id": "2",
+              "children": []
+            },
+            {
+              "index": 3,
+              "level": 2,
+              "name": "Z M. deníku",
+              "id": "zm-deníku",
+              "children": []
+            },
+            {
+              "index": 7,
+              "level": 2,
+              "name": "4.",
+              "id": "4",
+              "children": []
+            },
+            {
+              "index": 8,
+              "level": 2,
+              "name": "5.",
+              "id": "5",
+              "children": []
+            }
+          ]
+        }
+      ]
+    },
+    {
+      "title": "III. Periferie",
+      "file": "za_alpami_017.html",
+      "words": 2275,
+      "chars": 14068,
+      "ideas": 50,
+      "role": "chapter",
+      "order": 13,
+      "prev": "za_alpami_016.html",
+      "next": "za_alpami_018.html",
+      "toc": [
+        {
+          "index": 0,
+          "level": 1,
+          "name": "III. Periferie",
+          "id": null,
+          "children": [
+            {
+              "index": 1,
+              "level": 2,
+              "name": "1.",
+              "id": "1",
+              "children": []
+            },
+            {
+              "index": 2,
+              "level": 2,
+              "name": "2.",
+              "id": "2",
+              "children": []
+            },
+            {
+              "index": 3,
+              "level": 2,
+              "name": "Z M. deníku",
+              "id": "zm-deníku",
+              "children": []
+            },
+            {
+              "index": 5,
+              "level": 2,
+              "name": "4.",
+              "id": "4",
+              "children": []
+            },
+            {
+              "index": 6,
+              "level": 2,
+              "name": "Z M. deníku",
+              "id": "zm-deníku-1",
+              "children": []
+            }
+          ]
+        }
+      ]
+    },
+    {
+      "title": "IV. Krize",
+      "file": "za_alpami_018.html",
+      "words": 18407,
+      "chars": 112201,
+      "ideas": 422,
+      "role": "chapter",
+      "order": 14,
+      "prev": "za_alpami_017.html",
+      "next": "za_alpami_019.html",
+      "toc": [
+        {
+          "index": 0,
+          "level": 1,
+          "name": "IV. Krize",
+          "id": null,
+          "children": [
+            {
+              "index": 1,
+              "level": 2,
+              "name": "Z M. deníku",
+              "id": "zm-deníku",
+              "children": []
+            },
+            {
+              "index": 3,
+              "level": 2,
+              "name": "2.",
+              "id": "2",
+              "children": []
+            },
+            {
+              "index": 4,
+              "level": 2,
+              "name": "Z M. deníku",
+              "id": "zm-deníku-1",
+              "children": []
+            },
+            {
+              "index": 6,
+              "level": 2,
+              "name": "4.",
+              "id": "4",
+              "children": []
+            },
+            {
+              "index": 7,
+              "level": 2,
+              "name": "5.",
+              "id": "5",
+              "children": []
+            },
+            {
+              "index": 8,
+              "level": 2,
+              "name": "6.",
+              "id": "6",
+              "children": []
+            },
+            {
+              "index": 9,
+              "level": 2,
+              "name": "Z M. deníku",
+              "id": "zm-deníku-2",
+              "children": []
+            },
+            {
+              "index": 13,
+              "level": 2,
+              "name": "8.",
+              "id": "8",
+              "children": []
+            },
+            {
+              "index": 14,
+              "level": 2,
+              "name": "9.",
+              "id": "9",
+              "children": []
+            },
+            {
+              "index": 15,
+              "level": 2,
+              "name": "10.",
+              "id": "10",
+              "children": []
+            },
+            {
+              "index": 16,
+              "level": 2,
+              "name": "11.",
+              "id": "11",
+              "children": []
+            },
+            {
+              "index": 17,
+              "level": 2,
+              "name": "12.",
+              "id": "12",
+              "children": []
+            }
+          ]
+        }
+      ]
+    },
+    {
+      "title": "Epilog",
+      "file": "za_alpami_019.html",
+      "words": 664,
+      "chars": 4181,
+      "ideas": 22,
+      "role": "chapter",
+      "order": 15,
+      "prev": "za_alpami_018.html",
+      "next": "colophon.html",
+      "toc": [
+        {
+          "index": 0,
+          "level": 1,
+          "name": "Epilog",
+          "id": null,
+          "children": []
+        }
+      ]
+    },
+    {
+      "title": "Tiráž",
+      "file": "colophon.html",
+      "words": 135,
+      "chars": 879,
+      "ideas": 16,
+      "role": "colophon",
+      "order": null,
+      "prev": "za_alpami_019.html",
+      "next": null,
+      "toc": [
+        {
+          "index": 0,
+          "level": 1,
+          "name": "Tiráž",
+          "id": null,
+          "children": []
+        }
+      ]
+    }
+  ],
+  "totals": {
+    "all": {
+      "words": 107661,
+      "chars": 650910,
+      "ideas": 2189
+    },
+    "chapters": {
+      "words": 107521,
+      "chars": 650004,
+      "ideas": 2170
+    }
+  }
+}
