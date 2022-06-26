@@ -1,5 +1,6 @@
 ---
 title: Epilog
+hiddenTitle: true
 contentType: prose
 ---
 
