@@ -12,6 +12,7 @@ meta:
   modified: '2021-06-02T00:00:00.000Z'
   isbn: 978-80-274-1602-8
   publisherShort: mkp
+  contentType: prose
 readingOrder:
   - promo.html
   - za_alpami_005.html
@@ -34,7 +35,7 @@ tocBase:
   - id: section-1
     children:
       - link: za_alpami_005.html
-        title: Věnování
+        title: Poznámka autora
         hiddenTitle: true
       - link: za_alpami_006.html
         title: Citát
