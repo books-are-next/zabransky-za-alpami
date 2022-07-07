@@ -7,8 +7,8 @@
   "publisher": "Městská knihovna v Praze",
   "languageCode": "cs",
   "root": "main",
-  "identifier": "zabransky-za-alpami-c4eead1",
-  "revision": "c4eead1",
+  "identifier": "zabransky-za-alpami-c9196c0",
+  "revision": "c9196c0",
   "readingOrder": [
     "promo.html",
     "za_alpami_005.html",
@@ -26,11 +26,11 @@
     "za_alpami_017.html",
     "za_alpami_018.html",
     "za_alpami_019.html",
-    "colophon.html"
+    "about.html"
   ],
   "generatedAt": {
-    "date": "Sun Jun 26 2022 09:04:34 GMT+0000 (Coordinated Universal Time)",
-    "unix": 1656234274681
+    "date": "Thu Jul 07 2022 08:42:56 GMT+0000 (Coordinated Universal Time)",
+    "unix": 1657183376242
   },
   "documents": [
     {
@@ -754,7 +754,7 @@
       "role": "chapter",
       "order": 15,
       "prev": "za_alpami_018.html",
-      "next": "colophon.html",
+      "next": "about.html",
       "toc": [
         {
           "index": 0,
@@ -767,11 +767,11 @@
     },
     {
       "title": "Tiráž",
-      "file": "colophon.html",
+      "file": "about.html",
       "words": 135,
-      "chars": 879,
+      "chars": 878,
       "ideas": 16,
-      "role": "colophon",
+      "role": "about",
       "order": null,
       "prev": "za_alpami_019.html",
       "next": null,
@@ -789,7 +789,7 @@
   "totals": {
     "all": {
       "words": 107661,
-      "chars": 650910,
+      "chars": 650909,
       "ideas": 2189
     },
     "chapters": {

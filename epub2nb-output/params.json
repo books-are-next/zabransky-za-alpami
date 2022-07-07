@@ -66,7 +66,7 @@
             "filename": "za_alpami_003.md",
             "xhtml": "za_alpami_003.xhtml",
             "id": 2,
-            "role": "colophon",
+            "role": "about",
             "listType": "plain",
             "inToc": false,
             "hungry": false,
@@ -78,7 +78,7 @@
             "filename": "za_alpami_004.md",
             "xhtml": "za_alpami_004.xhtml",
             "id": 3,
-            "role": "colophon",
+            "role": "about",
             "listType": "plain",
             "inToc": false,
             "hungry": false,
@@ -287,7 +287,7 @@
             "filename": "za_alpami_020.md",
             "xhtml": "za_alpami_020.xhtml",
             "id": 19,
-            "role": "colophon",
+            "role": "about",
             "listType": "plain",
             "inToc": false,
             "hungry": false,
@@ -552,6 +552,6 @@
       "user": "books-are-next",
       "repo": "zabransky-za-alpami"
     },
-    "generatedAt": 1656234197133
+    "generatedAt": 1657182722668
   }
 }

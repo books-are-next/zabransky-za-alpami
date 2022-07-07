@@ -30,7 +30,7 @@ readingOrder:
   - za_alpami_017.html
   - za_alpami_018.html
   - za_alpami_019.html
-  - colophon.html
+  - about.html
 tocBase:
   - id: section-1
     children:
