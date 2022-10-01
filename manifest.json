@@ -7,8 +7,8 @@
   "publisher": "Městská knihovna v Praze",
   "languageCode": "cs",
   "root": "main",
-  "identifier": "zabransky-za-alpami-80d82c6",
-  "revision": "80d82c6",
+  "identifier": "zabransky-za-alpami-66d3f60",
+  "revision": "66d3f60",
   "readingOrder": [
     "promo.html",
     "za_alpami_005.html",
@@ -29,8 +29,8 @@
     "about.html"
   ],
   "generatedAt": {
-    "date": "Thu Sep 29 2022 21:39:06 GMT+0000 (Coordinated Universal Time)",
-    "unix": 1664487546201
+    "date": "Sat Oct 01 2022 16:07:57 GMT+0000 (Coordinated Universal Time)",
+    "unix": 1664640477345
   },
   "documents": [
     {
