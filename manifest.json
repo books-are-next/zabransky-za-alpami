@@ -7,8 +7,8 @@
   "publisher": "Městská knihovna v Praze",
   "languageCode": "cs",
   "root": "main",
-  "identifier": "zabransky-za-alpami-66d3f60",
-  "revision": "66d3f60",
+  "identifier": "zabransky-za-alpami-0175ebd",
+  "revision": "0175ebd",
   "readingOrder": [
     "promo.html",
     "za_alpami_005.html",
@@ -29,8 +29,8 @@
     "about.html"
   ],
   "generatedAt": {
-    "date": "Sat Oct 01 2022 16:07:57 GMT+0000 (Coordinated Universal Time)",
-    "unix": 1664640477345
+    "date": "Tue Oct 04 2022 16:56:21 GMT+0000 (Coordinated Universal Time)",
+    "unix": 1664902581602
   },
   "documents": [
     {
@@ -768,9 +768,9 @@
     {
       "title": "Tiráž",
       "file": "about.html",
-      "words": 135,
+      "words": 133,
       "chars": 879,
-      "ideas": 16,
+      "ideas": 14,
       "role": "about",
       "order": null,
       "prev": "za_alpami_019.html",
@@ -788,9 +788,9 @@
   ],
   "totals": {
     "all": {
-      "words": 107661,
+      "words": 107659,
       "chars": 650910,
-      "ideas": 2189
+      "ideas": 2187
     },
     "chapters": {
       "words": 107521,
