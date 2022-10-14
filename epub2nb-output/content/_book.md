@@ -10,9 +10,10 @@ meta:
   author: David Zábranský
   publisher: Městská knihovna v Praze
   modified: '2021-06-02T00:00:00.000Z'
-  isbn: 978-80-274-1602-8
+  isbn: 978-80-274-2828-1
   publisherShort: mkp
   contentType: prose
+  edition: beletrie
 readingOrder:
   - promo.html
   - za_alpami_005.html

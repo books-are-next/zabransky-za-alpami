@@ -5,10 +5,11 @@
   "title": "Za Alpami",
   "author": "David Zábranský",
   "publisher": "Městská knihovna v Praze",
+  "edition": "beletrie",
   "languageCode": "cs",
   "root": "main",
-  "identifier": "zabransky-za-alpami-bd835e0",
-  "revision": "bd835e0",
+  "identifier": "zabransky-za-alpami-61fbd0c",
+  "revision": "61fbd0c",
   "readingOrder": [
     "promo.html",
     "za_alpami_005.html",
@@ -29,8 +30,8 @@
     "about.html"
   ],
   "generatedAt": {
-    "date": "Mon Oct 10 2022 15:50:56 GMT+0000 (Coordinated Universal Time)",
-    "unix": 1665417056271
+    "date": "Fri Oct 14 2022 12:44:27 GMT+0000 (Coordinated Universal Time)",
+    "unix": 1665751467815
   },
   "documents": [
     {
@@ -788,9 +789,9 @@
   ],
   "totals": {
     "all": {
-      "words": 107659,
-      "chars": 650911,
-      "ideas": 2187
+      "words": 107660,
+      "chars": 650919,
+      "ideas": 2188
     },
     "chapters": {
       "words": 107521,
