@@ -8,8 +8,8 @@
   "edition": "beletrie",
   "languageCode": "cs",
   "root": "main",
-  "identifier": "zabransky-za-alpami-61fbd0c",
-  "revision": "61fbd0c",
+  "identifier": "zabransky-za-alpami-21af148",
+  "revision": "21af148",
   "readingOrder": [
     "promo.html",
     "za_alpami_005.html",
@@ -30,8 +30,8 @@
     "about.html"
   ],
   "generatedAt": {
-    "date": "Fri Oct 14 2022 12:44:27 GMT+0000 (Coordinated Universal Time)",
-    "unix": 1665751467815
+    "date": "Fri Oct 21 2022 11:47:50 GMT+0000 (Coordinated Universal Time)",
+    "unix": 1666352870187
   },
   "documents": [
     {
